@@ -1,0 +1,44 @@
+#!/usr/bin/env bash
+require() {
+  hash "$@" || exit
+}
+usage() {
+  echo "$0 vid doy"
+  echo "vid - video id"
+  echo "doy - day of year"
+  echo "caption - video title"
+  exit 1
+}
+require basename date markdown-toc
+if test $# -ne 3; then
+  usage
+fi
+#shellcheck disable=SC1091
+source ./vidmd.sh
+if ! isnumeric "$2"; then
+  usage
+fi
+vid="$1"
+doy="$2"
+videourl="https://youtu.be/${vid}"
+caption="$3"
+year="2023"
+if ./genoverlay "$vid" "$doy"; then
+  md="$(./genvidthmd "$vid" "$videourl" "$caption" "$doy")"
+  month="$(mfromdoy "$doy")"
+  fname="${month}/Day$(printf "%03d" "${doy#0}").md"
+  formatdt="$(datefromdoy "$doy")"
+  echo "## $formatdt ##" >|"$fname"
+  {
+    echo
+    echo "$md"
+  } >>"$fname"
+
+  basename -- "$fname" >>"${month}/compact.txt"
+  monthmd="${month}${year}.md"
+  ./compact "$month" >|"$monthmd" &&
+    markdown-toc -i "$monthmd"
+  echo "$vid" >>videos.txt
+else
+  echo "Unable to find or generate video thumbnail. Video may not exist."
+fi
