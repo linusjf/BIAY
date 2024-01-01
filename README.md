@@ -20,4 +20,8 @@ A daily youtube video will be sent out. We start on Jan 1 & will complete readin
 
 Watch this video to get started.
 
-[![Preparing for Bible In a Year Journey w/ Fr. Mike Schmitz?](https://raw.githubusercontent.com/linusjf/BIAY/main/preparing.jpg)](https://youtu.be/qvROgfajuMY "Preparing for Bible in a Year Journey w/ Fr. Mike Schmitz")
+[![Preparing for Bible In a Year Journey w/ Fr. Mike Schmitz](https://raw.githubusercontent.com/linusjf/BIAY/main/preparing.jpg)](https://youtu.be/qvROgfajuMY "Preparing for Bible in a Year Journey w/ Fr. Mike Schmitz")
+
+The following video is bonus content to help prepare you for Day 1.
+
+[![Introduction to the Early World (with Jeff Cavins)](https://raw.githubusercontent.com/linusjf/BIAY/main/introtoearlyworld.jpg)](https://youtu.be/P_bo2GubC9g "Introduction to the Early World")
