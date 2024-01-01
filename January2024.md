@@ -51,3 +51,23 @@ That’s how the two events(Gen 1 and Gen 2) of the creation of man can be expla
 Finally, we realize that God is the source of everything good, this should remind us to put him first in everything - He is the beginning. The Alpha and Omega.
 
 May the Holy Spirit lead us. 🙏
+
+Day 1 - creation - Irene
+
+Something which struck me was 
+
+1. God is our Creator. He made us we are his creation the work of his hands.
+
+2. God is good.  Everything that He has created is good. 
+
+3.He is our source and provider.  He has given us everything even before He made us.
+
+4. God is our Helper our ever present help in every need.
+
+5. He is a master planner putting every detail in place.
+
+Our God is an awesome God 
+
+Praise God the Father
+Praise God the Son
+Praise God the Holy Spirit the triune God.

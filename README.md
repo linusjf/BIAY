@@ -14,9 +14,18 @@
 ### Intro
 
 A daily youtube video will be sent out. We start on Jan 1 & will complete reading the Bible on Dec 31.
-1. The 2023 group is finishing up the BIAY so the new members may see post like day3XX you can skip them.
-2. After listening to the days video, if you feel inspired write down a few points and share it with the group. It could be single word or a whole paragraph.
-3. Send your reflections to the group admins, the group admins will select a few reflections everyday.
+
+1. After listening to the days video, if you feel inspired write down a few points and share it with the group. It could be single word or a whole paragraph.
+2. Send your reflections to the group admins, the group admins will select a few reflections everyday.
+
+The format for sharing is as below. 
+—————————
+BIAY
+DayXX - Name 
+Sharing Content
+—————————
+
+The sharing content can’t be a single word or as long as you wish. It’s really important to share as it motivates the whole group.
 
 Watch this video to get started.
 
