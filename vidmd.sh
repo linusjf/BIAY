@@ -117,3 +117,10 @@ datefromdoy() {
   ((day = 10#$1 - 1))
   date --date="jan 1 + $day days" "+%B %d,%Y"
 }
+
+monthfromnumber() {
+  case $1 in
+  [1-9] | 1[0-2]) date -d "${1}/01" +%B ;;
+  *) exit 1 ;;
+  esac
+}
