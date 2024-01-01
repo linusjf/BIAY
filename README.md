@@ -25,3 +25,7 @@ Watch this video to get started.
 The following video is bonus content to help prepare you for Day 1.
 
 [![Introduction to the Early World (with Jeff Cavins)](https://raw.githubusercontent.com/linusjf/BIAY/main/introtoearlyworld.jpg)](https://youtu.be/P_bo2GubC9g "Introduction to the Early World")
+
+Download the reading plan at the link below:
+
+[BIAY Reading Plan](https://raw.githubusercontent.com/linusjf/BIAY/main/BIAYReadingPlan.pdf)
