@@ -4,6 +4,8 @@
 
 - [January 2024](#january-2024)
   * [January 01,2024](#january-012024)
+    + [Day1 *We have God in our DNA* - Michael Eltham](#day1-we-have-god-in-our-dna---michael-eltham)
+    + [Day 1 - creation - Irene](#day-1---creation---irene)
 
 <!-- tocstop -->
 
@@ -14,7 +16,7 @@ BIAY January 2024
 
 [![In the Beginning](https://raw.githubusercontent.com/linusjf/CIAY/main/January/jpgs/Day001.jpg)](https://youtu.be/BW0gXbEVYgA "In the Beginning")
 
-Day1 *We have God in our DNA* - Michael Eltham
+### Day1 *We have God in our DNA* - Michael Eltham ###
 
 The Bible opens with this great scene of creation, it reveals a bit of God’s nature – God existed before all things and is the source of everything good, everything we know and understand. We see a glimpse of God’s nature, God is generous - keeps on creating and pouring life into this world. God creates an ordered and good world and puts everything in place and sets rules and boundaries. There is something to be learned from how God organized this world and set it in motion, we should also organize our lives, and set rules and boundaries based on the church's teachings and Sacred Scripture. When we live an organized, harmonious life we feel good, the reason being we were created by God in His own “image” and “likeness” – we experience wholeness when we have things in order.
 
@@ -52,7 +54,7 @@ Finally, we realize that God is the source of everything good, this should remin
 
 May the Holy Spirit lead us. 🙏
 
-Day 1 - creation - Irene
+### Day 1 - creation - Irene ###
 
 Something which struck me was 
 
