@@ -6,6 +6,7 @@
   * [January 01,2024](#january-012024)
     + [Day1 *We have God in our DNA* - Michael Eltham](#day1-we-have-god-in-our-dna---michael-eltham)
     + [Day 1 - creation - Irene](#day-1---creation---irene)
+    + [Day 1 - Gabriella](#day-1---gabriella)
 
 <!-- tocstop -->
 
@@ -62,7 +63,7 @@ Something which struck me was
 
 2. God is good.  Everything that He has created is good. 
 
-3.He is our source and provider.  He has given us everything even before He made us.
+3. He is our source and provider.  He has given us everything even before He made us.
 
 4. God is our Helper our ever present help in every need.
 
@@ -73,3 +74,24 @@ Our God is an awesome God
 Praise God the Father
 Praise God the Son
 Praise God the Holy Spirit the triune God.
+
+### Day 1 - Gabriella ###
+
+Praise God for Fr. Mike so beautifully explaining God's intention for us:
+ 
+We are made in God's image and we were originally created for labour. 
+
+As God freely created man to make him share in his own blessed life. 
+
+God is a creator so when he puts man and woman in the land he has them work. 
+
+*The Lord God made us for labour and leisure. In  the creation story we see God working.*
+
+He created the world in 6 days and on the 7th day he rested. God wants us to share in this, to labour,  till the land and keep it. 
+
+And if God worked for 6 days and rested on the 7th we should follow suit.
+
+Now I understand why my parents instilled in me: 
+PRAY & WORK = ORA ET LABORA
+
+God bless Fr. Mike for presenting the creation story so clearly. I didn't understand this in such detail before.
