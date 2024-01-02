@@ -10,7 +10,7 @@
   * [January 02,2024](#january-022024)
     + [Day2: *Distrust and Disobedience* - Michael Eltham](#day2-distrust-and-disobedience---michael-eltham)
     + [Day 2 – Alice To](#day-2-%E2%80%93-alice-to)
-    + [Day 2 By Cynthia Dsilva_###](#day-2-by-cynthia-dsilva_%23%23%23)
+    + [Day 2 By Cynthia D'Silva](#day-2-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -156,7 +156,7 @@ Thoughts on action of Adam and the serpent:
 As a Christian, we should be aware of our God-given duty. We should always be aware of what our duty and mission is and adhere to it without fail or doubt because our God will not ask us to do things that we are not capable of and He will always be there to guide us along. We should also be aware that temptations, like the serpent will creep up on us without our being aware of it. We should always be vigilant. 
 Pray each day for protection and guidance from the Holy Spirit and our Mama Mary.
 
-### Day 2 By Cynthia Dsilva_###
+### Day 2 By Cynthia D'Silva ###
 
 Genesis 3:4-5 
 *But the serpent said to the woman, “you will certainly not die.  God knows that when you eat of it your eyes will be opened, and you will be like God, who knows good and evil.”* 
