@@ -8,6 +8,7 @@
     + [Day 1 - creation - Irene](#day-1---creation---irene)
     + [Day 1 - Gabriella](#day-1---gabriella)
   * [January 02,2024](#january-022024)
+    + [Day2: *Distrust and Disobedience* - Michael Eltham](#day2-distrust-and-disobedience---michael-eltham)
 
 <!-- tocstop -->
 
@@ -100,3 +101,47 @@ God bless Fr. Mike for presenting the creation story so clearly. I didn't unders
 ## January 02,2024 ##
 
 [![The Fall of Adam and Eve](https://raw.githubusercontent.com/linusjf/CIAY/main/January/jpgs/Day002.jpg)](https://youtu.be/WBg_xK44V0E "The Fall of Adam and Eve")
+
+### Day2: *Distrust and Disobedience* - Michael Eltham ###
+
+Man was made for communion with God, they spoke to God and heard God speak. It was a beautiful harmonious life, and everything was going great for Adam and Eve. As we read in the first chapter of the Catechism of the Catholic Church – God created man to share in the blessed life of the Trinity. Adam and Eve were enjoying this beautiful life – in direct communion with God.
+
+1 God, infinitely perfect and blessed in himself, in a plan of sheer goodness freely created man to make him share in his own blessed life.CCC prologue 1
+
+Now God has planted a garden in Eden and grew various plants with fruit that were pleasing to the eye and to eat. Adam was allowed to eat from any tree except the tree of knowledge of good and evil.
+
+15 The Lord God took the man and put him in the garden of Eden to till it and keep it. 16 And the Lord God commanded the man, “You may freely eat of every tree of the garden; 17 but of the tree of the knowledge of good and evil you shall not eat, for in the day that you eat of it you shall die.” Gen 2:15-17
+
+Satan is very crafty as we see in Genesis – he sows seeds of doubt in Eve’s heart. Satan tries to manipulate the truth and question it and eventually causes us to doubt the truth.
+
+But the serpent said to the woman, “You will not die; 5 for God knows that when you eat of it your eyes will be opened, and you will be like God knowing good and evil.” Gen 3:4,5
+
+Satan is proposing that God is a liar and that God does not want our good. According to satan, God didn’t want them to eat the fruit lest they become like God. This would have caused doubt in Eve’s heart. The serpent described in Genesis is no rat snake, it's more like a Dragon like creature – so there is also this element of fear that would have its role to play. Apart from doubt and fear satan eve was also fighting temptations.
+
+So when the woman saw that the tree was good for food, and that it was a delight to the eyes, and that the tree was to be desired to make one wise Gen 3:6
+
+The fruit was also good to look at, good for the stomach and it made one like God.
+
+She could not resist it anymore, the combined effect of doubt, fear, and temptation. She gave in and gave it to Adam as well, I would have expected Adam to at least resist – but it’s described as though he just eats it. (Like a good husband ;) – just joking ). Adam should have stood his ground and resisted the devil. 
+
+The main thing that caused their fall was their distrust in God. God gave them everything – every tree, every creature and even let them share in His divine life. But they just could not trust God enough. This distrust caused their disobedience. This caused sin to enter mankind. 
+
+We can sit and marvel at how stupid our first parents were, but pointing one finger at someone points 4 fingers back at us. Genesis is not a storybook to read and fall asleep over, it’s the story of our lives. We are faced with the same temptations that Adam and Eve faced, we have doubts, fear, and temptation in our lives.
+
+God has given us the truth in the Word of God and from Church tradition, we know what we ought to do. Yet we doubt it, we fear the consequences, we fear what the world will say, and we give into the temptations of the world. We look at what’s good for the eye, good for the flesh, and pride ourselves in our wisdom.
+
+The devil does not have his own clay, he just takes what God created and twists the truth into a lie. Satan will take half-truths and add lies to it and put doubt in our hearts, he is the father of lies.
+
+“He was a murderer from the beginning and does not stand in the truth, because there is no truth in him. When he lies, he speaks according to his own nature, for he is a liar and the father of lies.” Jh 8:44
+
+We sometimes give into the lies of the enemy and give into the temptations of the world. When we commit sin we tend to hide like Adam and Eve we try to cover our sin up.
+
+7 Then the eyes of both were opened, and they knew that they were naked; and they sewed fig leaves together and made loincloths for themselves. Gen 3:7
+
+I feel this is the first penance that Adam and Eve took on because as we all know fig leaves cause itch. This would have caused severe itch for Adam and Eve when they made loincloths with these leaves. I’m sure they were aware of this but they felt so upset with themselves and fearful.
+
+Loved Fr Mike’s explanation of the tone of God for the verse – “who told you you were naked?” The angry tone which most would assume compared to the sympathetic tone. God must have been really hurt - because we didn’t trust Him but believed the serpent instead.
+
+Let us learn to trust God and his commandments. Man’s wisdom is foolishness to God, we should stop making up our own rules. If we decide that we can watch sports instead of worship on Sunday or that a fetus in the womb is just tissue – we are listening to the lies of satan. We should listen to God’s voice and trust God fully.
+
+May the Holy Spirit lead us. 🙏
