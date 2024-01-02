@@ -7,6 +7,7 @@
     + [Day1 *We have God in our DNA* - Michael Eltham](#day1-we-have-god-in-our-dna---michael-eltham)
     + [Day 1 - creation - Irene](#day-1---creation---irene)
     + [Day 1 - Gabriella](#day-1---gabriella)
+  * [January 02,2024](#january-022024)
 
 <!-- tocstop -->
 
@@ -95,3 +96,7 @@ Now I understand why my parents instilled in me:
 PRAY & WORK = ORA ET LABORA
 
 God bless Fr. Mike for presenting the creation story so clearly. I didn't understand this in such detail before.
+
+## January 02,2024 ##
+
+[![The Fall of Adam and Eve](https://raw.githubusercontent.com/linusjf/CIAY/main/January/jpgs/Day002.jpg)](https://youtu.be/WBg_xK44V0E "The Fall of Adam and Eve")
