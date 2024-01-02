@@ -9,6 +9,7 @@
     + [Day 1 - Gabriella](#day-1---gabriella)
   * [January 02,2024](#january-022024)
     + [Day2: *Distrust and Disobedience* - Michael Eltham](#day2-distrust-and-disobedience---michael-eltham)
+    + [Day 2 – Alice To](#day-2-%E2%80%93-alice-to)
 
 <!-- tocstop -->
 
@@ -145,3 +146,11 @@ Loved Fr Mike’s explanation of the tone of God for the verse – “who told y
 Let us learn to trust God and his commandments. Man’s wisdom is foolishness to God, we should stop making up our own rules. If we decide that we can watch sports instead of worship on Sunday or that a fetus in the womb is just tissue – we are listening to the lies of satan. We should listen to God’s voice and trust God fully.
 
 May the Holy Spirit lead us. 🙏
+
+### Day 2 – Alice To ###
+
+Thoughts on action of Adam and the serpent:
+1.	After creation, God has given Adam dominion over all animals (Gen 1:28). What Adam should have done when the serpent appeared before Eve was to rebuke it, protected Eve and cast the serpent out with his authority. Because of his inaction, Eve succumbed to temptation.
+2.	The serpent is very clever. It did not do a direct onslaught. It just planted doubt in Eve’s mind by asking her a question. 
+As a Christian, we should be aware of our God-given duty. We should always be aware of what our duty and mission is and adhere to it without fail or doubt because our God will not ask us to do things that we are not capable of and He will always be there to guide us along. We should also be aware that temptations, like the serpent will creep up on us without our being aware of it. We should always be vigilant. 
+Pray each day for protection and guidance from the Holy Spirit and our Mama Mary.
