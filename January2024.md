@@ -12,6 +12,8 @@
     + [Day 2 – Alice To](#day-2-%E2%80%93-alice-to)
     + [Day 2 By Cynthia D'Silva](#day-2-by-cynthia-dsilva)
     + [Jenita Maria](#jenita-maria)
+  * [January 03,2024](#january-032024)
+    + [Day3: Walking with the Lord - Michael Eltham](#day3-walking-with-the-lord---michael-eltham)
 
 <!-- tocstop -->
 
@@ -192,3 +194,45 @@ We understand that.. Even though adam and Eve went Against God's word, and compl
 2. *The importance of giving the first fruits to God*
 
 Giving the first hours of your day Or the first fruits of earnings to God shows how much he means to you in your life. We are ever ready to do everything for the person we love, giving the first in everything!! But why should the last few hours or whatever is remaining out of all the abundance God gave us, be given to him back as a sacrifice of love. Love of God is pure and we can only respect God by giving what we love to him.
+
+## January 03,2024 ##
+
+[![Noah's Ark](https://raw.githubusercontent.com/linusjf/CIAY/main/January/jpgs/Day003.jpg)](https://youtu.be/xs41k9YG7tQ "Noah's Ark")
+
+### Day3: Walking with the Lord - Michael Eltham ###
+
+It is so important for us to have a relationship with God. We are not saved just by being baptized or with church membership or by inheritance - it also depends on how we live our lives.
+
+We all know what Cain did, and how he sinned. Now Adam and Even had another child Seth who is made in Adam’s image and likeness – and Adam was made in God’s image and likeness.
+
+When Adam had lived one hundred thirty years, he became the father of a son in his likeness, according to his image, and named him Seth Gen 5:3
+
+These are the two lines of Adam’s family Setithe line and Cainite line. The Cainite line seems to be doing evil and the Setithe line are doing good. Even though they are both from the same parent Adam and Eve and grew up in the same home - they turned out so differently. Just being part of a family will not make us good, we have to work hard to become good children as well. We need to teach our children to be good as well.
+
+Now Enoch is a good example from the Setithe line who was good and walked with God. Enoch is the first human being who did not die because he walked so closely with God.
+
+22 Enoch walked with God after the birth of Methuselah three hundred years, and had other sons and daughters. 23 Thus all the days of Enoch were three hundred sixty-five years. 24 Enoch walked with God; then he was no more, because God took him. Gen 3:22-23
+
+God must have been so close to Enoch that he let him live a long life of 365 years. Enoch apparently did the will of God and probably didn’t commit many sins. He was so close to God that God didn’t even let him die, he just took him up out of the earth. Well, how to we know that the verse didn’t just mean he died and God took him.
+
+Some evidence can be found in Sirach and Hebrews.
+
+
+
+ENOCH walked with the LORD and was taken, that succeeding generations might learn by his example. Sirach 44:16
+
+
+
+Few on earth have been created like ENOCH; he also was taken up bodily. Sirach 49:14
+
+By faith Enoch was taken from this life, so that he did not experience death: “He could not be found, because God had taken him away.” Heb 11:5
+
+We need to walk with the Lord and not be confirmed to the standards of the world, we should renew our minds with the Word of God.
+
+In this corrupt and sinful world, we need to walk with the Lord as Enoch and Noah did.
+
+Let us be the salt of the world and the light of the world.
+
+May we not just do as the world does but live as God wants us to live, in the world but not of the world.
+
+May the Holy Spirit lead us. 🙏
