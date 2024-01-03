@@ -22,7 +22,7 @@ BIAY January 2024
 
 ## January 01,2024 ##
 
-[![In the Beginning](https://raw.githubusercontent.com/linusjf/CIAY/main/January/jpgs/Day001.jpg)](https://youtu.be/BW0gXbEVYgA "In the Beginning")
+[![In the Beginning](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day001.jpg)](https://youtu.be/BW0gXbEVYgA "In the Beginning")
 
 ### Day1 *We have God in our DNA* - Michael Eltham ###
 
@@ -105,7 +105,7 @@ God bless Fr. Mike for presenting the creation story so clearly. I didn't unders
 
 ## January 02,2024 ##
 
-[![The Fall of Adam and Eve](https://raw.githubusercontent.com/linusjf/CIAY/main/January/jpgs/Day002.jpg)](https://youtu.be/WBg_xK44V0E "The Fall of Adam and Eve")
+[![The Fall of Adam and Eve](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day002.jpg)](https://youtu.be/WBg_xK44V0E "The Fall of Adam and Eve")
 
 ### Day2: *Distrust and Disobedience* - Michael Eltham ###
 
@@ -197,7 +197,7 @@ Giving the first hours of your day Or the first fruits of earnings to God shows 
 
 ## January 03,2024 ##
 
-[![Noah's Ark](https://raw.githubusercontent.com/linusjf/CIAY/main/January/jpgs/Day003.jpg)](https://youtu.be/xs41k9YG7tQ "Noah's Ark")
+[![Noah's Ark](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day003.jpg)](https://youtu.be/xs41k9YG7tQ "Noah's Ark")
 
 ### Day3: Walking with the Lord - Michael Eltham ###
 
