@@ -11,6 +11,7 @@
     - [Get started](#get-started)
     - [Reading Plan](#reading-plan)
     - [A New Beginning](#a-new-beginning)
+    - [Facebook](#facebook)
 
 <!-- vim-markdown-toc -->
 ## Bible In A Year
@@ -57,3 +58,11 @@ Download the reading plan at the link below:
 
 The Lord makes all things new and His promises are new every morning. Thank you Lord for the last year and the brand New Year ahead. 
 Let us begin our journey through the Bible as one big family, praying for each other everyday. Let’s try our best to stay on track, having a fixed time(20mins) and place will help you make it part of your daily routine. We can do all things in Christ who strengthens us. All the best!!!
+
+### Facebook ###
+
+*Disclaimer* Fr Mike Schmitz is not part of this group and we don’t have direct access to him. We are a group that follows his programs. If you would like you can join the official facebook group that have a few Q&A sessions with Fr Mike. When you invite anyone please let them know that Fr Mike is not on the group. 😃 He is only with us in spirit. 🙏
+
+Like this session.
+
+[The Bible In a Year (with Fr. Mike Schmitz and Jeff Cavins \[Official\]](https://www.facebook.com/groups/ascensioncatholic/permalink/1354591171863758/?mibextid=W9rl1R)

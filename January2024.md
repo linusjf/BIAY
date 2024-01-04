@@ -14,6 +14,10 @@
     + [Jenita Maria](#jenita-maria)
   * [January 03,2024](#january-032024)
     + [Day3: Walking with the Lord - Michael Eltham](#day3-walking-with-the-lord---michael-eltham)
+    + [Day-3 Name: Anonymous](#day-3-name-anonymous)
+    + [Day 3 By Cynthia Dsilva](#day-3-by-cynthia-dsilva)
+  * [January 04,2024](#january-042024)
+    + [Day 4 *Why does God allow evil in the world?* - Michael Eltham](#day-4-why-does-god-allow-evil-in-the-world---michael-eltham)
 
 <!-- tocstop -->
 
@@ -234,5 +238,64 @@ In this corrupt and sinful world, we need to walk with the Lord as Enoch and Noa
 Let us be the salt of the world and the light of the world.
 
 May we not just do as the world does but live as God wants us to live, in the world but not of the world.
+
+May the Holy Spirit lead us. 🙏
+
+
+### Day-3 Name: Anonymous ###
+
+God is saying, Noah,  make this ark.  Because u clinged to  me, I will lift you up.
+
+### Day 3 By Cynthia Dsilva ###
+
+Genesis 5:24
+*After he begot Methuselah, Enoch walked with God for 300 years.  His whole lifetime was 365 years, then he was no more, because God took him.* 
+Enoch had an encounter with God when he was 65 years old.  Thereafter, for the rest of his life he walked with God.  Enoch was not a monk.  He was an ordinary family man.  Enoch did not have any scriptures or Temple or Church to guide him and yet he was able to walk with God.  If Enoch could do it then it should not be difficult for us to walk with God when we have the scriptures and the Church to guide us.
+
+Genesis 6:5-7
+*The Lord saw that the people had become wicked and evil.   So the Lord said, “I will wipe out from the earth all the human beings I have created.”*
+After God had already declared to Satan that He would put enmity between Satan and the woman (Genesis 3:15), Satan tried to destroy God's plan for redemption by tempting men and women to lead immoral & sinful lives and therefore God had to send the Great Flood and destroy all humanity except Noah and his family because Noah was found to be righteous.  
+
+[Genesis 3:15](https://biblia.com/bible/rsvce/Genesis/3/15)
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## January 04,2024 ##
+
+[![The Flood](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day004.jpg)](https://youtu.be/k4ksCrLNO2U "The Flood")
+
+### Day 4 *Why does God allow evil in the world?* - Michael Eltham ###
+
+We read how Noah - who walked with God, also listened and did what the Lord commanded him to do. Even though the people around him were doing evil things, Noah did what was right and listened to the instructions of the Lord. Noah built a huge ark according to the detailed instructions from the Lord. Then the Lord asked Noah to take in two of each species of animal.
+
+Noah did this; he did all that God commanded him. Gen 6:22
+
+Noah did not care about what the people were talking about him, he did not bother about their opinion. He just did the will of God and listened to the instructions God gave him, even if it seemed foolish or made no sense. Why build a big ark when there was never a flood before or there was no heavy rain? Imagine storing food for a lot of animals and getting them to come into the ark.
+
+People would have laughed at him, but Noah did everything the Lord told him.
+
+We are called to be not only hearers of the word but doers as well (James 1:22~). Also from Mat 7: Everyone who hears the word and does it is a wise man who built his house upon the rock - the rain and the flood did not cause the house to fall.
+
+Noah was a hearer and a doer of the word as well, which is why the water did not destroy him and his family.
+
+Water is used to cleanse things and the great flood wiped out all the evil generation. Only Noah and his family were saved. Because Noah listened to God’s word and acted upon it, he became a blessing to his family.
+
+We need to be hearers and doers of God's word like Noah. Even if it is at the cost of the whole city laughing at us.
+
+We use water to clean regular things and also used for baptism. John the Baptist called people to be baptized by water in order to prepare for Jesus’s coming. When Jesus was baptized in the river of Jordan, he was not cleansed by the water but the water was cleansed by Jesus’s divine touch. The next time we dip our fingers in holy water let us remember that it cleanses us, it’s sacramental. Just as the flood waters cleansed the human race at a point like John the Baptist baptized in water to prepare us for Jesus, and just as blood and “water” poured out of the side of Jesus for the purification of the Church. We were baptized and made clean – grafted into the body of Christ, the Church.
+
+The image to remember is the Rainbow, it’s the promise that God made to Noah and to each one of us that He will never destroy us again.
+
+“I will never again curse the ground because of humankind, for the inclination of the human heart is evil from youth; nor will I ever again destroy every living creature as I have done. Gen 8:21
+
+I have set my bow in the clouds, and it shall be a sign of the covenant between me and the earth. 14 When I bring clouds over the earth and the bow is seen in the clouds, 15 I will remember my covenant that is between me and you and every living creature of all flesh; and the waters shall never again become a flood to destroy all flesh. 16 When the bow is in the clouds, I will see it and remember the everlasting covenant between God and every living creature of all flesh that is on the earth.” 17 God said to Noah, “This is the sign of the covenant that I have established between me and all flesh that is on the earth.” Gen 9: 3-17
+
+The Rainbow is symbolic of God putting down his bow and deciding to never ever destroy us. This is an answer to the question “Why does God allow evil in the world?” God is patient and will not act harshly to destroy all evil people. God is patient and hopes that even the evilest people will repent.
+
+God re-established the covenant that he had with Adam, he makes a new covenant with Noah and blesses them “God blessed Noah and his sons, and said to them, “Be fruitful and multiply, and fill the earth.” Gen 9:1
+
+One would think that humans would learn from their mistakes, but no we keep on failing and breaking the covenant over and over again through generations. God did not just destroy all mankind but loved us even more, and sent Jesus – His only begotten son.
+
+God will not destroy us but love us more, love us until we repent and turn to Him. Let us not hurt God too much, return to His arms.
 
 May the Holy Spirit lead us. 🙏
