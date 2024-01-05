@@ -22,6 +22,7 @@
     + [Day 4 Cynthia D'Silva](#day-4-cynthia-dsilva)
   * [January 05,2024](#january-052024)
     + [Day 5: *Let us make a name for ourselves* - Michael Eltham](#day-5-let-us-make-a-name-for-ourselves---michael-eltham)
+    + [Day 5 - Gabriella](#day-5---gabriella)
 
 <!-- tocstop -->
 
@@ -346,3 +347,12 @@ We are all called to greatness. To be great saints, we ought to have that as our
 Let John the Baptist's prayer be our prayer today "He must increase and I must decrease.
 
 May the Holy Spirit lead us. 🙏
+
+### Day 5 - Gabriella ###
+
+Make me a great saint O Lord
+Make me a great saint!
+
+Help me evangelize with the talents you had graced me with.
+
+Help us to use our gifts for Your glory O Lord!
