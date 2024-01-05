@@ -19,6 +19,9 @@
   * [January 04,2024](#january-042024)
     + [Day 4 *Why does God allow evil in the world?* - Michael Eltham](#day-4-why-does-god-allow-evil-in-the-world---michael-eltham)
     + [Day 4 Anonymous](#day-4-anonymous)
+    + [Day 4 Cynthia D'Silva](#day-4-cynthia-dsilva)
+  * [January 05,2024](#january-052024)
+    + [Day 5: *Let us make a name for ourselves* - Michael Eltham](#day-5-let-us-make-a-name-for-ourselves---michael-eltham)
 
 <!-- tocstop -->
 
@@ -309,3 +312,37 @@ May the Holy Spirit lead us. 🙏
 
 3. God loves His creation and creatures and we have to be obedient to His commandments. We should never question His ways because He created us and He knows  what is best for us.  I seek pardon for the times I have knowingly or unknowingly questioned.God, why He created animals to suffer at human hands?
 All Glory  to The Most Holy Trinity!
+
+### Day 4 Cynthia D'Silva ###
+
+Genesis 7:1
+Noah started building the ark 100 years before the flood started and not when it started to drizzle or rain.  When God said “get in” Noah was so ready.
+How ready are we if God says tomorrow “it’s time to come home?”
+Are we ready or would we start running around looking for a priest to make our last confession?
+We must be ready for eternal lie every day of our earthly life, by being in a state of grace at all times with regular Confession and Communion.
+
+## January 05,2024 ##
+
+[![Tower of Babel](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day005.jpg)](https://youtu.be/nBoRts9y6Ko "Tower of Babel")
+
+### Day 5: *Let us make a name for ourselves* - Michael Eltham ###
+
+Who does not want a good name for themselves, everyone wants the world to love them. We try to be first in sports, business, entertainment, or any field. Now there is no harm in excellence or making a name. But the problem comes when we say “I did it” or “we did it” and we take all the credit. We tend to forget that before we could do anything God had to create us and create the world so we have things to create with. Right from the start Adam and Eve wanted to become like God, at least that was the temptation the serpent threw at them.
+
+“For God knows that when you eat from it your eyes will be opened, and you will be like God, knowing good and evil.” Gen 3:5
+
+Satan and the 1/3rd angels fell probably due to the same reason of wanting to be like God.
+
+This tendency to become like God seems to lift its ugly head again in the tower of Babel.
+
+Then they said, “Come, let us build ourselves a city, and a tower with its top in the heavens, and let us make a name for ourselves; otherwise we shall be scattered abroad upon the face of the whole earth.”Gen 11:4
+
+God's grace and mercy are revealed when God came down to confuse their languages. God knew that even if they built a tower into the heavens and reached their highest levels of success they will still not be satisfied. Pride will never be satisfied, it will lead to greed. That is why we see the people who are trying to build a name for themselves will never be satisfied, they will go to any length to reach the top. Once they have reached a good level of success they will not feel satisfied and go into depression.
+
+As St Augustine said - Our hearts will find rest only when we rest in the Lord. Even if we excel in our field of music, art, science, business or any field we will not be satisfied if we are trying to make a name for ourselves. But if lives are rooted in God and we are focused on lifting the name of the Lord higher, we will be blessed beyond our imagination.
+
+We are all called to greatness. To be great saints, we ought to have that as our top priority as St Maximillian Kolbe did. However, it should be for the glory of the Lord and not for our self-interest or our glory.
+
+Let John the Baptist's prayer be our prayer today "He must increase and I must decrease.
+
+May the Holy Spirit lead us. 🙏
