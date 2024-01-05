@@ -18,6 +18,7 @@
     + [Day 3 By Cynthia Dsilva](#day-3-by-cynthia-dsilva)
   * [January 04,2024](#january-042024)
     + [Day 4 *Why does God allow evil in the world?* - Michael Eltham](#day-4-why-does-god-allow-evil-in-the-world---michael-eltham)
+    + [Day 4 Anonymous](#day-4-anonymous)
 
 <!-- tocstop -->
 
@@ -299,3 +300,12 @@ One would think that humans would learn from their mistakes, but no we keep on f
 God will not destroy us but love us more, love us until we repent and turn to Him. Let us not hurt God too much, return to His arms.
 
 May the Holy Spirit lead us. 🙏
+
+### Day 4 Anonymous ###
+
+1. The foundation between God and man is interwoven with reminder of God's gift of human life.  God forbids murder of man.
+
+2. God says you can eat of the animals.  Animals are God 's creatures.  God entrusted animals to the stewardship of human beings.  And it is contrary to human dignity to be cruel to them.  This is an issue which troubled me a lot, when I saw humans attacking animals mercilessly.   
+
+3. God loves His creation and creatures and we have to be obedient to His commandments. We should never question His ways because He created us and He knows  what is best for us.  I seek pardon for the times I have knowingly or unknowingly questioned.God, why He created animals to suffer at human hands?
+All Glory  to The Most Holy Trinity!
