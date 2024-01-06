@@ -23,6 +23,10 @@
   * [January 05,2024](#january-052024)
     + [Day 5: *Let us make a name for ourselves* - Michael Eltham](#day-5-let-us-make-a-name-for-ourselves---michael-eltham)
     + [Day 5 - Gabriella](#day-5---gabriella)
+    + [Day 5 - Jenita](#day-5---jenita)
+    + [Day-5 Anonymous](#day-5-anonymous)
+  * [January 06,2024](#january-062024)
+    + [Day6: Our struggle with faith - Michael Eltham](#day6-our-struggle-with-faith---michael-eltham)
 
 <!-- tocstop -->
 
@@ -356,3 +360,41 @@ Make me a great saint!
 Help me evangelize with the talents you had graced me with.
 
 Help us to use our gifts for Your glory O Lord!
+
+### Day 5 - Jenita ###
+
+*"Choosing excellence over power, pride and fame"*
+
+### Day-5 Anonymous ###
+
+Nimrod -the mighty hunter before The Lord, his quest for ambition, power and control, for self-glory. 
+
+Forgetting they were created by God. they were planning to build the Tower of Babel and since they were all speaking the same language, it was much easier for them to plan.  Thus forgetting they had a Creator who was watching their every move. And rightly God comes down n scatters them all.  Their plan could not be established.
+
+That being who we are, being what God wants us to be and being that person well.  That gives Glory to God.
+
+Let our only aim be to Glorify our Creator,  who will always lift us up.
+
+## January 06,2024 ##
+
+[![Trust in the Lord](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day006.jpg)](https://youtu.be/c7YdwPuam-k "Trust in the Lord")
+
+### Day6: Our struggle with faith - Michael Eltham ###
+
+We read about Job today, he seems like someone who is living a good life – got his priorities right, worships God, and is a good family man. If Gold is tested in the furnace, man is tested with problems, sufferings, trials, and temptations. God allows certain trials in the life of Job, for testing and purification.
+
+God permits satan to take Job’s possessions, his livestock, property and children all at once.
+
+Then Satan answered the Lord, “Does Job fear God for nothing? 10 Have you not put a fence around him and his house and all that he has, on every side? You have blessed the work of his hands, and his possessions have increased in the land. 11 But stretch out your hand now, and touch all that he has, and he will curse you to your face.” 12 The Lord said to Satan, “Very well, all that he has is in your power; only do not stretch out your hand against him!” So Satan went out from the presence of the Lord. Job 1:9-12.
+
+
+
+On seeing the statue of Mother Mary in my home the HVAC contractor struck up a conversation with me about religion, he stopped going to church after he lost his wife to cancer. His wife was a devout catholic and did nothing wrong her whole life, he asked “why would God want to give such a good person cancer?”. Well, we may never know the reason why we are given so many sufferings in life, but we need to rely on the fact that God is in control and we face sufferings for our spiritual growth. Most people would curse God and stop praying if they lost their job, property and kids. But this caused Job to worship God.
+
+
+
+20 Then Job arose, tore his robe, shaved his head, and fell on the ground and worshiped. 21 He said, “Naked I came from my mother’s womb, and naked shall I return there; the Lord gave, and the Lord has taken away; blessed be the name of the Lord.”Job 1:20-21
+
+We need to learn an attitude toward losing something. Job said the Lord gave the Lord took it away. Let us learn to be thankful in every situation. Even if there are multiple things going wrong in our lives we should continue to entrust ourselves to the Lord. Just continue to pray and know that God is good, even if we have many misfortunes in life. For the Lord will restore everything in our lives and even multiply our blessings if we trust Him. This song drives the point home.
+
+May the Holy Spirit lead us. 🙏
