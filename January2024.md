@@ -27,6 +27,9 @@
     + [Day-5 Anonymous](#day-5-anonymous)
   * [January 06,2024](#january-062024)
     + [Day6: Our struggle with faith - Michael Eltham](#day6-our-struggle-with-faith---michael-eltham)
+  * [January 07,2024](#january-072024)
+    + [Day7: *What’s the difference between a contract and a covenant?* - Michael Eltham](#day7-whats-the-difference-between-a-contract-and-a-covenant---michael-eltham)
+    + [Patriarchs](#patriarchs)
 
 <!-- tocstop -->
 
@@ -400,3 +403,59 @@ We need to learn an attitude toward losing something. Job said the Lord gave the
 May the Holy Spirit lead us. 🙏
 
 [![Matt Redman - Blessed Be Your Name (Lyrics and Chords)](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/mrblessedbeyourname.jpg)](https://www.youtu.be/tTpTQ4kBLxA "Matt Redman - Blessed Be Your Name (Lyrics and Chords)")
+
+## January 07,2024 ##
+
+[![God's Covenant with Abram](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day007.jpg)](https://youtu.be/up30wE2u-AI "God's Covenant with Abram")
+
+### Day7: *What’s the difference between a contract and a covenant?* - Michael Eltham ###
+
+A contract is an agreement for the exchange of goods and services however a covenant is the exchange of person itself - I belong to you and you belong to me. That is why a marriage is not a contract but a covenant, not the exchange of goods but the giving of oneself to the other.
+
+The word of the Lord came to Abram, that he will be receive a great reward. He was promised children as great as the stars in the sky and the sand on the seashore. Abram had faith and knew that even though he was getting old and had no children, God would provide. But sometimes Abram had questions.
+
+But Abram said, “Lord GOD, what can you give me, if I die childless and have only a servant of my household, Eliezer of Damascus?”
+
+3Abram continued, “Look, you have given me no offspring, so a servant of my household will be my heir.” Gen 15:2,3
+
+The Lord answered Abram with a covenant promise.
+
+He answered him: Bring me a three-year-old heifer, a three-year-old female goat, a three-year-old ram, a turtledove, and a young pigeon.
+
+10He brought him all these, split them in two, and placed each half opposite the other; but the birds he did not cut up.
+
+12As the sun was about to set, a deep sleep fell upon Abram, and a great, dark dread descended upon him.
+
+13 Then the LORD said to Abram: Know for certain that your descendants will reside as aliens in a land not their own, where they shall be enslaved and oppressed for four hundred years.
+
+14But I will bring judgment on the nation they must serve, and after this they will go out with great wealth.
+
+15You, however, will go to your ancestors in peace; you will be buried at a ripe old age.
+
+16In the fourth generation  your descendants will return here, for the wickedness of the Amorites is not yet complete.
+
+17When the sun had set and it was dark, there appeared a smoking fire pot and a flaming torch, which passed between those pieces.
+
+18 On that day the LORD made a covenant with Abram, saying: To your descendants I give this land, from the Wadi of Egypt to the Great River, the Euphrates,
+
+19 the land of the Kenites, the Kenizzites, the Kadmonites,
+
+20the Hittites, the Perizzites, the Rephaim,
+
+21the Amorites, the Canaanites, the Girgashites, and the Jebusites. Gen 15:10-21
+
+Just trying to visualize the scene can uplift our spirits. Although it may seem strange how God asked Abram to bring the three-year-old heifer, a three-year-old female goat, a three-year-old ram, a turtledove, and a young pigeon there has to be a deeper meaning to it related to the prescribed sacrifices. The beauty of God speaking visually was incredible how the sunset caused a smoking pot and flaming torch to pass through the two pieces. Following this, the Lord made a covenant with Abram and gave him a timeline of events of his life and his descendants.
+
+We may have our own questions and doubts about our life and we should. We should battle with our questions and seek the Lord for answers. Questions and doubts may cause us to be anxious and worried. It is okay to have questions and concerns but we should not despair.
+
+We should remember God’s promises to us and not be afraid or anxious about anything. God’s promise to never destroy mankind again with a flood, His promise to never leave us or abandon us, His promise to be with us always till the end of days, His promise that we will never be in want, His promise of protecting, His promise to anoint us head with oil, His promise for a Savior, His promise that he will prepare a place for us in his Father’s House, His promise to send us the Holy Spirit - our helper, our advocate and counselor, the List goes on and on. Let us not fear - but trust in Our faithful God.
+
+Let us remember that God has made a covenant with us to save us, so have no fear.
+
+May the Holy Spirit lead us. 🙏
+
+### Patriarchs ###
+
+This is the introduction to the patriarchs video, we are in the patriarchs stage from yesterday. It’s a bonus listen.
+
+[![Introduction to the Patriarchs (with Jeff Cavins)](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/patriarchs.jpg)](https://youtu.be/1D3K9pOQxLU "Introduction to the Patriarchs (with Jeff Cavins)")
