@@ -27,9 +27,12 @@
     + [Day-5 Anonymous](#day-5-anonymous)
   * [January 06,2024](#january-062024)
     + [Day6: Our struggle with faith - Michael Eltham](#day6-our-struggle-with-faith---michael-eltham)
+    + [Matt Redman - Music Video](#matt-redman---music-video)
+    + [Day 6 - Joice Pereira](#day-6---joice-pereira)
   * [January 07,2024](#january-072024)
     + [Day7: *What’s the difference between a contract and a covenant?* - Michael Eltham](#day7-whats-the-difference-between-a-contract-and-a-covenant---michael-eltham)
     + [Patriarchs](#patriarchs)
+  * [January 08,2024](#january-082024)
 
 <!-- tocstop -->
 
@@ -402,7 +405,19 @@ We need to learn an attitude toward losing something. Job said the Lord gave the
 
 May the Holy Spirit lead us. 🙏
 
+### Matt Redman - Music Video ###
+
 [![Matt Redman - Blessed Be Your Name (Lyrics and Chords)](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/mrblessedbeyourname.jpg)](https://www.youtu.be/tTpTQ4kBLxA "Matt Redman - Blessed Be Your Name (Lyrics and Chords)")
+
+### Day 6 - Joice Pereira ###
+
+I will bless you and make your name great. So that you will be a blessing. I will bless those who bless you. 
+
+Abraham had a great gain of faith through him God is going to bless the world.
+
+Job is blameless and upright man who fears God and turns away from evil. In all his suffering Job did not sin or charge God with wrongdoing. 
+
+Proverb: The fear of the Lord  is the beginning of the knowledge.
 
 ## January 07,2024 ##
 
@@ -459,3 +474,7 @@ May the Holy Spirit lead us. 🙏
 This is the introduction to the patriarchs video, we are in the patriarchs stage from yesterday. It’s a bonus listen.
 
 [![Introduction to the Patriarchs (with Jeff Cavins)](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/patriarchs.jpg)](https://youtu.be/1D3K9pOQxLU "Introduction to the Patriarchs (with Jeff Cavins)")
+
+## January 08,2024 ##
+
+[![The Surrender of Abraham](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day008.jpg)](https://youtu.be/twgZUO-kyR0 "The Surrender of Abraham")
