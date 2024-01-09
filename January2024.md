@@ -33,6 +33,9 @@
     + [Day7: *What’s the difference between a contract and a covenant?* - Michael Eltham](#day7-whats-the-difference-between-a-contract-and-a-covenant---michael-eltham)
     + [Patriarchs](#patriarchs)
   * [January 08,2024](#january-082024)
+    + [Day8: *Taking things into our own hands* - Michael Eltham](#day8-taking-things-into-our-own-hands---michael-eltham)
+    + [Day 8 By Cynthia Dsilva](#day-8-by-cynthia-dsilva)
+  * [January 09,2024](#january-092024)
 
 <!-- tocstop -->
 
@@ -478,3 +481,51 @@ This is the introduction to the patriarchs video, we are in the patriarchs stage
 ## January 08,2024 ##
 
 [![The Surrender of Abraham](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day008.jpg)](https://youtu.be/twgZUO-kyR0 "The Surrender of Abraham")
+
+### Day8: *Taking things into our own hands* - Michael Eltham ###
+
+Patience, Perseverance, Faith, Trust, Hope are a few words the sprung up when I heard the word spoken to us today.
+
+We know that God made a covenant with Abram, that his descendants would be as many as the stars in the sky and they would conquer the lands for many generations. But both Abram and Sarai are getting older and there seem to be no signs of children.
+
+Thus, after Abram had lived ten years in the land of Canaan, his wife Sarai took her maid, Hagar the Egyptian, and gave her to her husband Abram to be his wife.
+
+4He had intercourse with her, and she became pregnant. As soon as Hagar knew she was pregnant, her mistress lost stature in her eyes.
+
+5 So Sarai said to Abram: “This outrage against me is your fault. I myself gave my maid to your embrace; but ever since she knew she was pregnant, I have lost stature in her eyes. May the LORD decide between you and me!” Gen 16:3-5
+
+Sarai gets impatient and takes things into her own hands - makes Abram follow her plan and gets mad at him all within few verses. She suggests the Abram would have children with Hagar the maid. Like a good husband 😅 Abram listens to his wife. We see how things go south very fast.
+
+The lesson here is nothing good comes out of taking things into our own hands - we need to wait on the Lord, no matter how long it takes. Like in the story of Job where he is surrounded by friends who keep accusing him. Job just wants a listening ear, a shoulder to cry on. Let us be slow to speak and quick to listen
+
+Know this, my beloved brothers: let every person be quick to hear, slow to speak, slow to anger; for the anger of man does not produce the righteousness of God. James 1:19-20
+
+May be we need to become better listeners as many people just want to be heard in this world today.
+
+May the Holy Spirit lead us. 🙏
+
+### Day 8 By Cynthia Dsilva ###
+
+Genesis 17:12
+*Why did babies have to be circumcised on the 8th day?*
+God created the world in 6 days and consecrated it on the 7th day, but the first creation could not achieve its goal because sin entered it and the first Covenant was not renewable. 
+
+Therefore, circumcision was a foreshadow of the new creation which started on the 8th day of the first creation (Easter Sunday) when Jesus discarded His mortal flesh (the flesh of the first Adam) and received His own immortal flesh.
+
+Circumcision was also a fore shadow of baptism which makes us new creations because we discard our old sinful selves and enter the new Covenant which started on the 8th day of the first creation.  
+
+In the old Covenant, a circumcised man had an obligation to ensure that all his male descendants were circumcised. 
+
+Since baptism replaced circumcision, in the new Covenant, baptized parents have an obligation to ensure that all their descendants are baptized. 
+
+When a child is baptized, he/she receives the family name (surname) of the earthly father and thus becomes a member if his family.  And simultaneously, the child also becomes a member if our heavenly Father’s family.
+
+Genesis 17:15-16
+After the fall of the first king (Adam) and queen (Eve) God was waiting to re-establish His Kingdom on earth.  But God was not just interested in working with a man alone.  When God stepped up to re-establish His Covenant, He gave us a hint of His plan for the monarchy of His Kingdom by moving from Adam to Abraham, and from Eve to Sarah, because Sarah’s womb would bear the earthly son of the promise who would be the ancestor of kings and queens.
+The future Davidic kingdom was, therefore, to be a restoration of what God had established in the creation kingdom.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## January 09,2024 ##
+
+[![Sodom and Gomorrah](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day009.jpg)](https://youtu.be/0P7pyHLz0CY "Sodom and Gomorrah")
