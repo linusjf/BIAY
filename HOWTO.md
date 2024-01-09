@@ -1,5 +1,12 @@
 # HOWTO #
 
+## Prerequisites ##
+
++ [convert](https://imagemagick.org/index.php)
++ [gm](http://www.graphicsmagick.org/)
++ [markdown-toc](https://github.com/jonschlinkert/markdown-toc)
++ [stitchmd](https://github.com/abhinav/stitchmd)
+
 ## Add today's BIAY video ##
 
 Execute the script `addvideo` with the following parameters:
