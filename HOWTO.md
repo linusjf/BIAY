@@ -16,8 +16,8 @@ Example:
 
 Results:
 
-Video id is appended to the videos.txt file in the root directory
-Day010.md is generated in the January subdirectory
-Day010.jpg image is generated in the January/jpgs directory
-Day010.md file name is appended to the January/compact.txt file
-January20XX.md file is updated (in the root directory) with the Day010.md contents
+1) Video id is appended to the videos.txt file in the root directory
+2) Day010.md is generated in the January subdirectory
+3) Day010.jpg image is generated in the January/jpgs directory
+4) Day010.md file name is appended to the January/compact.txt file
+5) January20XX.md file is updated (in the root directory) with the Day010.md contents
