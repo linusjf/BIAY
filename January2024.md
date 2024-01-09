@@ -31,7 +31,7 @@
     + [Day 6 - Joice Pereira](#day-6---joice-pereira)
   * [January 07,2024](#january-072024)
     + [Day7: *What’s the difference between a contract and a covenant?* - Michael Eltham](#day7-whats-the-difference-between-a-contract-and-a-covenant---michael-eltham)
-    + [Patriarchs](#patriarchs)
+    + [Video: Intro to the Patriarchs](#video-intro-to-the-patriarchs)
   * [January 08,2024](#january-082024)
     + [Day8: *Taking things into our own hands* - Michael Eltham](#day8-taking-things-into-our-own-hands---michael-eltham)
     + [Day 8 By Cynthia Dsilva](#day-8-by-cynthia-dsilva)
@@ -472,7 +472,7 @@ Let us remember that God has made a covenant with us to save us, so have no fear
 
 May the Holy Spirit lead us. 🙏
 
-### Patriarchs ###
+### Video: Intro to the Patriarchs ###
 
 This is the introduction to the patriarchs video, we are in the patriarchs stage from yesterday. It’s a bonus listen.
 
