@@ -36,6 +36,7 @@
     + [Day8: *Taking things into our own hands* - Michael Eltham](#day8-taking-things-into-our-own-hands---michael-eltham)
     + [Day 8 By Cynthia Dsilva](#day-8-by-cynthia-dsilva)
   * [January 09,2024](#january-092024)
+    + [Day9: *Abraham is a good model for intercessory prayer.* - Michael Eltham](#day9-abraham-is-a-good-model-for-intercessory-prayer---michael-eltham)
 
 <!-- tocstop -->
 
@@ -529,3 +530,47 @@ The future Davidic kingdom was, therefore, to be a restoration of what God had e
 ## January 09,2024 ##
 
 [![Sodom and Gomorrah](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day009.jpg)](https://youtu.be/0P7pyHLz0CY "Sodom and Gomorrah")
+
+### Day9: *Abraham is a good model for intercessory prayer.* - Michael Eltham ###
+
+The cities of Sodom and Gomorrah were committing grave sins and they were going to be destroyed. Abraham starts pleading with the Lord to save those people.
+
+Then Abraham drew near and said: “Will you really sweep away the righteous with the wicked?
+
+24Suppose there were fifty righteous people in the city; would you really sweep away and not spare the place for the sake of the fifty righteous people within it?
+
+25Far be it from you to do such a thing, to kill the righteous with the wicked, so that the righteous and the wicked are treated alike! Far be it from you! Should not the judge of all the world do what is just?”
+
+26The LORD replied: If I find fifty righteous people in the city of Sodom, I will spare the whole place for their sake.
+
+27Abraham spoke up again: “See how I am presuming to speak to my Lord, though I am only dust and ashes!
+
+28What if there are five less than fifty righteous people? Will you destroy the whole city because of those five?” I will not destroy it, he answered, if I find forty-five there.
+
+29But Abraham persisted, saying, “What if only forty are found there?” He replied: I will refrain from doing it for the sake of the forty.
+
+30Then he said, “Do not let my Lord be angry if I go on. What if only thirty are found there?” He replied: I will refrain from doing it if I can find thirty there.
+
+31Abraham went on, “Since I have thus presumed to speak to my Lord, what if there are no more than twenty?” I will not destroy it, he answered, for the sake of the twenty.
+
+32But he persisted: “Please, do not let my Lord be angry if I speak up this last time. What if ten are found there?” For the sake of the ten, he replied, I will not destroy it.
+
+33The LORD departed as soon as he had finished speaking with Abraham, and Abraham returned home. Gen 18:23-33
+
+Just reading the episode is a good lesson on Intercessory prayer. We see how Abraham pleads on behalf of Sodom and Gomorrah, he calls on the mercy of God. He knows that the people were sinful but he also knew that God’s Mercy is far greater than their sin. Abraham was able to eventually save Lot and his daughters. Remember God hears the prayer of a righteous man. We need to be Intercessors and prayer worriers - praying for our world. Let us not give up but persistently pray for God to hear our prayers. Even if we have to pray for people who do not deserve God’s love, we should pray with all our zeal and trust in God’s mercy and grace.
+
+Lot’s daughters get desperate and commit a grave sin.
+
+The firstborn said to the younger: “Our father is getting old, and there is not a man in the land to have intercourse with us as is the custom everywhere.
+
+Come, let us ply our father with wine and then lie with him, that we may ensure posterity by our father.” Gen 19:31,32
+
+This is how they both conceived children from their own father.
+
+Lessons to be learned from Lot’s daughters - they thought that there were no more men in the world and they had to have children from their own father- the Bible does not call it out as a sin but “shows it a sin” and a big mistake, as the descendants of the two sons born became the Moabites and the Ammonites. The two big enemies of the Israelites.
+
+We should learn a life lesson from this, never get over anxious and think that our world is upset down, there is no way out, no solution etc - we tend to make big mistakes when we are guided by fear and anxiety. Let us intercede instead and pray for the situation, knowing that God will make a way. 
+
+May we trust in the Lord always.
+
+May the Holy Spirit lead us. 🙏
