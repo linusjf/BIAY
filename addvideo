@@ -3,7 +3,7 @@ require() {
   hash "$@" || exit
 }
 usage() {
-  echo "$0 vid doy"
+  echo "$0 vid doy caption"
   echo "vid - video id"
   echo "doy - day of year"
   echo "caption - video title"
