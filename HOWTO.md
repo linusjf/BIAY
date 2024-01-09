@@ -4,9 +4,9 @@
 
 Execute the script `addvideo` with the following parameters:
 
-video id - the id of the youtube video
-day of year - 1 - 365/366
-caption or title (in double quotes)
++ video id - the id of the youtube video
++ day of year - 1 - 365/366
++ caption or title (in double quotes)
 
 Example:
 
