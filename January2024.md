@@ -37,6 +37,9 @@
     + [Day 8 By Cynthia Dsilva](#day-8-by-cynthia-dsilva)
   * [January 09,2024](#january-092024)
     + [Day9: *Abraham is a good model for intercessory prayer.* - Michael Eltham](#day9-abraham-is-a-good-model-for-intercessory-prayer---michael-eltham)
+    + [Day 9 - Jenita](#day-9---jenita)
+  * [January 10,2024](#january-102024)
+    + [Day10: *God will protect us even if when we mess up.* - Michael Eltham](#day10-god-will-protect-us-even-if-when-we-mess-up---michael-eltham)
 
 <!-- tocstop -->
 
@@ -572,5 +575,55 @@ Lessons to be learned from Lot’s daughters - they thought that there were no m
 We should learn a life lesson from this, never get over anxious and think that our world is upset down, there is no way out, no solution etc - we tend to make big mistakes when we are guided by fear and anxiety. Let us intercede instead and pray for the situation, knowing that God will make a way. 
 
 May we trust in the Lord always.
+
+May the Holy Spirit lead us. 🙏
+
+### Day 9 - Jenita ###
+
+Not every problem that we go through has an answer at the end.. We may wonder why we faced those problems even when we have been good and righteous like Job. 
+
+But even when such doubts arise it is important to know that the journey is important.. And with whom that journey is made is a little more important. 
+
+God is faithful, he will spare the wicked for the sake of the innocent. 
+
+What a merciful God we serve 🙏🏼
+
+## January 10,2024 ##
+
+[![Hagar and Ishmael](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day010.jpg)](https://youtu.be/5I2BbalTOPo "Hagar and Ishmael")
+
+### Day10: *God will protect us even if when we mess up.* - Michael Eltham ###
+
+We usually idealize people in the Bible and assume that they always had faith and never doubted. Our father in Faith Abraham himself failed. He lies about Sarah being his sister for fear of them taking her away. Abraham acted out of fear instead of faith.
+
+From there Abraham journeyed on to the region of the Negeb, where he settled between Kadesh and Shur. While he resided in Gerar as an alien,
+
+2Abraham said of his wife Sarah, “She is my sister.” So Abimelech, king of Gerar, sent and took Sarah.
+
+3But God came to Abimelech in a dream one night and said to him: You are about to die because of the woman you have taken, for she has a husband.
+
+4Abimelech, who had not approached her, said: “O Lord, would you kill an innocent man?
+
+5Was he not the one who told me, ‘She is my sister’? She herself also stated, ‘He is my brother.’ I acted with pure heart and with clean hands.”
+
+6 God answered him in the dream: Yes, I know you did it with a pure heart. In fact, it was I who kept you from sinning against me; that is why I did not let you touch her.
+
+7So now, return the man’s wife so that he may intercede for you, since he is a prophet,  that you may live. If you do not return her, you can be sure that you and all who are yours will die.
+
+8Early the next morning Abimelech called all his servants and informed them of everything that had happened, and the men were filled with fear. Gen 18:1-8
+
+God intervened and saved Abraham and Sarah, they were blessed with land and money.
+
+Sometimes we may get afraid and lie or commit sin out of fear.
+
+We should not give up easily because God will save us.
+
+Even though we are weak He is strong, even though we fail He is faithful to uphold us.
+
+St Paul was troubled by a thorn in his flesh and asked God to take it away. However, the Lord answered - Strength is made perfect in weakness, My grace is sufficient for you. Do not be disheartened or discouraged the Lord is on our side.
+
+If He is for us what can be against us.
+
+Jesus came into the world not to condemn us but to save us. Let us be strengthened and be reassured that the Lord will pick us up when we fall.
 
 May the Holy Spirit lead us. 🙏

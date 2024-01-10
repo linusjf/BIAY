@@ -18,7 +18,7 @@ Execute the script `addvideo` with the following parameters:
 Example:
 
 ```
-./addvideo tyuifg-fg 10 "Bible in a year"
+./addvideo 5I2BbalTOPo 10 "Hagar and Ishmael"
 ```
 
 Results:
