@@ -81,6 +81,10 @@ Include or exclude any files you need or don't need.
 
 3) Execute the `stitch` script.
 
+```
+./stitch
+```
+
 Results:
 
 A huge README is generated with all the contents of the listed markdown files in stitch.md.
