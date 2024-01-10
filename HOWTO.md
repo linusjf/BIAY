@@ -52,3 +52,35 @@ Results:
 
 You can add sharing to other days as well in a similar fashion.
 Don't forget to execute `genmonth` with the appropriate month index for that day.
+
+## Merge month markdown files into one large README
+
+1) Edit the stitch.md file provided to include the markdown files you wish to merge.
+
+2) The format of the file is as follows:
+
+```
+# README
+
+- [BIAY](redme.md)
+- [January 2024](January2024.md)
+- [February 2024](February2024.md)
+- [March 2024](March2024.md)
+- [April 2024](April2024.md)
+- [May 2024](May2024.md)
+- [June 2024](June2024.md)
+- [July 2024](July2024.md)
+- [August 2024](August2024.md)
+- [September 2024](September2024.md)
+- [October 2024](October2024.md)
+- [November 2024](November2024.md)
+- [December 2024](December2024.md)
+```
+
+Include or exclude any files you need or don't need.
+
+3) Execute the `stitch` script.
+
+Results:
+
+A huge README is generated with all the contents of the listed markdown files in stitch.md.
