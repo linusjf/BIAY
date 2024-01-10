@@ -3,11 +3,13 @@
 ## Prerequisites ##
 
 + [convert](https://imagemagick.org/index.php)
++ [curl](https://curl.se/)
 + [gm](http://www.graphicsmagick.org/)
++ [m4](https://www.gnu.org/software/m4/)
 + [markdown-toc](https://github.com/jonschlinkert/markdown-toc)
 + [stitchmd](https://github.com/abhinav/stitchmd)
 
-## Add today's BIAY video ##
+## Add today's video ##
 
 Execute the script `addvideo` with the following parameters:
 
@@ -23,8 +25,30 @@ Example:
 
 Results:
 
-1) Video id is appended to the videos.txt file in the root directory
-2) Day010.md is generated in the January subdirectory
-3) Day010.jpg image is generated in the January/jpgs directory
-4) Day010.md file name is appended to the January/compact.txt file
-5) January20XX.md file is updated (in the root directory) with the Day010.md contents
+1) Video id is appended to the videos.txt file in the root directory.
+2) Day010.md is generated in the January subdirectory.
+3) Day010.jpg image is generated in the January/jpgs directory.
+4) Day010.md file name is appended to the January/compact.txt file.
+5) January20XX.md file is updated (in the root directory) with the Day010.md contents.
+
+## Add today's sharing
+
+1) First, add today's video.
+2) Edit the generated Dayxxx.md file for today.
+3) Paste the sharing text into the file adding appropriate markdown headers as needed.
+4) Save the file.
+5) Execute script `genmonth` with the following parameters:
++ month index - 1 - 12
++ four digit year - 20XX
+
+    Example:
+    ```
+    ./genmonth 01 2024
+    ```
+
+    Results:
+
+    - The January2024.md file is updated with the sharing text added to the Day010.md file.
+
+You can add sharing to other days as well in a similar fashion.
+Don't forget to execute `genmonth` with the appropriate month index for that day.
