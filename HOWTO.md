@@ -31,7 +31,7 @@ Results:
 4) Day010.md file name is appended to the January/compact.txt file.
 5) January20XX.md file is updated (in the root directory) with the Day010.md contents.
 
-## Add today's sharing
+## Add today's sharing ##
 
 1) First, add today's video.
 2) Edit the generated Dayxxx.md file for today.
@@ -53,7 +53,7 @@ Results:
 You can add sharing to other days as well in a similar fashion.
 Don't forget to execute `genmonth` with the appropriate month index for that day.
 
-## Merge month markdown files into one large README
+## Merge month markdown files into one large README. ##
 
 1) Edit the stitch.md file provided to include the markdown files you wish to merge.
 
