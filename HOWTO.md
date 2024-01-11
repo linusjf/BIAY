@@ -5,10 +5,11 @@
 * [Prerequisites](#prerequisites)
 * [Add today\'s Youtube video](#add-todays-youtube-video)
 * [Add today\'s sharing](#add-todays-sharing)
-* [Merge monthly markdown files into one large README](#merge-monthly-markdown-files-into-one-large-readme)
 * [Generate markdown for Youtube video](#generate-markdown-for-youtube-video)
+* [Merge monthly markdown files into one large README](#merge-monthly-markdown-files-into-one-large-readme)
 
 <!-- vim-markdown-toc -->
+
 ## Prerequisites ##
 
 + [convert](https://imagemagick.org/index.php)
@@ -28,7 +29,7 @@ Execute the script `addvideo` with the following parameters:
 
 Example:
 
-```
+```bash
 ./addvideo 5I2BbalTOPo 10 "Hagar and Ishmael"
 ```
 
@@ -51,7 +52,7 @@ Results:
 + four digit year - 20XX
 
     Example:
-    ```
+    ```bash
     ./genmonth 01 2024
     ```
 
@@ -62,42 +63,6 @@ Results:
 You can add sharing to other days as well in a similar fashion.
 Don't forget to execute `genmonth` with the appropriate month index for that day.
 
-## Merge monthly markdown files into one large README ##
-
-1) Edit the stitch.md file provided to include the markdown files you wish to merge.
-
-2) The format of the file is as follows:
-
-```
-# README
-
-- [BIAY](redme.md)
-- [January 2024](January2024.md)
-- [February 2024](February2024.md)
-- [March 2024](March2024.md)
-- [April 2024](April2024.md)
-- [May 2024](May2024.md)
-- [June 2024](June2024.md)
-- [July 2024](July2024.md)
-- [August 2024](August2024.md)
-- [September 2024](September2024.md)
-- [October 2024](October2024.md)
-- [November 2024](November2024.md)
-- [December 2024](December2024.md)
-```
-
-Include or exclude any files you need or don't need.
-
-3) Execute the `stitch` script.
-
-```
-./stitch
-```
-
-Results:
-
-A huge README is generated with all the contents of the listed markdown files in stitch.md.
-
 ## Generate markdown for Youtube video ##
 
 Execute the `genvidmd` script with the following parameters:
@@ -107,10 +72,44 @@ Execute the `genvidmd` script with the following parameters:
 - pathtoimg - relative path to jpeg image file to be generated
 
 Example:
+```bash
+./genvidmd g7o7WjQc3as "Bringing the Bible back to Catholics" January/jpgs/bringingback.jpg
+```
 
-```./genvidmd g7o7WjQc3as "Bringing the Bible back to Catholics" January/jpgs/bringingback.jpg```
+Results:
+1) The markdown is generated on the command line. This can be used to insert video markdown in your markdown files.
+2) The overlaid image file for the video is generated as January/jpgs/bringingback.jpg.
+
+
+## Merge monthly markdown files into one large README ##
+
+1) Edit the stitch.md file provided to include the markdown files you wish to merge.
+
+2) The file format is as follows:
+    ```markdown
+    # README
+    - [BIAY](redme.md)
+    - [January 2024](January2024.md)
+    - [February 2024](February2024.md)
+    - [March 2024](March2024.md)
+    - [April 2024](April2024.md)
+    - [May 2024](May2024.md)
+    - [June 2024](June2024.md)
+    - [July 2024](July2024.md)
+    - [August 2024](August2024.md)
+    - [September 2024](September2024.md)
+    - [October 2024](October2024.md)
+    - [November 2024](November2024.md)
+    - [December 2024](December2024.md)
+    ```
+    Include or exclude any files you need or don't need.
+
+3) Execute the `stitch` script.
+
+```bash
+./stitch
+```
 
 Results:
 
-1) The markdown is generated on the command line. This can be used to insert video markdown in your markdown files.
-2) The overlayed image file for the video is generated as January/jpgs/bringingback.jpg
+A huge README is generated with all the contents of the listed markdown files in stitch.md.
