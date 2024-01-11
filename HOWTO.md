@@ -3,7 +3,7 @@
 * [Prerequisites](#prerequisites)
 * [Add today's Youtube video](#add-today's-youtube-video)
 * [Add today's sharing](#add-today's-sharing)
-* [Merge monthly markdown files into one large README.](#merge-monthly-markdown-files-into-one-large-readme.)
+* [Merge monthly markdown files into one large README](#merge-monthly-markdown-files-into-one-large-readme)
 * [Generate markdown for Youtube video](#generate-markdown-for-youtube-video)
 
 ## Prerequisites
@@ -59,7 +59,7 @@ Results:
 You can add sharing to other days as well in a similar fashion.
 Don't forget to execute `genmonth` with the appropriate month index for that day.
 
-## Merge monthly markdown files into one large README.
+## Merge monthly markdown files into one large README
 
 1) Edit the stitch.md file provided to include the markdown files you wish to merge.
 
