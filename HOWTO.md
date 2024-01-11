@@ -1,12 +1,6 @@
 # HOWTO
 
-* [Prerequisites](#prerequisites)
-* [Add today\'s Youtube video](#add-today\'s-youtube-video)
-* [Add today\'s sharing](#add-today\'s-sharing)
-* [Merge monthly markdown files into one large README](#merge-monthly-markdown-files-into-one-large-readme)
-* [Generate markdown for Youtube video](#generate-markdown-for-youtube-video)
-
-## Prerequisites
+## Prerequisites ##
 
 + [convert](https://imagemagick.org/index.php)
 + [curl](https://curl.se/)
@@ -15,7 +9,7 @@
 + [markdown-toc](https://github.com/jonschlinkert/markdown-toc)
 + [stitchmd](https://github.com/abhinav/stitchmd)
 
-## Add today\'s Youtube video
+## Add today\'s Youtube video ##
 
 Execute the script `addvideo` with the following parameters:
 
@@ -37,7 +31,7 @@ Results:
 4) Day010.md file name is appended to the January/compact.txt file.
 5) January20XX.md file is updated (in the root directory) with the Day010.md contents.
 
-## Add today\'s sharing
+## Add today\'s sharing ##
 
 1) First, add today's video.
 2) Edit the generated Dayxxx.md file for today.
@@ -59,7 +53,7 @@ Results:
 You can add sharing to other days as well in a similar fashion.
 Don't forget to execute `genmonth` with the appropriate month index for that day.
 
-## Merge monthly markdown files into one large README
+## Merge monthly markdown files into one large README ##
 
 1) Edit the stitch.md file provided to include the markdown files you wish to merge.
 
@@ -95,7 +89,7 @@ Results:
 
 A huge README is generated with all the contents of the listed markdown files in stitch.md.
 
-## Generate markdown for Youtube video
+## Generate markdown for Youtube video ##
 
 Execute the `genvidmd` script with the following parameters:
 
