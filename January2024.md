@@ -40,6 +40,9 @@
     + [Day 9 - Jenita](#day-9---jenita)
   * [January 10,2024](#january-102024)
     + [Day10: *God will protect us even if when we mess up.* - Michael Eltham](#day10-god-will-protect-us-even-if-when-we-mess-up---michael-eltham)
+    + [Day 10: Reflection (Chapter 20) By Joice Pereira](#day-10-reflection--chapter-20-by-joice-pereira)
+  * [January 11,2024](#january-112024)
+    + [Day11: *God is always on time. * - Michael Eltham](#day11-god-is-always-on-time----michael-eltham)
 
 <!-- tocstop -->
 
@@ -625,5 +628,71 @@ St Paul was troubled by a thorn in his flesh and asked God to take it away. Howe
 If He is for us what can be against us.
 
 Jesus came into the world not to condemn us but to save us. Let us be strengthened and be reassured that the Lord will pick us up when we fall.
+
+May the Holy Spirit lead us. 🙏
+
+### Day 10: Reflection  (Chapter 20) By Joice Pereira ###
+
+11“Abraham replied, “I said to myself, ‘There is surely no fear of God in this place, and they will kill me because of my wife.’
+
+Abraham and Sarah settled in  Gerar on the way to Negeb while, there, Abraham pretended that Sarah was his sister, and King Abimelech of Gerar took Sarah for himself. But God wants Abimelech in a dream that he will die if he approaches Sarah, he must return Sarah to Abraham, who is a prophet and will pray for him. Abimelech did fear God. All it took was a dream and he was immediately to do what was right. 
+
+The Bible reveals that Job was a man who “feared God “. Job lost his children, wealth, and health but in it all, he never spoke disrespectfully about God. We read that in all this, Job did not sin nor charge God with wrong.
+
+Fear of the Lord will keep us from sin. All kinds of good will flow into the life of the person who fears the Lord.
+
+## January 11,2024 ##
+
+[![The Sacrifice of Isaac](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day011.jpg)](https://youtu.be/51FQLxXX5Rw "The Sacrifice of Isaac")
+
+### Day11: *God is always on time. * - Michael Eltham ###
+
+Faith on display, Abraham is called the Father of Faith because he trusted the Lord, to the extent of losing the thing Abraham loved the most, his son. Isaac was the promise of God and the only hope for Abraham to have descendants as many as the stars in the sky and sand on the seashore.
+
+Some time afterward, God put Abraham to the test and said to him: Abraham! “Here I am!” he replied.
+
+2Then God said: Take your son Isaac, your only one, whom you love, and go to the land of Moriah. There offer him up as a burnt offering on one of the heights that I will point out to you.
+
+3Early the next morning Abraham saddled his donkey, took with him two of his servants and his son Isaac, and after cutting the wood for the burnt offering, set out for the place of which God had told him.
+
+Gen 22:1-3
+
+If I was Abraham I would not have not got any sleep that night knowing that I would have to sacrifice my son the next day.
+
+So Abraham took the wood for the burnt offering and laid it on his son Isaac, while he himself carried the fire and the knife. As the two walked on together,
+
+7Isaac spoke to his father Abraham. “Father!” he said. “Here I am,” he replied. Isaac continued, “Here are the fire and the wood, but where is the sheep for the burnt offering?”
+
+8“My son,” Abraham answered, “God will provide the sheep for the burnt offering.” Then the two walked on together.Gen 22: 6-8
+
+Isaac carrying the wood up the mount is a prefiguration of Jesus carrying the wood of the cross up Calvary. Isaac’s question “Here are the fire and the wood, but where is the sheep for the burnt offering?” would have broken Abraham’s heart. I admire Abraham’s faith here when he said that God will provide.
+
+When they came to the place of which God had told him, Abraham built an altar there and arranged the wood on it. Next he bound his son Isaac, and put him on top of the wood on the altar.
+
+10Then Abraham reached out and took the knife to slaughter his son. Gen 22:9-10
+
+Even though Isaac was in his 30s and was able to overpower his father and run away. He decided to trust his father. Just how Jesus prayed for the cup of suffering to be taken away, but not His will but the will of the Father be done. We need to cultivate this bond of trust with the Father. We need to know that God has plans for us not to harm us, but for our welfare. Even though we may not see it, we need to trust him.
+
+But the angel of the LORD called to him from heaven, “Abraham, Abraham!” “Here I am,” he answered.
+
+12“Do not lay your hand on the boy,” said the angel. “Do not do the least thing to him. For now I know that you fear God, since you did not withhold from me your son, your only one.
+
+Abraham’s faith was tested and he passed. God was only testing Abraham to see if he really loved God. Abba Father would have know how Abraham was feeling for God knows everything the past, present and future. Abba Father’s heart would have broken when Jesus died on the cross for us.
+
+Abraham knew that God who created everything out of nothing can even bring his son back to life, so he was willing to sacrifice Isaac. We all know the story how a ram was found in the bushes and Abraham sacrificed it.
+
+Pondering today’s scripture a question that I asked myself was would I do it - would I be ready to sacrifice my son?? I came up with a big "No".
+
+We should take some time to sit down and see what our attachments are? Pray that we choose God above everything else.
+
+Abraham was a great man - hoping against hope he trusted the Lord and the Lord blessed him with a son who had much faith in his father.
+
+For faith is confidence in what we hope for and assurance about what we do not see(Heb11:1). We need to remember what God said “For my thoughts are not your thoughts,
+
+neither are your ways my ways," (Isaiah 55:8).
+
+Just trust Him and have faith that He is in control of everything, even though the situation seems hopeless. God’s timing is perfect and God will always step in just in time. So do not give up even if everything seems lost, just trust in Him and God will provide.
+
+Lord, I trust in you – I am also Hoping against Hope.
 
 May the Holy Spirit lead us. 🙏
