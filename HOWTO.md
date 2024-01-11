@@ -9,7 +9,7 @@
 + [markdown-toc](https://github.com/jonschlinkert/markdown-toc)
 + [stitchmd](https://github.com/abhinav/stitchmd)
 
-## Add today's video ##
+## Add today's Youtube video ##
 
 Execute the script `addvideo` with the following parameters:
 
