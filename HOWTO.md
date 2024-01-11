@@ -15,7 +15,7 @@
 + [markdown-toc](https://github.com/jonschlinkert/markdown-toc)
 + [stitchmd](https://github.com/abhinav/stitchmd)
 
-## Add today's Youtube video
+## Add today\'s Youtube video
 
 Execute the script `addvideo` with the following parameters:
 
@@ -37,7 +37,7 @@ Results:
 4) Day010.md file name is appended to the January/compact.txt file.
 5) January20XX.md file is updated (in the root directory) with the Day010.md contents.
 
-## Add today's sharing
+## Add today\'s sharing
 
 1) First, add today's video.
 2) Edit the generated Dayxxx.md file for today.
