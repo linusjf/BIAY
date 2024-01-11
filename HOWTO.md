@@ -1,8 +1,8 @@
 # HOWTO
 
 * [Prerequisites](#prerequisites)
-* [Add today's Youtube video](#add-today's-youtube-video)
-* [Add today's sharing](#add-today's-sharing)
+* [Add today\'s Youtube video](#add-today\'s-youtube-video)
+* [Add today\'s sharing](#add-today\'s-sharing)
 * [Merge monthly markdown files into one large README](#merge-monthly-markdown-files-into-one-large-readme)
 * [Generate markdown for Youtube video](#generate-markdown-for-youtube-video)
 
