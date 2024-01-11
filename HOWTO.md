@@ -1,5 +1,11 @@
 # HOWTO #
 
+* [Prerequisites](#prerequisites)
+* [Add today's Youtube video](#add-today's-youtube-video)
+* [Add today's sharing](#add-today's-sharing)
+* [Merge month markdown files into one large README.](#merge-month-markdown-files-into-one-large-readme.)
+* [Generate markdown for Youtube video](#generate-markdown-for-youtube-video)
+
 ## Prerequisites ##
 
 + [convert](https://imagemagick.org/index.php)
