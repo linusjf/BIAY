@@ -1,5 +1,14 @@
 # HOWTO #
 
+<!-- vim-markdown-toc GFM -->
+
+* [Prerequisites](#prerequisites)
+* [Add today\'s Youtube video](#add-todays-youtube-video)
+* [Add today\'s sharing](#add-todays-sharing)
+* [Merge monthly markdown files into one large README](#merge-monthly-markdown-files-into-one-large-readme)
+* [Generate markdown for Youtube video](#generate-markdown-for-youtube-video)
+
+<!-- vim-markdown-toc -->
 ## Prerequisites ##
 
 + [convert](https://imagemagick.org/index.php)
