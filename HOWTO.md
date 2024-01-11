@@ -99,7 +99,7 @@ Execute the `genvidmd` script with the following parameters:
 
 Example:
 
-```./genvidmd g7o7WjQc3as "Bringing the Bible back to Catholics" January/jpgs/bringingback.jpg``
+```./genvidmd g7o7WjQc3as "Bringing the Bible back to Catholics" January/jpgs/bringingback.jpg```
 
 Results:
 
