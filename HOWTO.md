@@ -32,7 +32,12 @@ BIAY January 2024
 The `<!-- toc -->` comment header is mandatory else markdown-toc will not generate the table of contents
 for the monthly markdown (in this case, January2024.md).
 
-You can replace the top-level header with your own if you wish.
+You can replace the top-level markdown header
+```markdown
+# January 2024 #
+BIAY January 2024
+```
+with your own if you wish.
 
 ## Add today\'s Youtube video ##
 
