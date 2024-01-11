@@ -88,3 +88,20 @@ Include or exclude any files you need or don't need.
 Results:
 
 A huge README is generated with all the contents of the listed markdown files in stitch.md.
+
+## Generate markdown for Youtube video
+
+Execute the `genvidmd` script with the following parameters:
+
+- vid - video id
+- caption - video title
+- pathtoimg - relative path to jpeg image file to be generated
+
+Example:
+
+```./genvidmd g7o7WjQc3as "Bringing the Bible back to Catholics" January/jpgs/bringingback.jpg``
+
+Results:
+
+1) The markdown is generated on the command line. This can be used to insert video markdown in your markdown files.
+2) The overlayed image file for the video is generated as January/jpgs/bringingback.jpg
