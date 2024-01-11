@@ -19,6 +19,21 @@
 + [markdown-toc](https://github.com/jonschlinkert/markdown-toc)
 + [stitchmd](https://github.com/abhinav/stitchmd)
 
+Create a directory for each month of the year under the root directory.
+Add a header.md file under each monthly directory with the following content.
+
+Example for January:
+```text
+<!-- toc -->
+# January 2024 #
+BIAY January 2024
+```
+
+The `<!-- toc -->` comment header is mandatory else markdown-toc will not generate the table of contents
+for the monthly markdown (in this case, January2024.md).
+
+You can replace the top-level header with your own if you wish.
+
 ## Add today\'s Youtube video ##
 
 Execute the script `addvideo` with the following parameters:
