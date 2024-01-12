@@ -83,6 +83,14 @@ Results:
 You can add sharing to other days as well in a similar fashion.
 Don't forget to execute `genmonth` with the appropriate month index for that day.
 
+You can obtain the month index by executing the following bash command:
+
+```bash
+date --date="$(date --date='jan 1 + 30 days' '+%B %d,      %Y')" +%m
+```
+The day of year has to be decremented by 1 and substituted in the command.
+The above gives the month index for day 31.
+
 ## Generate markdown for Youtube video ##
 
 Execute the `genvidmd` script with the following parameters:
