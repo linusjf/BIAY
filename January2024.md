@@ -43,6 +43,9 @@
     + [Day 10: Reflection (Chapter 20) By Joice Pereira](#day-10-reflection--chapter-20-by-joice-pereira)
   * [January 11,2024](#january-112024)
     + [Day11: *God is always on time. * - Michael Eltham](#day11-god-is-always-on-time----michael-eltham)
+    + [Day 11 Anonymous](#day-11-anonymous)
+    + [Day 11 Jennie James](#day-11-jennie-james)
+  * [January 12,2024](#january-122024)
 
 <!-- tocstop -->
 
@@ -696,3 +699,33 @@ Just trust Him and have faith that He is in control of everything, even though t
 Lord, I trust in you – I am also Hoping against Hope.
 
 May the Holy Spirit lead us. 🙏
+
+### Day 11 Anonymous ###
+
+Issac is stronger than his father.  He could overpower his father, but submitted to his father.  
+This is unmistakably a preparation for Christ's Sacrifice.
+Profound trust in God.
+Father and son trusting each other.
+God is too good to let the end be simply destruction.
+
+### Day 11 Jennie James ###
+
+Gen:22 The Sacrifice of Isaac
+
+God tests Abraham  by asking him to offer his Isaac, his only son (this Son whom Sarah and Abraham waited for so long to receive)
+
+Abraham obeys God's command and he gets up, takes his son and prepares whatever is necessary for a sacrifice.
+
+22:5 Abraham asks the two men traveling with them to wait
+The verse which truly makes Abraham justified in the eyes of God is "*Stay here with the donkey. The boy and I will go over there to worship and then we will come back to you "*
+
+And in another line 22:8 (When Isaac asks Abraham) "The fire and the wood are here, but where is the Lamb for the sacrifice?" *Abraham replies "God himself will provide the lamb for the sacrifice."
+
+Abraham believed that God will make him a great nation and God's constant assurance that only through Isaac that God's covenant will be established.
+Abraham never doubted God's word (the above highlighted verses is the Faith that Abraham has in God).
+
+Galatians 2:6 St. Paul writes about the faith of Abraham "Remember Abraham: he believed God and because of this was held to be a just man"
+
+## January 12,2024 ##
+
+[![Isaac and Rebekah](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day012.jpg)](https://youtu.be/2lsnIGtU4Zg "Isaac and Rebekah")
