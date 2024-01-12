@@ -109,7 +109,7 @@ Example:
 
 Results:
 1) The markdown is generated on the command line. This can be used to insert video markdown in your markdown files.
-2) The overlaid image file for the video is generated as January/jpgs/bringingback.jpg.
+2) The overlaid image file for the video is generated as `January/jpgs/bringingback.jpg`.
 
 
 ## Merge monthly markdown files into one large README ##
