@@ -38,7 +38,8 @@ You can replace the top-level markdown header
 BIAY January 2024
 ```
 with your own if you wish.
-Add a compact.txt file with the first line as `header.md` under each monthly directory.
+
+Add a `compact.txt` file with the first line as `header.md` under each monthly directory.
 This ensures that the header is present for each month's markdown.
 
 ## Add today\'s Youtube video ##
