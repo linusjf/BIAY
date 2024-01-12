@@ -20,7 +20,7 @@
 + [stitchmd](https://github.com/abhinav/stitchmd)
 
 Create a directory for each month of the year under the root directory.
-Add a header.md file under each monthly directory with the following content.
+Add a `header.md` file under each monthly directory with the following content.
 
 Example for January:
 ```text
@@ -30,7 +30,7 @@ BIAY January 2024
 ```
 
 The `<!-- toc -->` comment header is mandatory else markdown-toc will not generate the table of contents
-for the monthly markdown (in this case, January2024.md).
+for the monthly markdown (in this case, `January2024.md`).
 
 You can replace the top-level markdown header
 ```markdown
@@ -58,16 +58,16 @@ Example:
 
 Results:
 
-1) Video id is appended to the videos.txt file in the root directory.
-2) Day010.md is generated in the January subdirectory.
-3) Day010.jpg image is generated in the January/jpgs directory.
-4) Day010.md file name is appended to the January/compact.txt file.
-5) January20XX.md file is updated (in the root directory) with the Day010.md contents.
+1) Video id is appended to the `videos.txt` file in the root directory.
+2) `Day010.md` is generated in the January subdirectory.
+3) `Day010.jpg` image is generated in the `January/jpgs` directory.
+4) `Day010.md` file name is appended to the `January/compact.txt` file.
+5) `January20XX.md` file is updated (in the root directory) with the `Day010.md` contents.
 
 ## Add today\'s sharing ##
 
 1) First, add today's video.
-2) Edit the generated Dayxxx.md file for today.
+2) Edit the generated `Dayxxx.md` file for today.
 3) Paste the sharing text into the file adding appropriate markdown headers as needed.
 4) Save the file.
 5) Execute script `genmonth` with the following parameters:
@@ -81,7 +81,7 @@ Results:
 
     Results:
 
-    - The January2024.md file is updated with the sharing text added to the Day010.md file.
+    - The `January2024.md` file is updated with the sharing text added to the `Day010.md` file.
 
 You can add sharing to other days as well in a similar fashion.
 Don't forget to execute `genmonth` with the appropriate month index for that day.
@@ -114,7 +114,7 @@ Results:
 
 ## Merge monthly markdown files into one large README ##
 
-1) Edit the stitch.md file provided to include the markdown files you wish to merge.
+1) Edit the `stitch.md` file provided to include the markdown files you wish to merge.
 
 2) The file format is as follows:
     ```markdown
@@ -143,4 +143,4 @@ Results:
 
 Results:
 
-A huge README is generated with all the contents of the listed markdown files in stitch.md.
+A huge README is generated with all the contents of the listed markdown files in `stitch.md`.
