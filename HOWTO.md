@@ -12,7 +12,6 @@
 
 ## Prerequisites ##
 
-+ [convert](https://imagemagick.org/index.php)
 + [curl](https://curl.se/)
 + [gm](http://www.graphicsmagick.org/)
 + [m4](https://www.gnu.org/software/m4/)

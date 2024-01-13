@@ -1,2 +1,1 @@
-1) Refactor convert to use GraphicsMagick
-2) Refactor compact to use stitch
+1) Refactor compact to use stitch
