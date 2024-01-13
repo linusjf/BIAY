@@ -49,6 +49,7 @@
     + [Day12: *Dedication to daily devotion and work.* - Michael Eltham](#day12-dedication-to-daily-devotion-and-work---michael-eltham)
     + [Day 12 Anonymous](#day-12-anonymous)
     + [Day 12 - Jenita](#day-12---jenita)
+  * [January 13,2024](#january-132024)
 
 <!-- tocstop -->
 
@@ -780,3 +781,7 @@ He only wants us to trust the e tire process
 This is all we need to do..  Trust and serve God even on the dark days, know that he is there even when we are in the darkness. 
 
 *Trust the process*
+
+## January 13,2024 ##
+
+[![Esau Sells His Birthright](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day013.jpg)](https://youtu.be/Tg5f77arXqQ "Esau Sells His Birthright")
