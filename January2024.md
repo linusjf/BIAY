@@ -56,6 +56,7 @@
   * [January 14,2024](#january-142024)
     + [Day 14: “We are not perfect” - Michael Eltham](#day-14-we-are-not-perfect---michael-eltham)
       - [Cathy Agarro](#cathy-agarro)
+    + [Day 14 - Leena](#day-14---leena)
 
 <!-- tocstop -->
 
@@ -874,3 +875,7 @@ May the Holy Spirit lead us. 🙏
 #### Cathy Agarro ####
 
 Yes, we are all in need of redemption. And we thank Jesus for providing a way for us to be restored to God’s love -the sacraments. May God bless us 🙏to see Jesus in every one we encounter through the help of the Holy Spirit. 🕊️
+
+### Day 14 - Leena ###
+
+Once a child of God always a child of God.
