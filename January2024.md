@@ -49,9 +49,13 @@
     + [Day12: *Dedication to daily devotion and work.* - Michael Eltham](#day12-dedication-to-daily-devotion-and-work---michael-eltham)
     + [Day 12 Anonymous](#day-12-anonymous)
     + [Day 12 - Jenita](#day-12---jenita)
+    + [Day 12 Anonymous](#day-12-anonymous-1)
   * [January 13,2024](#january-132024)
     + [Day13 Selling our inheritance for temporal pleasure](#day13-selling-our-inheritance-for-temporal-pleasure)
     + [Day 13 - Gabriella](#day-13---gabriella)
+  * [January 14,2024](#january-142024)
+    + [Day 14: “We are not perfect” - Michael Eltham](#day-14-we-are-not-perfect---michael-eltham)
+      - [Cathy Agarro](#cathy-agarro)
 
 <!-- tocstop -->
 
@@ -784,6 +788,12 @@ This is all we need to do..  Trust and serve God even on the dark days, know tha
 
 *Trust the process*
 
+### Day 12 Anonymous ###
+
+God's providence is always at work.
+How powerfully we rely on God's providence, even when we don't see.
+God is faithful, even when we are unfaithful and He provides.
+
 ## January 13,2024 ##
 
 [![Esau Sells His Birthright](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day013.jpg)](https://youtu.be/Tg5f77arXqQ "Esau Sells His Birthright")
@@ -844,3 +854,23 @@ Teach us and inspire us to recognize our own brokenness and to avoid repeating w
 In your eyes Lord it must be a precious moment lost in eternity when we abuse your goodness and freewill.  
 
 _Have mercy on us O Lord, have mercy on us!_
+
+## January 14,2024 ##
+
+[![Isaaac Blesses Jacob](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day014.jpg)](https://youtu.be/JMX6nG7SIEw "Isaaac Blesses Jacob")
+
+### Day 14: “We are not perfect” - Michael Eltham ###
+
+The Jews were God’s chosen people and we the Christians were grafted into God’s chosen people. In fact, Jesus come not only for the Jews but for everyone. Anyone who hears His voice and responds will be grafted in by Baptism, where we become Children of God.
+
+Just as the blessing of Isaac is irreversible- even the sacraments are irresponsible - once a Child of God - always a Child of God. Even if we become deceptive and steal like Jacob we are still God’s children. Though Jacob can justify himself because he actually bought the birthright of Esau for a lentil meal. But he deceived his father by wearing his brothers’ clothes’ and putting goat skin on his hands, he also lied to his father when he said he was Esau. His mother Rebekah was the one who helped him deceive his father.
+
+The only conclusion we can come to is that we are all messed up. We are all in need of redemption.
+
+The good news is that God loves us no matter what - we usually think that if we commit sin we lose our value and God does not love us anymore, in fact, it’s the opposite - the Good Shepherd leaves the 99 and goes in search of the lost. When the “one lost” is found there is rejoicing in heaven. Let us not run away from His love, all we need to do is be found by him. He stands at the door and knocks - if anyone hears His voice - He will come in and dine with us. If you hear God’s voice do not harden your hearts today.
+
+May the Holy Spirit lead us. 🙏
+
+#### Cathy Agarro ####
+
+Yes, we are all in need of redemption. And we thank Jesus for providing a way for us to be restored to God’s love -the sacraments. May God bless us 🙏to see Jesus in every one we encounter through the help of the Holy Spirit. 🕊️
