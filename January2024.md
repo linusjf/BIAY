@@ -59,6 +59,7 @@
     + [Day 14 - Leena](#day-14---leena)
   * [January 15,2024](#january-152024)
     + [Day15: “What goes around comes around.” - Michael Eltham](#day15-what-goes-around-comes-around---michael-eltham)
+    + [Twelve Tribes of Israel](#twelve-tribes-of-israel)
 
 <!-- tocstop -->
 
@@ -905,3 +906,7 @@ We need to also invite the Lord in all our relationships, on our own we will mak
 
 
 May the Holy Spirit lead us. 🙏
+
+### Twelve Tribes of Israel ###
+
+![Twelve Tribes of Israel](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/TwelveTribesIsrael.jpg)
