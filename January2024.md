@@ -64,6 +64,7 @@
     + [Day 15 By Simitra](#day-15-by-simitra)
   * [January 16,2024](#january-162024)
     + [Day16: "If God is for us who can be against us" Rom 8:31 -Michael Eltham](#day16-if-god-is-for-us-who-can-be-against-us-rom-831--michael-eltham)
+    + [Recap or Catch up](#recap-or-catch-up)
 
 <!-- tocstop -->
 
@@ -936,3 +937,7 @@ In today's reading Jacob hears God's voice calling him back to his Father's hous
 Finally, Jacob stirred by God's message decided to take all that he had and leave. Laban persuaded him "BUT" the Lord had put a hedge around Jacob. Laban could not lay a hand on Jacob(Because the Lord told Laban not to). "If the Lord is for us who can be against us". "No harm will come near our tent" "A thousand may fall on your right 10K on your left - but nothing can befall us" "No weapon formed against us shall prosper" and "He puts His angels in charge of us" "They patrol around us day and night" In the reading, we see Jacob meets the army of Angles. Let us not fear, but take refuge in the Lord. "He is our fortress and stronghold. In His arms we are safe."
 
 May the Holy Spirit lead us. 🙏
+
+### Recap or Catch up ###
+
+[Recap or Catch up](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Recap.jpg)
