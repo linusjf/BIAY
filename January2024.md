@@ -60,6 +60,10 @@
   * [January 15,2024](#january-152024)
     + [Day15: “What goes around comes around.” - Michael Eltham](#day15-what-goes-around-comes-around---michael-eltham)
     + [Twelve Tribes of Israel](#twelve-tribes-of-israel)
+    + [Day 15 - Rosetta -](#day-15---rosetta--)
+    + [Day 15 By Simitra](#day-15-by-simitra)
+  * [January 16,2024](#january-162024)
+    + [Day16: "If God is for us who can be against us" Rom 8:31 -Michael Eltham](#day16-if-god-is-for-us-who-can-be-against-us-rom-831--michael-eltham)
 
 <!-- tocstop -->
 
@@ -910,3 +914,25 @@ May the Holy Spirit lead us. 🙏
 ### Twelve Tribes of Israel ###
 
 ![Twelve Tribes of Israel](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/TwelveTribesIsrael.jpg)
+
+### Day 15 - Rosetta - ###
+
+Today we see that God loves us no matter how broken and unloved we may feel with our own loved ones and those whom we keep close to our hearts. His love is omnipresent and is the only love that truly satisfies our soul. We also see that more than wealth and all materialistic things that we want and desire, ultimately as human beings at the core we long for love and acceptance. This is seen in the stories of both Leah & Job as they seek for love, approval and validation from their family (Leah - Jacob) and friends (Job).
+
+### Day 15 By Simitra ###
+
+It's Ok to know that right now there is some brokenness in our lives and that God can still use it.
+
+We don't have to beat ourselves due to our brokenness but can instead grow in the awareness that we are already loved and are heirs to everything that belongs to the Father through Christ Jesus.
+
+## January 16,2024 ##
+
+[![The Suffering of Job](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day016.jpg)](https://youtu.be/3Ydar25mVnE "The Suffering of Job")
+
+### Day16: "If God is for us who can be against us" Rom 8:31 -Michael Eltham ###
+
+In today's reading Jacob hears God's voice calling him back to his Father's house - remember Jacob left in fear after stealing the blessing from his elder brother Esau. In a sense, Jacob had to deal with his deceptive and manipulative father-in-law Laban for many years. No matter how Laban tried to steal by changing what type of cattle belonged to him, God kept prospering Jacob's flock.
+
+Finally, Jacob stirred by God's message decided to take all that he had and leave. Laban persuaded him "BUT" the Lord had put a hedge around Jacob. Laban could not lay a hand on Jacob(Because the Lord told Laban not to). "If the Lord is for us who can be against us". "No harm will come near our tent" "A thousand may fall on your right 10K on your left - but nothing can befall us" "No weapon formed against us shall prosper" and "He puts His angels in charge of us" "They patrol around us day and night" In the reading, we see Jacob meets the army of Angles. Let us not fear, but take refuge in the Lord. "He is our fortress and stronghold. In His arms we are safe."
+
+May the Holy Spirit lead us. 🙏
