@@ -67,6 +67,8 @@
     + [Recap or Catch up](#recap-or-catch-up)
   * [January 17,2024](#january-172024)
     + [Day17: Why does a good God allow evil?](#day17-why-does-a-good-god-allow-evil)
+    + [Day 17 Simitra](#day-17-simitra)
+    + [Day 17 - Gabriella](#day-17---gabriella)
 
 <!-- tocstop -->
 
@@ -957,3 +959,15 @@ This is a fundamental question that many ask. In today's reading, we see how the
 However, we should strive to make Earth like heaven, starting with ourselves. We should mean it when we pray "Thy kingdom come, they will be done on earth as in heaven." 
 
 May the Holy Spirit lead us 🙏
+
+### Day 17 Simitra ###
+
+Genesis 33:10 is so profound. Jacob says to Essau, "to see you is to see the face of God". Why? Inspite of the wrong that Jacob did by deceit, yet when Essau forgives him and receives him back, he compares his act to that of God. 
+
+Just as God in Christ Jesus has forgiven us, when we forgive, our face is the reflection of God himself.
+
+### Day 17 - Gabriella ###
+
+When Jacob meets Esau he forgives him. His heart exuded love and mercy toward his brother Jacob, imitating God’s abyss of unfathomable Love and Mercy. May every soul practice such virtue as that is the Will of God. 
+
+*”_No soul will be justified until it turns with confidence to My mercy,_”* - St. Faustina, Diary 570
