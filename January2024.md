@@ -65,6 +65,7 @@
   * [January 16,2024](#january-162024)
     + [Day16: "If God is for us who can be against us" Rom 8:31 -Michael Eltham](#day16-if-god-is-for-us-who-can-be-against-us-rom-831--michael-eltham)
     + [Recap or Catch up](#recap-or-catch-up)
+  * [January 17,2024](#january-172024)
 
 <!-- tocstop -->
 
@@ -941,3 +942,7 @@ May the Holy Spirit lead us. 🙏
 ### Recap or Catch up ###
 
 ![Recap or Catch up](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Recap.jpg)
+
+## January 17,2024 ##
+
+[![Jacob Meets Esau](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day017.jpg)](https://youtu.be/P_LxijyXemQ "Jacob Meets Esau")
