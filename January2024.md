@@ -66,6 +66,7 @@
     + [Day16: "If God is for us who can be against us" Rom 8:31 -Michael Eltham](#day16-if-god-is-for-us-who-can-be-against-us-rom-831--michael-eltham)
     + [Recap or Catch up](#recap-or-catch-up)
   * [January 17,2024](#january-172024)
+    + [Day17: Why does a good God allow evil?](#day17-why-does-a-good-god-allow-evil)
 
 <!-- tocstop -->
 
@@ -946,3 +947,13 @@ May the Holy Spirit lead us. 🙏
 ## January 17,2024 ##
 
 [![Jacob Meets Esau](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day017.jpg)](https://youtu.be/P_LxijyXemQ "Jacob Meets Esau")
+
+### Day17: Why does a good God allow evil? ###
+
+This is a fundamental question that many ask. In today's reading, we see how the daughter of Jacob was raped by the prince of the land. The bible states that this is not to happen, it clearly says that rape is not moral and is a sin. When Jacobs's sons heard of their sister's rape they were furious and deceived the prince and all males of the land and eventually killed them all. The question "Where is God when all of this is happening?" is one that comes to our mind. Is it just for that man to rape an innocent girl? Was it just for her brothers to be vengeful and murder all the men of the land?
+
+ We need to understand that this feeling of justice comes from the Lord, it's not our own. We long for a world where there is no injustice, and where no one is harmed or deceived. The bad news is that we may never see such a world as every human being has a deceptive heart and we are devouring each other. The only hope is heaven, our desire for justice will be fulfilled in heaven. Heaven will be that perfect place where there is no scorching sun, no pain or tears. Just the presence of the Lord. He will reign in Justice and Peace.
+
+However, we should strive to make Earth like heaven, starting with ourselves. We should mean it when we pray "Thy kingdom come, they will be done on earth as in heaven." 
+
+May the Holy Spirit lead us 🙏
