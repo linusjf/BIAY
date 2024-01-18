@@ -71,6 +71,7 @@
     + [Day 17 - Gabriella](#day-17---gabriella)
   * [January 18,2024](#january-182024)
     + [Day - 18 Fr Andrew](#day---18-fr-andrew)
+    + [Day 18 Simitra](#day-18-simitra)
 
 <!-- tocstop -->
 
@@ -989,3 +990,9 @@ Are you ready to walk an extra mile to meet or encounter Jesus?
 Wake up from your spiritual slumber! Give up the unnecessary luggage. Look up to Jesus. And with every step, build up your relationship with Him and with others 
 
 "The problem is not in being sinners, the problem is when we don't let ourselves be transformed in love by the encounter with Christ”. Pope Francis
+
+### Day 18 Simitra ###
+
+God is faithful to his promises. It is impossible that God should prove false. The Bible is full of God's promises and all of them are a “Yes” and “Amen” in Christ Jesus. 
+
+Proverbs 3:26 says “for the Lord is your confidence” and the measure of our confidence in His promises is to the extent that we grow in the understanding of His love for us.
