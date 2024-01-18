@@ -69,6 +69,7 @@
     + [Day17: Why does a good God allow evil?](#day17-why-does-a-good-god-allow-evil)
     + [Day 17 Simitra](#day-17-simitra)
     + [Day 17 - Gabriella](#day-17---gabriella)
+  * [January 18,2024](#january-182024)
 
 <!-- tocstop -->
 
@@ -971,3 +972,7 @@ Just as God in Christ Jesus has forgiven us, when we forgive, our face is the re
 When Jacob meets Esau he forgives him. His heart exuded love and mercy toward his brother Jacob, imitating God’s abyss of unfathomable Love and Mercy. May every soul practice such virtue as that is the Will of God. 
 
 *”_No soul will be justified until it turns with confidence to My mercy,_”* - St. Faustina, Diary 570
+
+## January 18,2024 ##
+
+[![The Heart of Israel](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day018.jpg)](https://youtu.be/8AFfoGmfMYI "The Heart of Israel")
