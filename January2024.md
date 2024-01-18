@@ -70,6 +70,7 @@
     + [Day 17 Simitra](#day-17-simitra)
     + [Day 17 - Gabriella](#day-17---gabriella)
   * [January 18,2024](#january-182024)
+    + [Day - 18 Fr Andrew](#day---18-fr-andrew)
 
 <!-- tocstop -->
 
@@ -976,3 +977,15 @@ When Jacob meets Esau he forgives him. His heart exuded love and mercy toward hi
 ## January 18,2024 ##
 
 [![The Heart of Israel](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day018.jpg)](https://youtu.be/8AFfoGmfMYI "The Heart of Israel")
+
+### Day - 18 Fr Andrew ###
+
+Mk 3:7-12
+
+In the gospel, we see people giving Jesus an enthusiastic reception after hearing about the things He was doing. People converged on Him like a pilgrimage in faith. The hurdles on their way were no longer barriers but stepping stones to have a divine experience. 
+
+Are you ready to walk an extra mile to meet or encounter Jesus? 
+
+Wake up from your spiritual slumber! Give up the unnecessary luggage. Look up to Jesus. And with every step, build up your relationship with Him and with others 
+
+"The problem is not in being sinners, the problem is when we don't let ourselves be transformed in love by the encounter with Christ”. Pope Francis
