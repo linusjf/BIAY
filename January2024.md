@@ -76,6 +76,7 @@
     + [Day 18 "God is Faithful, even though we are not faithful." - Michael Eltham](#day-18-god-is-faithful-even-though-we-are-not-faithful---michael-eltham)
   * [January 19,2024](#january-192024)
     + [Day 19 Jealousy, Envy, and Resentment are the perfect ingredients for a "Mess". - Michael Eltham](#day-19-jealousy-envy-and-resentment-are-the-perfect-ingredients-for-a-mess---michael-eltham)
+    + [Day 19 Simitra](#day-19-simitra)
 
 <!-- tocstop -->
 
@@ -1042,3 +1043,11 @@ Let us pray the prayer from the Psalms.
 " Keep back thy servant also from presumptuous sins; let them not have dominion over me! Then I shall be blameless, and innocent of great transgression. "  Psalm 19:13
 
 May the Holy Spirit lead us. 🙏
+
+### Day 19 Simitra ###
+
+Genesis 37:11,  "So his brothers were jealous of him". Every action that we take is first perceived in the mind. That's why Romans 12:2 tells us to "be transformed by the renewing of your minds so that you may discern what is the will of God, what is good and acceptable and perfect". 
+
+James 3:16,"For wherever there is jealousy and selfish ambition, there you will find disorder and evil of every kind". The jealousy of Joseph's brothers allowed them to go to the extent of selling their own brother as a slave.
+
+Let us ask for God's grace to be vigilant knowing what an evil jealousy is.
