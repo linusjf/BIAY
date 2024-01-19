@@ -72,7 +72,10 @@
   * [January 18,2024](#january-182024)
     + [Day - 18 Fr Andrew](#day---18-fr-andrew)
     + [Day 18 Simitra](#day-18-simitra)
+    + [Day 18 Anonymous](#day-18-anonymous)
+    + [Day 18 "God is Faithful, even though we are not faithful." - Michael Eltham](#day-18-god-is-faithful-even-though-we-are-not-faithful---michael-eltham)
   * [January 19,2024](#january-192024)
+    + [Day 19 Jealousy, Envy, and Resentment are the perfect ingredients for a "Mess". - Michael Eltham](#day-19-jealousy-envy-and-resentment-are-the-perfect-ingredients-for-a-mess---michael-eltham)
 
 <!-- tocstop -->
 
@@ -998,6 +1001,44 @@ God is faithful to his promises. It is impossible that God should prove false. T
 
 Proverbs 3:26 says “for the Lord is your confidence” and the measure of our confidence in His promises is to the extent that we grow in the understanding of His love for us.
 
+### Day 18 Anonymous ### 
+
+How often God accomplishes His will, inspite of our brokenness. 
+
+He is faithful & He is steadfast. 
+
+All Glory to Jesus
+
+### Day 18 "God is Faithful, even though we are not faithful." - Michael Eltham ###
+
+As we read through the readings today. Names, names, and more names. It gets to that point where we can't even focus on the reading with all those names. However, we need just step back and look at how God works His will out. Abraham the man who had no kids till 99 is now becoming the father of the nations. His children, grandchildren and great-grandchildren are being fruitful and multiplying. God gives Jacob a new name "Isreal" and 12 sons who become the 12 tribes of Isreal. The blessing of the Lord is on the family for generations, they prosper and their flock and lands are blessed.
+
+“No one or nothing can change what God intends for us. He is a faithful God, what His hand does no one can stop. Let us feel confident today that God is in control of every situation, we are in His Hands.” - Michael Eltham 
+
+Even though things seem not going right today (like Job), let us not lose hope for we have a Faithful God.
+
+"Can a woman forget her nursing child, or show no compassion for the child of her womb? Even these may forget, yet I will not forget you." Is 49:15
+
+“Forever, O Lord, your word is firmly fixed in the heavens. Your faithfulness endures to all generations; you have established the earth, and it stands fast.” Psalm 119:89-90
+
+"Trust in the Lord with all your heart and lean not on your own understanding." Prov 3:5
+
+May the Holy Spirit Lead us. 🙏
+
 ## January 19,2024 ##
 
 [![Joseph and His Brothers](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day019.jpg)](https://youtu.be/9aHl8VnadXw "Joseph and His Brothers")
+
+### Day 19 Jealousy, Envy, and Resentment are the perfect ingredients for a "Mess". - Michael Eltham ###
+
+Jacobs's sons were envious of their youngest brother "Joseph" because their father loved Joseph more than them. Joseph was the son of Rachel (the wife whom Jacob loved). The brothers did not stop at envy - they wanted to kill him but sold him instead and lied to their father.
+
+We tend to think that - we would have never done it. We need to remember that we are all human and not superior to them. We should just be grateful that God has kept us from sin. We need to be thankful for our parents, siblings, spouse, children, teachers... We are responsible for not only listening to our conscience but also for "forming" it.
+
+We have to learn life lessons from these stories in the Bible, read His Word, and transform our lives. We need to keep Jealousy in check least it becomes 'Envy' and 'Resentment' and 'deadly'.
+
+Let us pray the prayer from the Psalms.
+
+" Keep back thy servant also from presumptuous sins; let them not have dominion over me! Then I shall be blameless, and innocent of great transgression. "  Psalm 19:13
+
+May the Holy Spirit lead us. 🙏
