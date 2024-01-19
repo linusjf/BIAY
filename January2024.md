@@ -72,6 +72,7 @@
   * [January 18,2024](#january-182024)
     + [Day - 18 Fr Andrew](#day---18-fr-andrew)
     + [Day 18 Simitra](#day-18-simitra)
+  * [January 19,2024](#january-192024)
 
 <!-- tocstop -->
 
@@ -996,3 +997,7 @@ Wake up from your spiritual slumber! Give up the unnecessary luggage. Look up to
 God is faithful to his promises. It is impossible that God should prove false. The Bible is full of God's promises and all of them are a “Yes” and “Amen” in Christ Jesus. 
 
 Proverbs 3:26 says “for the Lord is your confidence” and the measure of our confidence in His promises is to the extent that we grow in the understanding of His love for us.
+
+## January 19,2024 ##
+
+[![Joseph and His Brothers](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day019.jpg)](https://youtu.be/9aHl8VnadXw "Joseph and His Brothers")
