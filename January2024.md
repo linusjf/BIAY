@@ -79,6 +79,7 @@
     + [Day 19 Simitra](#day-19-simitra)
     + [Day-19 Anonymous](#day-19-anonymous)
     + [Day 19 - Jealousy](#day-19---jealousy)
+  * [January 20,2024](#january-202024)
 
 <!-- tocstop -->
 
@@ -1077,3 +1078,7 @@ So.. Each time we want out hearts or our desires to be fulfilled. Each time we f
 
 
 "For it is in giving that we receive"
+
+## January 20,2024 ##
+
+[![Judah and Tamar](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day020.jpg)](https://youtu.be/IxMOWEohb6s "Judah and Tamar")
