@@ -80,6 +80,7 @@
     + [Day-19 Anonymous](#day-19-anonymous)
     + [Day 19 - Jealousy](#day-19---jealousy)
   * [January 20,2024](#january-202024)
+    + [Day20: "Onanism" and "Double standards" - Michael Eltham](#day20-onanism-and-double-standards----michael-eltham)
 
 <!-- tocstop -->
 
@@ -1082,3 +1083,27 @@ So.. Each time we want out hearts or our desires to be fulfilled. Each time we f
 ## January 20,2024 ##
 
 [![Judah and Tamar](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day020.jpg)](https://youtu.be/IxMOWEohb6s "Judah and Tamar")
+
+### Day20: "Onanism" and "Double standards"  - Michael Eltham ###
+
+Note: Today’s reflections is for mature audience only.
+
+Separating the unitive act from the procreative act is "Onanism". For the very first time, the Bible states this sin - which is very prevalent today with the use of contraceptives and birth control. We decide to be God when we use contraceptives and birth control, instead of letting God be in control, the Bible says that the son who committed this sin made God angry and Onan was slain. 
+
+But Er, Judah’s firstborn, greatly offended the LORD; so the LORD took his life.
+
+Then Judah said to Onan, “Have intercourse with your brother’s wife, in fulfillment of your duty as brother-in-law, and thus preserve your brother’s line.”
+
+Onan, however, knew that the offspring would not be his; so whenever he had intercourse with his brother’s wife, he wasted his seed on the ground, to avoid giving offspring to his brother.
+
+10What he did greatly offended the LORD, and the LORD took his life too. Gen 38:7-10
+
+The church recommends married people follow Natural family planning. All married people should be open to life and not commit sins of Onamism, or anything that prevents natural conception. Single people are called to a life of absolute abstinence until married.   
+
+ We also look at extreme brokenness and the sad story of Tamar. Judah's double standard is on display today. He does not hesitate to indulge with Harlot's and when he finds out that Tamar his daughter-in-law is pregnant with a child from Harlotry he wants her burnt. Don't we sometimes have double standards - we are hypocrites - we preach one thing and don't follow it.  We condemn those who commit sin even though we secretly do it ourselves. We will need to eat "humble pie" on the day of Judgment - when everything will be brought to the light. Like when Tamar exposed Judah's sin - he said that she is more righteous than I. We need to admit that we are sinful, we need to change on the "inside", for
+
+ "the heart is deceitful above all things and beyond cure. Who can understand it?" Jer 17:9. 
+
+BUT God can write straight with crooked lines. God can use broken vessels like us to do great things. Let us entrust our broken humanity to Him.
+
+ May the Holy Spirit lead us 🙏
