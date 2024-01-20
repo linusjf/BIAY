@@ -81,6 +81,7 @@
     + [Day 19 - Jealousy](#day-19---jealousy)
   * [January 20,2024](#january-202024)
     + [Day20: "Onanism" and "Double standards" - Michael Eltham](#day20-onanism-and-double-standards----michael-eltham)
+  * [January 21,2024](#january-212024)
 
 <!-- tocstop -->
 
@@ -1107,3 +1108,7 @@ The church recommends married people follow Natural family planning. All married
 BUT God can write straight with crooked lines. God can use broken vessels like us to do great things. Let us entrust our broken humanity to Him.
 
  May the Holy Spirit lead us 🙏
+
+## January 21,2024 ##
+
+[![Walking with God](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day021.jpg)](https://youtu.be/RV2ZyWevslI "Walking with God")
