@@ -82,6 +82,7 @@
   * [January 20,2024](#january-202024)
     + [Day20: "Onanism" and "Double standards" - Michael Eltham](#day20-onanism-and-double-standards----michael-eltham)
   * [January 21,2024](#january-212024)
+    + [Day21: "Joseph the just" - Michael Eltham](#day21-joseph-the-just---michael-eltham)
 
 <!-- tocstop -->
 
@@ -1112,3 +1113,15 @@ BUT God can write straight with crooked lines. God can use broken vessels like u
 ## January 21,2024 ##
 
 [![Walking with God](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day021.jpg)](https://youtu.be/RV2ZyWevslI "Walking with God")
+
+### Day21: "Joseph the just" - Michael Eltham ###
+
+We see so many similarities between Joseph of the Old Testament and our dear St Joseph of the New Testament. Both had dreams and God communicated with them very clearly in their dreams. Both were forced to go to Egypt. Both were just men. We see how OT Joseph is chaste and does not succumb to the repeated advances of his master’s wife, he even fled from her.
+
+St Joseph of the NT is called out as a just man in the NT. According to tradition he had pledged his virginity to the Lord and wanted to live a life dedicated to the Lord’s service. We need to learn from both the Josephs to preserve our life from “the lust of the eyes, the lust of the world and pride of life.”
+
+We need to flee from sin. ”Be alert and of sober mind. Your enemy the devil prowls around like a roaring lion looking for someone to devour ” 1Pet5:8
+
+Also do not fear, for the Lord is always with us. We see how the Lord was on Joseph’s side no matter how bad the situation was. Whatever Joseph did he prospered because the Lord was on his side. It’s the same with us, the Lord is on our side.
+
+May the Holy Spirit lead us. 🙏
