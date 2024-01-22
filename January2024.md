@@ -81,8 +81,11 @@
     + [Day 19 - Jealousy](#day-19---jealousy)
   * [January 20,2024](#january-202024)
     + [Day20: "Onanism" and "Double standards" - Michael Eltham](#day20-onanism-and-double-standards----michael-eltham)
+    + [Day 20 Simitra](#day-20-simitra)
   * [January 21,2024](#january-212024)
     + [Day21: "Joseph the just" - Michael Eltham](#day21-joseph-the-just---michael-eltham)
+  * [January 22,2024](#january-222024)
+    + [Day22: “Go to Joseph” - Michael Eltham](#day22-go-to-joseph---michael-eltham)
 
 <!-- tocstop -->
 
@@ -1110,6 +1113,19 @@ BUT God can write straight with crooked lines. God can use broken vessels like u
 
  May the Holy Spirit lead us 🙏
 
+### Day 20 Simitra ###
+
+Proverbs 3:28, "Do not say to your neighbor, “Go, and come again,
+tomorrow I will give it”—when you have it with you.
+
+In Genesis 12:2, God told Abram, "I will bless you and make your name great, so that you will be a blessing".
+
+Gal 3:29, "And if you are Christ’s, then you are Abraham’s offspring, heirs according to promise.
+
+Each one of us who believe in Jesus Christ are Abraham's offspring and we receive the blessing, however we are to remember that God has blessed us to be a blessing. 
+
+Let us not put aside what we can do for others when it is in our power, for we are just the stewards of the Lord and God is the source of all things.
+
 ## January 21,2024 ##
 
 [![Walking with God](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day021.jpg)](https://youtu.be/RV2ZyWevslI "Walking with God")
@@ -1125,3 +1141,13 @@ We need to flee from sin. ”Be alert and of sober mind. Your enemy the devil pr
 Also do not fear, for the Lord is always with us. We see how the Lord was on Joseph’s side no matter how bad the situation was. Whatever Joseph did he prospered because the Lord was on his side. It’s the same with us, the Lord is on our side.
 
 May the Holy Spirit lead us. 🙏
+
+## January 22,2024 ##
+
+[![Go to Joseph](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day022.jpg)](https://youtu.be/N5QPHCYtr_c "Go to Joseph")
+
+### Day22: “Go to Joseph” - Michael Eltham ###
+
+We read such a beautiful story of Gods providence today. God uses Joseph to provide for his family. Joseph was sold by his brother, falsely accused by his masters wife and eventually thrown in Jail. One would think that it’s the end of the road for him. But our God can bring streams in the desert vegetation in dry land. He does lift up Joseph by giving him the ability to interpret dreams. Now Joseph becomes the one who saves literally the whole world as there was a famine in the whole world. He literally was the defender of bread during the drought. Isn’t he similar to St Joseph who also flees to Egypt with Mary and defended the baby Jesus - the bread of life. One of the titles of Joseph is the worker - he worked hard to provide for Jesus - also the OT Joseph is a great worker as he worked for 7 years to collect grain so much grain that they were not able to measure it. Let us learn from these two great men in the Bible and be defenders of Jesus - the bread of life. Let us be defenders of the faith. 
+
+May the Holy Spirit lead us.🙏
