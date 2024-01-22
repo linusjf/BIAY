@@ -84,6 +84,7 @@
     + [Day 20 Simitra](#day-20-simitra)
   * [January 21,2024](#january-212024)
     + [Day21: "Joseph the just" - Michael Eltham](#day21-joseph-the-just---michael-eltham)
+    + [Day 21- Jenita](#day-21--jenita)
   * [January 22,2024](#january-222024)
     + [Day22: “Go to Joseph” - Michael Eltham](#day22-go-to-joseph---michael-eltham)
 
@@ -1141,6 +1142,12 @@ We need to flee from sin. ”Be alert and of sober mind. Your enemy the devil pr
 Also do not fear, for the Lord is always with us. We see how the Lord was on Joseph’s side no matter how bad the situation was. Whatever Joseph did he prospered because the Lord was on his side. It’s the same with us, the Lord is on our side.
 
 May the Holy Spirit lead us. 🙏
+
+### Day 21- Jenita ###
+
+Joseph goes through tremendous tribulations..  He is betrayed, backstabbed, sold, falsely accused.. But still through it all.. He is calm because of his trust in the Lord. And that trust is strong because God is always with him. 
+
+Similarly, we too need to realize that.. No matter what happens in life... God is with us.. God constantly is walking with us every single second of our lives. And that is the ultimate comfort and assurance of peace one can ever rely on.
 
 ## January 22,2024 ##
 
