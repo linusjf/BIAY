@@ -87,6 +87,8 @@
     + [Day 21- Jenita](#day-21--jenita)
   * [January 22,2024](#january-222024)
     + [Day22: “Go to Joseph” - Michael Eltham](#day22-go-to-joseph---michael-eltham)
+    + [Day 22 Simitra](#day-22-simitra)
+  * [January 23,2024](#january-232024)
 
 <!-- tocstop -->
 
@@ -1158,3 +1160,17 @@ Similarly, we too need to realize that.. No matter what happens in life... God i
 We read such a beautiful story of Gods providence today. God uses Joseph to provide for his family. Joseph was sold by his brother, falsely accused by his masters wife and eventually thrown in Jail. One would think that it’s the end of the road for him. But our God can bring streams in the desert vegetation in dry land. He does lift up Joseph by giving him the ability to interpret dreams. Now Joseph becomes the one who saves literally the whole world as there was a famine in the whole world. He literally was the defender of bread during the drought. Isn’t he similar to St Joseph who also flees to Egypt with Mary and defended the baby Jesus - the bread of life. One of the titles of Joseph is the worker - he worked hard to provide for Jesus - also the OT Joseph is a great worker as he worked for 7 years to collect grain so much grain that they were not able to measure it. Let us learn from these two great men in the Bible and be defenders of Jesus - the bread of life. Let us be defenders of the faith. 
 
 May the Holy Spirit lead us.🙏
+
+### Day 22 Simitra ###
+
+Genesis 41:16  “I myself cannot do it,” Joseph replied, “but God will give Pharaoh a sound answer.”
+
+This shows us the humility of Joseph. He does not claim to have the understanding or knowledge about the interpretation of dreams but attributes it all to God.
+
+1 Corinthians 3:17, "So neither he who plants nor he who waters is anything, but only God who gives the growth".
+
+For all of us especially those in any ministry, proclaiming the Word of God and seeing signs and wonders, we need to be reminded that it is God alone who gives the growth and so in all of it God be glorified.
+
+## January 23,2024 ##
+
+[![Judah Changes](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day023.jpg)](https://youtu.be/A7q-74io-qY "Judah Changes")
