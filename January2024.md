@@ -91,7 +91,7 @@
   * [January 23,2024](#january-232024)
     + [Day23: “Keep hold of instruction, do not let go” - Michael Eltham](#day23-keep-hold-of-instruction-do-not-let-go---michael-eltham)
   * [January 24,2024](#january-242024)
-    + [Day24: “Unity in the family” - Michael Eltham](#day24-unity-in-the-family---michael-eltham)
+    + [Day 24: “Unity in the family” - Michael Eltham](#day-24-unity-in-the-family---michael-eltham)
 
 <!-- tocstop -->
 
@@ -1194,7 +1194,7 @@ May the Holy Spirit lead us. 🙏
 
 [![Tears of Joy](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day024.jpg)](https://youtu.be/7y5ENYg8NWM "Tears of Joy")
 
-### Day24: “Unity in the family” - Michael Eltham ###
+### Day 24: “Unity in the family” - Michael Eltham ###
 Today’s readings make for such a beautiful scene. Joseph is united to his family, meets his beloved father (remember Joseph was the fav child), his younger brother who he never met before. He is reconciled with all his brothers who sold him. It’s the best feeling ever. No wonder he could not hold back tears, he cried like newborn baby. They all wept and hugged and felt complete as one family again. After all the betrayal, separation, anger, jealousy, loss, sadness… Finally, it’s time to be happy. Oh! what JOY!!! 
 
 Ps 133:1  “Behold, how good and pleasant it is when brothers dwell in unity!”
