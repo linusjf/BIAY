@@ -92,6 +92,7 @@
     + [Day23: “Keep hold of instruction, do not let go” - Michael Eltham](#day23-keep-hold-of-instruction-do-not-let-go---michael-eltham)
   * [January 24,2024](#january-242024)
     + [Day 24: “Unity in the family” - Michael Eltham](#day-24-unity-in-the-family---michael-eltham)
+  * [January 25,2024](#january-252024)
 
 <!-- tocstop -->
 
@@ -1202,3 +1203,7 @@ Ps 133:1  “Behold, how good and pleasant it is when brothers dwell in unity!�
 We choose our friends, but our family is given to us. Some people in the family are harder to love than others. But we should nevertheless pray and seek to live in harmony with everyone. It’s not easy, with our strength it’s impossible but with God “all things are possible”. Let us pray for our family, especially those who are difficult to live with.
 
 May the Holy Spirit lead us. 🙏
+
+## January 25,2024 ##
+
+[![Job's Questioning](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day025.jpg)](https://youtu.be/mdu9C7LOSsc "Job's Questioning")
