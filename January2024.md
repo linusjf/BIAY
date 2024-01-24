@@ -90,6 +90,8 @@
     + [Day 22 Simitra](#day-22-simitra)
   * [January 23,2024](#january-232024)
     + [Day23: “Keep hold of instruction, do not let go” - Michael Eltham](#day23-keep-hold-of-instruction-do-not-let-go---michael-eltham)
+  * [January 24,2024](#january-242024)
+    + [Day24: “Unity in the family” - Michael Eltham](#day24-unity-in-the-family---michael-eltham)
 
 <!-- tocstop -->
 
@@ -1185,5 +1187,18 @@ The proverb we hear today is so true. The only qualification to get to heaven is
 “I do not do what I want, but I do the very thing I hate...”
 
 However, we should not just give into our own desires, but detest sin and follow Christ. It’s not just about following rules, it’s all about loving the Lord (“ If you love me you will keep my commandments” Jh 14:15) If we love the Lord and try our very best to be holy, He will pour His love into Hearts through the Holy Spirit. He will write His laws on our hearts, and we will follow them out of love, not out of compulsion.
+
+May the Holy Spirit lead us. 🙏
+
+## January 24,2024 ##
+
+[![Tears of Joy](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day024.jpg)](https://youtu.be/7y5ENYg8NWM "Tears of Joy")
+
+### Day24: “Unity in the family” - Michael Eltham ###
+Today’s readings make for such a beautiful scene. Joseph is united to his family, meets his beloved father (remember Joseph was the fav child), his younger brother who he never met before. He is reconciled with all his brothers who sold him. It’s the best feeling ever. No wonder he could not hold back tears, he cried like newborn baby. They all wept and hugged and felt complete as one family again. After all the betrayal, separation, anger, jealousy, loss, sadness… Finally, it’s time to be happy. Oh! what JOY!!! 
+
+Ps 133:1  “Behold, how good and pleasant it is when brothers dwell in unity!”
+
+We choose our friends, but our family is given to us. Some people in the family are harder to love than others. But we should nevertheless pray and seek to live in harmony with everyone. It’s not easy, with our strength it’s impossible but with God “all things are possible”. Let us pray for our family, especially those who are difficult to live with.
 
 May the Holy Spirit lead us. 🙏
