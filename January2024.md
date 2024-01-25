@@ -90,9 +90,11 @@
     + [Day 22 Simitra](#day-22-simitra)
   * [January 23,2024](#january-232024)
     + [Day23: “Keep hold of instruction, do not let go” - Michael Eltham](#day23-keep-hold-of-instruction-do-not-let-go---michael-eltham)
+    + [Day 23 - Jenita](#day-23---jenita)
   * [January 24,2024](#january-242024)
     + [Day 24: “Unity in the family” - Michael Eltham](#day-24-unity-in-the-family---michael-eltham)
   * [January 25,2024](#january-252024)
+    + [Day25: “Redemptive Suffering” - Michael Eltham](#day25-redemptive-suffering---michael-eltham)
 
 <!-- tocstop -->
 
@@ -1191,6 +1193,18 @@ However, we should not just give into our own desires, but detest sin and follow
 
 May the Holy Spirit lead us. 🙏
 
+### Day 23 - Jenita ###
+
+everyone and everything changes in time. A broken heart, broken relationship, people, situations, everything changes in time with the grace of God. 
+
+Although Judah indulged in inappropriate activities, knowingly or unknowingly, the stains on his reputation are erased in these chapters from Genesis. We see how he is looked at as one who takes responsibility over his family by pledging his life for them. 
+
+Situations change. 
+
+Similarly although we may feel that this particular incident in our lives has led to a very unfavorable situation, when it is surrendered to God, everything will work in our favour. 
+
+He is the God who restores.
+
 ## January 24,2024 ##
 
 [![Tears of Joy](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day024.jpg)](https://youtu.be/7y5ENYg8NWM "Tears of Joy")
@@ -1207,3 +1221,19 @@ May the Holy Spirit lead us. 🙏
 ## January 25,2024 ##
 
 [![Job's Questioning](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day025.jpg)](https://youtu.be/mdu9C7LOSsc "Job's Questioning")
+
+### Day25: “Redemptive Suffering” - Michael Eltham ###
+
+As we read through the book of Job we can’t but sympathize with Job. We see all the suffering that he is going through and feel sad for him. The 3 friends and the young man – can’t understand his suffering. They think he is lying when Job says that he did nothing wrong, because the Old Testament understating was that God prospers the good and the evil are punished with sickness and ruin.
+
+Sometimes we are like the friends of Job, we don’t understand why there is suffering in the world. When we see people suffering, we tend to judge or reason. When we suffer ourselves, we want to find a quick relief, an easy way out. When we are sick we run to the doctors and try every medicine possible to overcome our sickness. However when we sin we avoid praying or going to confession. We need to be equally eager about our soul and care for it even better than we care for our body.
+
+We can’t use a “One size fits all” when it comes to suffering. Some suffering is due to our sin and some suffering is permitted. It’s called redemptive suffering.
+
+Redemptive suffering is the Christian belief that human suffering, when accepted and offered up in union with the Passion of Jesus, can remit the just punishment for one's sins or for the sins of another, or for the other physical or spiritual needs of oneself or another.
+
+Let us look at the book of Job with the lens of Jesus’s suffering on the cross. Job was a just man suffered for no sin of his, so was Jesus – who had no sin – however - suffered for the sin of every human being.
+
+Along with making prayers for healing and taking good care of our bodies, we also need to offer up every suffering that we go through for the redemption of our soul and the souls of our  family, friends and enemies. :)
+
+May the Holy Spirit lead us 🙏
