@@ -4,17 +4,17 @@
 
 - [January 2024](#january-2024)
   * [January 01,2024](#january-012024)
-    + [Day1 *We have God in our DNA* - Michael Eltham](#day1-we-have-god-in-our-dna---michael-eltham)
+    + [Day 1 *We have God in our DNA* - Michael Eltham](#day-1-we-have-god-in-our-dna---michael-eltham)
     + [Day 1 - creation - Irene](#day-1---creation---irene)
     + [Day 1 - Gabriella](#day-1---gabriella)
   * [January 02,2024](#january-022024)
-    + [Day2: *Distrust and Disobedience* - Michael Eltham](#day2-distrust-and-disobedience---michael-eltham)
+    + [Day 2: *Distrust and Disobedience* - Michael Eltham](#day-2-distrust-and-disobedience---michael-eltham)
     + [Day 2 – Alice To](#day-2-%E2%80%93-alice-to)
     + [Day 2 By Cynthia D'Silva](#day-2-by-cynthia-dsilva)
     + [Jenita Maria](#jenita-maria)
   * [January 03,2024](#january-032024)
-    + [Day3: Walking with the Lord - Michael Eltham](#day3-walking-with-the-lord---michael-eltham)
-    + [Day-3 Name: Anonymous](#day-3-name-anonymous)
+    + [Day 3: Walking with the Lord - Michael Eltham](#day-3-walking-with-the-lord---michael-eltham)
+    + [Day 3 Name: Anonymous](#day-3-name-anonymous)
     + [Day 3 By Cynthia Dsilva](#day-3-by-cynthia-dsilva)
   * [January 04,2024](#january-042024)
     + [Day 4 *Why does God allow evil in the world?* - Michael Eltham](#day-4-why-does-god-allow-evil-in-the-world---michael-eltham)
@@ -26,51 +26,51 @@
     + [Day 5 - Jenita](#day-5---jenita)
     + [Day-5 Anonymous](#day-5-anonymous)
   * [January 06,2024](#january-062024)
-    + [Day6: Our struggle with faith - Michael Eltham](#day6-our-struggle-with-faith---michael-eltham)
+    + [Day 6: Our struggle with faith - Michael Eltham](#day-6-our-struggle-with-faith---michael-eltham)
     + [Matt Redman - Music Video](#matt-redman---music-video)
     + [Day 6 - Joice Pereira](#day-6---joice-pereira)
   * [January 07,2024](#january-072024)
-    + [Day7: *What’s the difference between a contract and a covenant?* - Michael Eltham](#day7-whats-the-difference-between-a-contract-and-a-covenant---michael-eltham)
+    + [Day 7: *What’s the difference between a contract and a covenant?* - Michael Eltham](#day-7-whats-the-difference-between-a-contract-and-a-covenant---michael-eltham)
     + [Video: Intro to the Patriarchs](#video-intro-to-the-patriarchs)
   * [January 08,2024](#january-082024)
-    + [Day8: *Taking things into our own hands* - Michael Eltham](#day8-taking-things-into-our-own-hands---michael-eltham)
+    + [Day 8: *Taking things into our own hands* - Michael Eltham](#day-8-taking-things-into-our-own-hands---michael-eltham)
     + [Day 8 By Cynthia Dsilva](#day-8-by-cynthia-dsilva)
   * [January 09,2024](#january-092024)
-    + [Day9: *Abraham is a good model for intercessory prayer.* - Michael Eltham](#day9-abraham-is-a-good-model-for-intercessory-prayer---michael-eltham)
+    + [Day 9: *Abraham is a good model for intercessory prayer.* - Michael Eltham](#day-9-abraham-is-a-good-model-for-intercessory-prayer---michael-eltham)
     + [Day 9 - Jenita](#day-9---jenita)
   * [January 10,2024](#january-102024)
-    + [Day10: *God will protect us even if when we mess up.* - Michael Eltham](#day10-god-will-protect-us-even-if-when-we-mess-up---michael-eltham)
+    + [Day 10: *God will protect us even if when we mess up.* - Michael Eltham](#day-10-god-will-protect-us-even-if-when-we-mess-up---michael-eltham)
     + [Day 10: Reflection (Chapter 20) By Joice Pereira](#day-10-reflection--chapter-20-by-joice-pereira)
   * [January 11,2024](#january-112024)
-    + [Day11: *God is always on time. * - Michael Eltham](#day11-god-is-always-on-time----michael-eltham)
+    + [Day 11: *God is always on time.* - Michael Eltham](#day-11-god-is-always-on-time---michael-eltham)
     + [Day 11 Anonymous](#day-11-anonymous)
     + [Day 11 Jennie James](#day-11-jennie-james)
   * [January 12,2024](#january-122024)
-    + [Day12: *Dedication to daily devotion and work.* - Michael Eltham](#day12-dedication-to-daily-devotion-and-work---michael-eltham)
+    + [Day 12: *Dedication to daily devotion and work.* - Michael Eltham](#day-12-dedication-to-daily-devotion-and-work---michael-eltham)
     + [Day 12 Anonymous](#day-12-anonymous)
     + [Day 12 - Jenita](#day-12---jenita)
     + [Day 12 Anonymous](#day-12-anonymous-1)
   * [January 13,2024](#january-132024)
-    + [Day13 Selling our inheritance for temporal pleasure](#day13-selling-our-inheritance-for-temporal-pleasure)
+    + [Day 13 Selling our inheritance for temporal pleasure](#day-13-selling-our-inheritance-for-temporal-pleasure)
     + [Day 13 - Gabriella](#day-13---gabriella)
   * [January 14,2024](#january-142024)
     + [Day 14: “We are not perfect” - Michael Eltham](#day-14-we-are-not-perfect---michael-eltham)
       - [Cathy Agarro](#cathy-agarro)
     + [Day 14 - Leena](#day-14---leena)
   * [January 15,2024](#january-152024)
-    + [Day15: “What goes around comes around.” - Michael Eltham](#day15-what-goes-around-comes-around---michael-eltham)
+    + [Day 15: “What goes around comes around.” - Michael Eltham](#day-15-what-goes-around-comes-around---michael-eltham)
     + [Twelve Tribes of Israel](#twelve-tribes-of-israel)
     + [Day 15 - Rosetta -](#day-15---rosetta--)
     + [Day 15 By Simitra](#day-15-by-simitra)
   * [January 16,2024](#january-162024)
-    + [Day16: "If God is for us who can be against us" Rom 8:31 -Michael Eltham](#day16-if-god-is-for-us-who-can-be-against-us-rom-831--michael-eltham)
+    + [Day 16: "If God is for us who can be against us" Rom 8:31 -Michael Eltham](#day-16-if-god-is-for-us-who-can-be-against-us-rom-831--michael-eltham)
     + [Recap or Catch up](#recap-or-catch-up)
   * [January 17,2024](#january-172024)
-    + [Day17: Why does a good God allow evil?](#day17-why-does-a-good-god-allow-evil)
+    + [Day 17: Why does a good God allow evil?](#day-17-why-does-a-good-god-allow-evil)
     + [Day 17 Simitra](#day-17-simitra)
     + [Day 17 - Gabriella](#day-17---gabriella)
   * [January 18,2024](#january-182024)
-    + [Day - 18 Fr Andrew](#day---18-fr-andrew)
+    + [Day 18 Fr. Andrew](#day-18-fr-andrew)
     + [Day 18 Simitra](#day-18-simitra)
     + [Day 18 Anonymous](#day-18-anonymous)
     + [Day 18 "God is Faithful, even though we are not faithful." - Michael Eltham](#day-18-god-is-faithful-even-though-we-are-not-faithful---michael-eltham)
@@ -80,22 +80,22 @@
     + [Day-19 Anonymous](#day-19-anonymous)
     + [Day 19 - Jealousy](#day-19---jealousy)
   * [January 20,2024](#january-202024)
-    + [Day20: "Onanism" and "Double standards" - Michael Eltham](#day20-onanism-and-double-standards----michael-eltham)
+    + [Day 20: "Onanism" and "Double standards" - Michael Eltham](#day-20-onanism-and-double-standards----michael-eltham)
     + [Day 20 Simitra](#day-20-simitra)
   * [January 21,2024](#january-212024)
-    + [Day21: "Joseph the just" - Michael Eltham](#day21-joseph-the-just---michael-eltham)
+    + [Day 21: "Joseph the just" - Michael Eltham](#day-21-joseph-the-just---michael-eltham)
     + [Day 21- Jenita](#day-21--jenita)
   * [January 22,2024](#january-222024)
-    + [Day22: “Go to Joseph” - Michael Eltham](#day22-go-to-joseph---michael-eltham)
+    + [Day 22: “Go to Joseph” - Michael Eltham](#day-22-go-to-joseph---michael-eltham)
     + [Day 22 Simitra](#day-22-simitra)
   * [January 23,2024](#january-232024)
-    + [Day23: “Keep hold of instruction, do not let go” - Michael Eltham](#day23-keep-hold-of-instruction-do-not-let-go---michael-eltham)
+    + [Day 23: “Keep hold of instruction, do not let go” - Michael Eltham](#day-23-keep-hold-of-instruction-do-not-let-go---michael-eltham)
     + [Day 23 - Jenita](#day-23---jenita)
   * [January 24,2024](#january-242024)
     + [Day 24: “Unity in the family” - Michael Eltham](#day-24-unity-in-the-family---michael-eltham)
     + [Up to Day 24 (anonymous)](#up-to-day-24-anonymous)
   * [January 25,2024](#january-252024)
-    + [Day25: “Redemptive Suffering” - Michael Eltham](#day25-redemptive-suffering---michael-eltham)
+    + [Day 25: “Redemptive Suffering” - Michael Eltham](#day-25-redemptive-suffering---michael-eltham)
   * [January 26,2024](#january-262024)
     + [Day 26: “A life well lived”](#day-26-a-life-well-lived)
 
@@ -108,7 +108,7 @@ BIAY January 2024
 
 [![In the Beginning](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day001.jpg)](https://youtu.be/BW0gXbEVYgA "In the Beginning")
 
-### Day1 *We have God in our DNA* - Michael Eltham ###
+### Day 1 *We have God in our DNA* - Michael Eltham ###
 
 The Bible opens with this great scene of creation, it reveals a bit of God’s nature – God existed before all things and is the source of everything good, everything we know and understand. We see a glimpse of God’s nature, God is generous - keeps on creating and pouring life into this world. God creates an ordered and good world and puts everything in place and sets rules and boundaries. There is something to be learned from how God organized this world and set it in motion, we should also organize our lives, and set rules and boundaries based on the church's teachings and Sacred Scripture. When we live an organized, harmonious life we feel good, the reason being we were created by God in His own “image” and “likeness” – we experience wholeness when we have things in order.
 
@@ -191,7 +191,7 @@ God bless Fr. Mike for presenting the creation story so clearly. I didn't unders
 
 [![The Fall of Adam and Eve](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day002.jpg)](https://youtu.be/WBg_xK44V0E "The Fall of Adam and Eve")
 
-### Day2: *Distrust and Disobedience* - Michael Eltham ###
+### Day 2: *Distrust and Disobedience* - Michael Eltham ###
 
 Man was made for communion with God, they spoke to God and heard God speak. It was a beautiful harmonious life, and everything was going great for Adam and Eve. As we read in the first chapter of the Catechism of the Catholic Church – God created man to share in the blessed life of the Trinity. Adam and Eve were enjoying this beautiful life – in direct communion with God.
 
@@ -283,7 +283,7 @@ Giving the first hours of your day Or the first fruits of earnings to God shows 
 
 [![Noah's Ark](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day003.jpg)](https://youtu.be/xs41k9YG7tQ "Noah's Ark")
 
-### Day3: Walking with the Lord - Michael Eltham ###
+### Day 3: Walking with the Lord - Michael Eltham ###
 
 It is so important for us to have a relationship with God. We are not saved just by being baptized or with church membership or by inheritance - it also depends on how we live our lives.
 
@@ -322,7 +322,7 @@ May we not just do as the world does but live as God wants us to live, in the wo
 May the Holy Spirit lead us. 🙏
 
 
-### Day-3 Name: Anonymous ###
+### Day 3 Name: Anonymous ###
 
 God is saying, Noah,  make this ark.  Because u clinged to  me, I will lift you up.
 
@@ -450,7 +450,7 @@ Let our only aim be to Glorify our Creator,  who will always lift us up.
 
 [![Trust in the Lord](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day006.jpg)](https://youtu.be/c7YdwPuam-k "Trust in the Lord")
 
-### Day6: Our struggle with faith - Michael Eltham ###
+### Day 6: Our struggle with faith - Michael Eltham ###
 
 We read about Job today, he seems like someone who is living a good life – got his priorities right, worships God, and is a good family man. If Gold is tested in the furnace, man is tested with problems, sufferings, trials, and temptations. God allows certain trials in the life of Job, for testing and purification.
 
@@ -488,7 +488,7 @@ Proverb: The fear of the Lord  is the beginning of the knowledge.
 
 [![God's Covenant with Abram](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day007.jpg)](https://youtu.be/up30wE2u-AI "God's Covenant with Abram")
 
-### Day7: *What’s the difference between a contract and a covenant?* - Michael Eltham ###
+### Day 7: *What’s the difference between a contract and a covenant?* - Michael Eltham ###
 
 A contract is an agreement for the exchange of goods and services however a covenant is the exchange of person itself - I belong to you and you belong to me. That is why a marriage is not a contract but a covenant, not the exchange of goods but the giving of oneself to the other.
 
@@ -544,7 +544,7 @@ This is the introduction to the patriarchs video, we are in the patriarchs stage
 
 [![The Surrender of Abraham](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day008.jpg)](https://youtu.be/twgZUO-kyR0 "The Surrender of Abraham")
 
-### Day8: *Taking things into our own hands* - Michael Eltham ###
+### Day 8: *Taking things into our own hands* - Michael Eltham ###
 
 Patience, Perseverance, Faith, Trust, Hope are a few words the sprung up when I heard the word spoken to us today.
 
@@ -592,7 +592,7 @@ The future Davidic kingdom was, therefore, to be a restoration of what God had e
 
 [![Sodom and Gomorrah](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day009.jpg)](https://youtu.be/0P7pyHLz0CY "Sodom and Gomorrah")
 
-### Day9: *Abraham is a good model for intercessory prayer.* - Michael Eltham ###
+### Day 9: *Abraham is a good model for intercessory prayer.* - Michael Eltham ###
 
 The cities of Sodom and Gomorrah were committing grave sins and they were going to be destroyed. Abraham starts pleading with the Lord to save those people.
 
@@ -650,7 +650,7 @@ What a merciful God we serve 🙏🏼
 
 [![Hagar and Ishmael](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day010.jpg)](https://youtu.be/5I2BbalTOPo "Hagar and Ishmael")
 
-### Day10: *God will protect us even if when we mess up.* - Michael Eltham ###
+### Day 10: *God will protect us even if when we mess up.* - Michael Eltham ###
 
 We usually idealize people in the Bible and assume that they always had faith and never doubted. Our father in Faith Abraham himself failed. He lies about Sarah being his sister for fear of them taking her away. Abraham acted out of fear instead of faith.
 
@@ -700,7 +700,7 @@ Fear of the Lord will keep us from sin. All kinds of good will flow into the lif
 
 [![The Sacrifice of Isaac](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day011.jpg)](https://youtu.be/51FQLxXX5Rw "The Sacrifice of Isaac")
 
-### Day11: *God is always on time. * - Michael Eltham ###
+### Day 11: *God is always on time.* - Michael Eltham ###
 
 Faith on display, Abraham is called the Father of Faith because he trusted the Lord, to the extent of losing the thing Abraham loved the most, his son. Isaac was the promise of God and the only hope for Abraham to have descendants as many as the stars in the sky and sand on the seashore.
 
@@ -782,7 +782,7 @@ Galatians 2:6 St. Paul writes about the faith of Abraham "Remember Abraham: he b
 
 [![Isaac and Rebekah](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day012.jpg)](https://youtu.be/2lsnIGtU4Zg "Isaac and Rebekah")
 
-### Day12: *Dedication to daily devotion and work.* - Michael Eltham ###
+### Day 12: *Dedication to daily devotion and work.* - Michael Eltham ###
 
 The story of Isaac and Rebekah seems so smooth and as though they had a full revelation of God’s plan for their lives. But it was not so - it only seems so to the readers of their story.
 
@@ -840,7 +840,7 @@ God is faithful, even when we are unfaithful and He provides.
 
 [![Esau Sells His Birthright](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day013.jpg)](https://youtu.be/Tg5f77arXqQ "Esau Sells His Birthright")
 
-### Day13 Selling our inheritance for temporal pleasure ###
+### Day 13 Selling our inheritance for temporal pleasure ###
 
 Isaac and Rebecca were happily married but they did not have any children. God had promised Abraham descendants as many as the stars in the sky so it’s really important that Isaac has children. Although Abraham had children with Hagar his servant and other concubines, the lineage for Jesus should come through Abraham and Isaac. As we journey through the Bible we will see how the lineage is established from Adam to Jesus.
 
@@ -925,7 +925,7 @@ Once a child of God always a child of God.
 
 [![Leah Feels Unloved](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day015.jpg)](https://youtu.be/NktvfJSKafo "Leah Feels Unloved")
 
-### Day15: “What goes around comes around.” - Michael Eltham ###
+### Day 15: “What goes around comes around.” - Michael Eltham ###
 
 We see how Jacob the younger brother tricked Esau to get the birthright and the blessing - a few chapters back. Now Jacob gets tricked by Laban his father-in-law, who promises Rachel the younger daughter if Jocob works for  7 years, he tricks him into marrying Leah. Jacob has to work another 7 years to marry the one he loves Rachel.
 
@@ -963,7 +963,7 @@ We don't have to beat ourselves due to our brokenness but can instead grow in th
 
 [![The Suffering of Job](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day016.jpg)](https://youtu.be/3Ydar25mVnE "The Suffering of Job")
 
-### Day16: "If God is for us who can be against us" Rom 8:31 -Michael Eltham ###
+### Day 16: "If God is for us who can be against us" Rom 8:31 -Michael Eltham ###
 
 In today's reading Jacob hears God's voice calling him back to his Father's house - remember Jacob left in fear after stealing the blessing from his elder brother Esau. In a sense, Jacob had to deal with his deceptive and manipulative father-in-law Laban for many years. No matter how Laban tried to steal by changing what type of cattle belonged to him, God kept prospering Jacob's flock.
 
@@ -979,7 +979,7 @@ May the Holy Spirit lead us. 🙏
 
 [![Jacob Meets Esau](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day017.jpg)](https://youtu.be/P_LxijyXemQ "Jacob Meets Esau")
 
-### Day17: Why does a good God allow evil? ###
+### Day 17: Why does a good God allow evil? ###
 
 This is a fundamental question that many ask. In today's reading, we see how the daughter of Jacob was raped by the prince of the land. The bible states that this is not to happen, it clearly says that rape is not moral and is a sin. When Jacobs's sons heard of their sister's rape they were furious and deceived the prince and all males of the land and eventually killed them all. The question "Where is God when all of this is happening?" is one that comes to our mind. Is it just for that man to rape an innocent girl? Was it just for her brothers to be vengeful and murder all the men of the land?
 
@@ -1005,7 +1005,7 @@ When Jacob meets Esau he forgives him. His heart exuded love and mercy toward hi
 
 [![The Heart of Israel](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day018.jpg)](https://youtu.be/8AFfoGmfMYI "The Heart of Israel")
 
-### Day - 18 Fr Andrew ###
+### Day 18 Fr. Andrew ###
 
 Mk 3:7-12
 
@@ -1101,7 +1101,7 @@ So.. Each time we want out hearts or our desires to be fulfilled. Each time we f
 
 [![Judah and Tamar](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day020.jpg)](https://youtu.be/IxMOWEohb6s "Judah and Tamar")
 
-### Day20: "Onanism" and "Double standards"  - Michael Eltham ###
+### Day 20: "Onanism" and "Double standards"  - Michael Eltham ###
 
 Note: Today’s reflections is for mature audience only.
 
@@ -1142,7 +1142,7 @@ Let us not put aside what we can do for others when it is in our power, for we a
 
 [![Walking with God](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day021.jpg)](https://youtu.be/RV2ZyWevslI "Walking with God")
 
-### Day21: "Joseph the just" - Michael Eltham ###
+### Day 21: "Joseph the just" - Michael Eltham ###
 
 We see so many similarities between Joseph of the Old Testament and our dear St Joseph of the New Testament. Both had dreams and God communicated with them very clearly in their dreams. Both were forced to go to Egypt. Both were just men. We see how OT Joseph is chaste and does not succumb to the repeated advances of his master’s wife, he even fled from her.
 
@@ -1164,7 +1164,7 @@ Similarly, we too need to realize that.. No matter what happens in life... God i
 
 [![Go to Joseph](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day022.jpg)](https://youtu.be/N5QPHCYtr_c "Go to Joseph")
 
-### Day22: “Go to Joseph” - Michael Eltham ###
+### Day 22: “Go to Joseph” - Michael Eltham ###
 
 We read such a beautiful story of Gods providence today. God uses Joseph to provide for his family. Joseph was sold by his brother, falsely accused by his masters wife and eventually thrown in Jail. One would think that it’s the end of the road for him. But our God can bring streams in the desert vegetation in dry land. He does lift up Joseph by giving him the ability to interpret dreams. Now Joseph becomes the one who saves literally the whole world as there was a famine in the whole world. He literally was the defender of bread during the drought. Isn’t he similar to St Joseph who also flees to Egypt with Mary and defended the baby Jesus - the bread of life. One of the titles of Joseph is the worker - he worked hard to provide for Jesus - also the OT Joseph is a great worker as he worked for 7 years to collect grain so much grain that they were not able to measure it. Let us learn from these two great men in the Bible and be defenders of Jesus - the bread of life. Let us be defenders of the faith. 
 
@@ -1184,7 +1184,7 @@ For all of us especially those in any ministry, proclaiming the Word of God and
 
 [![Judah Changes](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day023.jpg)](https://youtu.be/A7q-74io-qY "Judah Changes")
 
-### Day23: “Keep hold of instruction, do not let go” - Michael Eltham ###
+### Day 23: “Keep hold of instruction, do not let go” - Michael Eltham ###
 
  “Walk in the path of the righteous and you will never stumble” 
 
@@ -1256,7 +1256,7 @@ May we allow, and even encourage, the boys and men in our lives to be true to th
 
 [![Job's Questioning](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day025.jpg)](https://youtu.be/mdu9C7LOSsc "Job's Questioning")
 
-### Day25: “Redemptive Suffering” - Michael Eltham ###
+### Day 25: “Redemptive Suffering” - Michael Eltham ###
 
 As we read through the book of Job we can’t but sympathize with Job. We see all the suffering that he is going through and feel sad for him. The 3 friends and the young man – can’t understand his suffering. They think he is lying when Job says that he did nothing wrong, because the Old Testament understating was that God prospers the good and the evil are punished with sickness and ruin.
 
