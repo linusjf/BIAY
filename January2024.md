@@ -97,6 +97,7 @@
   * [January 25,2024](#january-252024)
     + [Day25: “Redemptive Suffering” - Michael Eltham](#day25-redemptive-suffering---michael-eltham)
   * [January 26,2024](#january-262024)
+    + [Day 26: “A life well lived”](#day-26-a-life-well-lived)
 
 <!-- tocstop -->
 
@@ -1274,3 +1275,17 @@ May the Holy Spirit lead us 🙏
 ## January 26,2024 ##
 
 [![God Responds to Job](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day026.jpg)](https://youtu.be/owdEYkteyAY "God Responds to Job")
+
+### Day 26: “A life well lived” ###
+
+We read the life in summary of Job and Joseph. Two men who were “just”. Unlike Joseph’s broken family, Joseph seems to have been able to live out his entire life well. Even though his brothers did evil to him, he forgave them. After their father’s death, they had their doubts again, I’m sure this statement would have set them straight.
+
+“You meant it for evil, but God meant it for good so that many are saved. ”
+
+Romans 8:28 tells us, ‘…We know that in all things God works for the good of those who love Him, who have been called according to His purpose.’
+
+We can rest assured that we will eventually see the favor of the Lord. Even though we may have to go through many trials and sufferings. Our end will be blessed, and our generations to come will be blessed because of our closeness to the Lord.
+
+The stories of both the great men end with how they are blessed on earth. But those stories also mention that they died. Given that they were just men – I’m sure they have now received a great reward in Heaven. May that be our story as well, may we be called just and may all our paths be righteous. 
+
+May the Holy Spirit lead us 🙏
