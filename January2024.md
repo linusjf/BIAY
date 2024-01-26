@@ -93,7 +93,7 @@
     + [Day 23 - Jenita](#day-23---jenita)
   * [January 24,2024](#january-242024)
     + [Day 24: “Unity in the family” - Michael Eltham](#day-24-unity-in-the-family---michael-eltham)
-    + [BIAY Up to Day 24 (anonymous)](#biay-up-to-day-24-anonymous)
+    + [Up to Day 24 (anonymous)](#up-to-day-24-anonymous)
   * [January 25,2024](#january-252024)
     + [Day25: “Redemptive Suffering” - Michael Eltham](#day25-redemptive-suffering---michael-eltham)
   * [January 26,2024](#january-262024)
@@ -1221,7 +1221,7 @@ We choose our friends, but our family is given to us. Some people in the family 
 
 May the Holy Spirit lead us. 🙏
 
-### BIAY Up to Day 24 (anonymous) ###
+### Up to Day 24 (anonymous) ###
 
 Joseph! There's so much to love about him!
 
