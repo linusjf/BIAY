@@ -93,8 +93,10 @@
     + [Day 23 - Jenita](#day-23---jenita)
   * [January 24,2024](#january-242024)
     + [Day 24: “Unity in the family” - Michael Eltham](#day-24-unity-in-the-family---michael-eltham)
+    + [BIAY Up to Day 24 (anonymous)](#biay-up-to-day-24-anonymous)
   * [January 25,2024](#january-252024)
     + [Day25: “Redemptive Suffering” - Michael Eltham](#day25-redemptive-suffering---michael-eltham)
+  * [January 26,2024](#january-262024)
 
 <!-- tocstop -->
 
@@ -1218,6 +1220,37 @@ We choose our friends, but our family is given to us. Some people in the family 
 
 May the Holy Spirit lead us. 🙏
 
+### BIAY Up to Day 24 (anonymous) ###
+
+Joseph! There's so much to love about him!
+
+Did no wrong... was hated anyway.
+
+Gave credit to God for the skill/blessing of being able to understand and explain dreams.
+
+Recognised God's hand & God's providence in his life that led him to where he ended up... in the position of a saviour to those who hurt him.
+
+Forgave those who caused him harm... demonstrated a generous love.
+
+But my favourite thing about him—he cried.
+I'm so glad that this is even in the Bible!
+
+Men can cry.
+Men should cry.
+Crying is not a sign of weakness.
+Crying has nothing to do with gender.
+These are human emotions.
+Men are human.
+They should feel free to express themselves, and to cry...
+in pain,
+in fear,
+in sorrow,
+but even in joy!
+
+May we allow, and even encourage, the boys and men in our lives to be true to themselves, and cry whenever they feel like it.
+
+🥲
+
 ## January 25,2024 ##
 
 [![Job's Questioning](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day025.jpg)](https://youtu.be/mdu9C7LOSsc "Job's Questioning")
@@ -1237,3 +1270,7 @@ Let us look at the book of Job with the lens of Jesus’s suffering on the cross
 Along with making prayers for healing and taking good care of our bodies, we also need to offer up every suffering that we go through for the redemption of our soul and the souls of our  family, friends and enemies. :)
 
 May the Holy Spirit lead us 🙏
+
+## January 26,2024 ##
+
+[![God Responds to Job](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day026.jpg)](https://youtu.be/owdEYkteyAY "God Responds to Job")
