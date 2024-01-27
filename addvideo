@@ -31,6 +31,8 @@ if ./genoverlay "$vid" "$doy"; then
   echo "## $formatdt ##" >|"$fname"
   {
     echo
+    echo "### $caption ###"
+    echo
     echo "$md"
   } >>"$fname"
 

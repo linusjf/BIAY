@@ -4,99 +4,125 @@
 
 - [January 2024](#january-2024)
   * [January 01,2024](#january-012024)
+    + [In the Beginning](#in-the-beginning)
     + [Day 1 *We have God in our DNA* - Michael Eltham](#day-1-we-have-god-in-our-dna---michael-eltham)
     + [Day 1 - creation - Irene](#day-1---creation---irene)
     + [Day 1 - Gabriella](#day-1---gabriella)
   * [January 02,2024](#january-022024)
+    + [The Fall of Adam and Eve](#the-fall-of-adam-and-eve)
     + [Day 2: *Distrust and Disobedience* - Michael Eltham](#day-2-distrust-and-disobedience---michael-eltham)
     + [Day 2 – Alice To](#day-2-%E2%80%93-alice-to)
     + [Day 2 By Cynthia D'Silva](#day-2-by-cynthia-dsilva)
     + [Jenita Maria](#jenita-maria)
   * [January 03,2024](#january-032024)
+    + [Noah's Ark](#noahs-ark)
     + [Day 3: Walking with the Lord - Michael Eltham](#day-3-walking-with-the-lord---michael-eltham)
     + [Day 3 Name: Anonymous](#day-3-name-anonymous)
     + [Day 3 By Cynthia Dsilva](#day-3-by-cynthia-dsilva)
   * [January 04,2024](#january-042024)
+    + [The Flood](#the-flood)
     + [Day 4 *Why does God allow evil in the world?* - Michael Eltham](#day-4-why-does-god-allow-evil-in-the-world---michael-eltham)
     + [Day 4 Anonymous](#day-4-anonymous)
     + [Day 4 Cynthia D'Silva](#day-4-cynthia-dsilva)
   * [January 05,2024](#january-052024)
+    + [Tower of Babel](#tower-of-babel)
     + [Day 5: *Let us make a name for ourselves* - Michael Eltham](#day-5-let-us-make-a-name-for-ourselves---michael-eltham)
     + [Day 5 - Gabriella](#day-5---gabriella)
     + [Day 5 - Jenita](#day-5---jenita)
     + [Day-5 Anonymous](#day-5-anonymous)
   * [January 06,2024](#january-062024)
+    + [Trust in the Lord](#trust-in-the-lord)
     + [Day 6: Our struggle with faith - Michael Eltham](#day-6-our-struggle-with-faith---michael-eltham)
     + [Matt Redman - Music Video](#matt-redman---music-video)
     + [Day 6 - Joice Pereira](#day-6---joice-pereira)
   * [January 07,2024](#january-072024)
+    + [God's Covenant with Abram](#gods-covenant-with-abram)
     + [Day 7: *What’s the difference between a contract and a covenant?* - Michael Eltham](#day-7-whats-the-difference-between-a-contract-and-a-covenant---michael-eltham)
     + [Video: Intro to the Patriarchs](#video-intro-to-the-patriarchs)
   * [January 08,2024](#january-082024)
+    + [The Surrender of Abraham](#the-surrender-of-abraham)
     + [Day 8: *Taking things into our own hands* - Michael Eltham](#day-8-taking-things-into-our-own-hands---michael-eltham)
     + [Day 8 By Cynthia Dsilva](#day-8-by-cynthia-dsilva)
   * [January 09,2024](#january-092024)
+    + [Sodom and Gomorrah](#sodom-and-gomorrah)
     + [Day 9: *Abraham is a good model for intercessory prayer.* - Michael Eltham](#day-9-abraham-is-a-good-model-for-intercessory-prayer---michael-eltham)
     + [Day 9 - Jenita](#day-9---jenita)
   * [January 10,2024](#january-102024)
+    + [Hagar and Ishmael](#hagar-and-ishmael)
     + [Day 10: *God will protect us even if when we mess up.* - Michael Eltham](#day-10-god-will-protect-us-even-if-when-we-mess-up---michael-eltham)
     + [Day 10: Reflection (Chapter 20) By Joice Pereira](#day-10-reflection--chapter-20-by-joice-pereira)
   * [January 11,2024](#january-112024)
+    + [The Sacrifice of Isaac](#the-sacrifice-of-isaac)
     + [Day 11: *God is always on time.* - Michael Eltham](#day-11-god-is-always-on-time---michael-eltham)
     + [Day 11 Anonymous](#day-11-anonymous)
     + [Day 11 Jennie James](#day-11-jennie-james)
   * [January 12,2024](#january-122024)
+    + [Isaac and Rebekah](#isaac-and-rebekah)
     + [Day 12: *Dedication to daily devotion and work.* - Michael Eltham](#day-12-dedication-to-daily-devotion-and-work---michael-eltham)
     + [Day 12 Anonymous](#day-12-anonymous)
     + [Day 12 - Jenita](#day-12---jenita)
     + [Day 12 Anonymous](#day-12-anonymous-1)
   * [January 13,2024](#january-132024)
+    + [Esau Selks His Birthright](#esau-selks-his-birthright)
     + [Day 13 Selling our inheritance for temporal pleasure](#day-13-selling-our-inheritance-for-temporal-pleasure)
     + [Day 13 - Gabriella](#day-13---gabriella)
   * [January 14,2024](#january-142024)
+    + [Isaac Blesses Jacob](#isaac-blesses-jacob)
     + [Day 14: “We are not perfect” - Michael Eltham](#day-14-we-are-not-perfect---michael-eltham)
       - [Cathy Agarro](#cathy-agarro)
     + [Day 14 - Leena](#day-14---leena)
   * [January 15,2024](#january-152024)
+    + [Leah Feels Unloved](#leah-feels-unloved)
     + [Day 15: “What goes around comes around.” - Michael Eltham](#day-15-what-goes-around-comes-around---michael-eltham)
     + [Twelve Tribes of Israel](#twelve-tribes-of-israel)
     + [Day 15 - Rosetta -](#day-15---rosetta--)
     + [Day 15 By Simitra](#day-15-by-simitra)
   * [January 16,2024](#january-162024)
+    + [The Suffering of Job](#the-suffering-of-job)
     + [Day 16: "If God is for us who can be against us" Rom 8:31 -Michael Eltham](#day-16-if-god-is-for-us-who-can-be-against-us-rom-831--michael-eltham)
     + [Recap or Catch up](#recap-or-catch-up)
   * [January 17,2024](#january-172024)
+    + [Jacob Meets Esau](#jacob-meets-esau)
     + [Day 17: Why does a good God allow evil?](#day-17-why-does-a-good-god-allow-evil)
     + [Day 17 Simitra](#day-17-simitra)
     + [Day 17 - Gabriella](#day-17---gabriella)
   * [January 18,2024](#january-182024)
+    + [The Heart of Israel](#the-heart-of-israel)
     + [Day 18 Fr. Andrew](#day-18-fr-andrew)
     + [Day 18 Simitra](#day-18-simitra)
     + [Day 18 Anonymous](#day-18-anonymous)
     + [Day 18 "God is Faithful, even though we are not faithful." - Michael Eltham](#day-18-god-is-faithful-even-though-we-are-not-faithful---michael-eltham)
   * [January 19,2024](#january-192024)
+    + [Joseph and His Brothers](#joseph-and-his-brothers)
     + [Day 19 Jealousy, Envy, and Resentment are the perfect ingredients for a "Mess". - Michael Eltham](#day-19-jealousy-envy-and-resentment-are-the-perfect-ingredients-for-a-mess---michael-eltham)
     + [Day 19 Simitra](#day-19-simitra)
     + [Day-19 Anonymous](#day-19-anonymous)
     + [Day 19 - Jealousy](#day-19---jealousy)
   * [January 20,2024](#january-202024)
+    + [Judah and Tamar](#judah-and-tamar)
     + [Day 20: "Onanism" and "Double standards" - Michael Eltham](#day-20-onanism-and-double-standards----michael-eltham)
     + [Day 20 Simitra](#day-20-simitra)
   * [January 21,2024](#january-212024)
+    + [Walking with God](#walking-with-god)
     + [Day 21: "Joseph the just" - Michael Eltham](#day-21-joseph-the-just---michael-eltham)
     + [Day 21- Jenita](#day-21--jenita)
   * [January 22,2024](#january-222024)
+    + [Go to Joseph](#go-to-joseph)
     + [Day 22: “Go to Joseph” - Michael Eltham](#day-22-go-to-joseph---michael-eltham)
     + [Day 22 Simitra](#day-22-simitra)
   * [January 23,2024](#january-232024)
+    + [Judah Changes](#judah-changes)
     + [Day 23: “Keep hold of instruction, do not let go” - Michael Eltham](#day-23-keep-hold-of-instruction-do-not-let-go---michael-eltham)
     + [Day 23 - Jenita](#day-23---jenita)
   * [January 24,2024](#january-242024)
+    + [Tears of Joy](#tears-of-joy)
     + [Day 24: “Unity in the family” - Michael Eltham](#day-24-unity-in-the-family---michael-eltham)
     + [Up to Day 24 (anonymous)](#up-to-day-24-anonymous)
   * [January 25,2024](#january-252024)
+    + [Job's Questioning](#jobs-questioning)
     + [Day 25: “Redemptive Suffering” - Michael Eltham](#day-25-redemptive-suffering---michael-eltham)
   * [January 26,2024](#january-262024)
+    + [God Responds to Job](#god-responds-to-job)
     + [Day 26: “A life well lived”](#day-26-a-life-well-lived)
   * [January 27,2024](#january-272024)
     + [Introduction to Egypt & Exodus (with Jeff Cavins)](#introduction-to-egypt--exodus-with-jeff-cavins)
@@ -109,6 +135,8 @@
 BIAY January 2024
 
 ## January 01,2024 ##
+
+### In the Beginning ###
 
 [![In the Beginning](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day001.jpg)](https://youtu.be/BW0gXbEVYgA "In the Beginning")
 
@@ -192,6 +220,8 @@ PRAY & WORK = ORA ET LABORA
 God bless Fr. Mike for presenting the creation story so clearly. I didn't understand this in such detail before.
 
 ## January 02,2024 ##
+
+### The Fall of Adam and Eve ###
 
 [![The Fall of Adam and Eve](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day002.jpg)](https://youtu.be/WBg_xK44V0E "The Fall of Adam and Eve")
 
@@ -285,6 +315,8 @@ Giving the first hours of your day Or the first fruits of earnings to God shows 
 
 ## January 03,2024 ##
 
+### Noah's Ark ###
+
 [![Noah's Ark](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day003.jpg)](https://youtu.be/xs41k9YG7tQ "Noah's Ark")
 
 ### Day 3: Walking with the Lord - Michael Eltham ###
@@ -346,6 +378,8 @@ After God had already declared to Satan that He would put enmity between Satan a
 
 ## January 04,2024 ##
 
+### The Flood ###
+
 [![The Flood](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day004.jpg)](https://youtu.be/k4ksCrLNO2U "The Flood")
 
 ### Day 4 *Why does God allow evil in the world?* - Michael Eltham ###
@@ -403,6 +437,8 @@ We must be ready for eternal lie every day of our earthly life, by being in a st
 
 ## January 05,2024 ##
 
+### Tower of Babel ###
+
 [![Tower of Babel](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day005.jpg)](https://youtu.be/nBoRts9y6Ko "Tower of Babel")
 
 ### Day 5: *Let us make a name for ourselves* - Michael Eltham ###
@@ -452,6 +488,8 @@ Let our only aim be to Glorify our Creator,  who will always lift us up.
 
 ## January 06,2024 ##
 
+### Trust in the Lord ###
+
 [![Trust in the Lord](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day006.jpg)](https://youtu.be/c7YdwPuam-k "Trust in the Lord")
 
 ### Day 6: Our struggle with faith - Michael Eltham ###
@@ -489,6 +527,8 @@ Job is blameless and upright man who fears God and turns away from evil. In all 
 Proverb: The fear of the Lord  is the beginning of the knowledge.
 
 ## January 07,2024 ##
+
+### God's Covenant with Abram ###
 
 [![God's Covenant with Abram](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day007.jpg)](https://youtu.be/up30wE2u-AI "God's Covenant with Abram")
 
@@ -546,6 +586,8 @@ This is the introduction to the patriarchs video, we are in the patriarchs stage
 
 ## January 08,2024 ##
 
+### The Surrender of Abraham ###
+
 [![The Surrender of Abraham](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day008.jpg)](https://youtu.be/twgZUO-kyR0 "The Surrender of Abraham")
 
 ### Day 8: *Taking things into our own hands* - Michael Eltham ###
@@ -593,6 +635,8 @@ The future Davidic kingdom was, therefore, to be a restoration of what God had e
 🔥🔥🔥🔥🔥🔥🔥
 
 ## January 09,2024 ##
+
+### Sodom and Gomorrah ###
 
 [![Sodom and Gomorrah](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day009.jpg)](https://youtu.be/0P7pyHLz0CY "Sodom and Gomorrah")
 
@@ -652,6 +696,8 @@ What a merciful God we serve 🙏🏼
 
 ## January 10,2024 ##
 
+### Hagar and Ishmael ###
+
 [![Hagar and Ishmael](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day010.jpg)](https://youtu.be/5I2BbalTOPo "Hagar and Ishmael")
 
 ### Day 10: *God will protect us even if when we mess up.* - Michael Eltham ###
@@ -701,6 +747,8 @@ The Bible reveals that Job was a man who “feared God “. Job lost his childre
 Fear of the Lord will keep us from sin. All kinds of good will flow into the life of the person who fears the Lord.
 
 ## January 11,2024 ##
+
+### The Sacrifice of Isaac ###
 
 [![The Sacrifice of Isaac](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day011.jpg)](https://youtu.be/51FQLxXX5Rw "The Sacrifice of Isaac")
 
@@ -784,6 +832,8 @@ Galatians 2:6 St. Paul writes about the faith of Abraham "Remember Abraham: he b
 
 ## January 12,2024 ##
 
+### Isaac and Rebekah ###
+
 [![Isaac and Rebekah](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day012.jpg)](https://youtu.be/2lsnIGtU4Zg "Isaac and Rebekah")
 
 ### Day 12: *Dedication to daily devotion and work.* - Michael Eltham ###
@@ -841,6 +891,8 @@ How powerfully we rely on God's providence, even when we don't see.
 God is faithful, even when we are unfaithful and He provides.
 
 ## January 13,2024 ##
+
+### Esau Selks His Birthright ###
 
 [![Esau Sells His Birthright](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day013.jpg)](https://youtu.be/Tg5f77arXqQ "Esau Sells His Birthright")
 
@@ -903,6 +955,8 @@ _Have mercy on us O Lord, have mercy on us!_
 
 ## January 14,2024 ##
 
+### Isaac Blesses Jacob ###
+
 [![Isaaac Blesses Jacob](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day014.jpg)](https://youtu.be/JMX6nG7SIEw "Isaaac Blesses Jacob")
 
 ### Day 14: “We are not perfect” - Michael Eltham ###
@@ -926,6 +980,8 @@ Yes, we are all in need of redemption. And we thank Jesus for providing a way fo
 Once a child of God always a child of God.
 
 ## January 15,2024 ##
+
+### Leah Feels Unloved ###
 
 [![Leah Feels Unloved](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day015.jpg)](https://youtu.be/NktvfJSKafo "Leah Feels Unloved")
 
@@ -965,6 +1021,8 @@ We don't have to beat ourselves due to our brokenness but can instead grow in th
 
 ## January 16,2024 ##
 
+### The Suffering of Job ###
+
 [![The Suffering of Job](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day016.jpg)](https://youtu.be/3Ydar25mVnE "The Suffering of Job")
 
 ### Day 16: "If God is for us who can be against us" Rom 8:31 -Michael Eltham ###
@@ -980,6 +1038,8 @@ May the Holy Spirit lead us. 🙏
 ![Recap or Catch up](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Recap.jpg)
 
 ## January 17,2024 ##
+
+### Jacob Meets Esau ###
 
 [![Jacob Meets Esau](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day017.jpg)](https://youtu.be/P_LxijyXemQ "Jacob Meets Esau")
 
@@ -1006,6 +1066,8 @@ When Jacob meets Esau he forgives him. His heart exuded love and mercy toward hi
 *”_No soul will be justified until it turns with confidence to My mercy,_”* - St. Faustina, Diary 570
 
 ## January 18,2024 ##
+
+### The Heart of Israel ###
 
 [![The Heart of Israel](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day018.jpg)](https://youtu.be/8AFfoGmfMYI "The Heart of Israel")
 
@@ -1052,6 +1114,8 @@ Even though things seem not going right today (like Job), let us not lose hope f
 May the Holy Spirit Lead us. 🙏
 
 ## January 19,2024 ##
+
+### Joseph and His Brothers ###
 
 [![Joseph and His Brothers](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day019.jpg)](https://youtu.be/9aHl8VnadXw "Joseph and His Brothers")
 
@@ -1103,6 +1167,8 @@ So.. Each time we want out hearts or our desires to be fulfilled. Each time we f
 
 ## January 20,2024 ##
 
+### Judah and Tamar ###
+
 [![Judah and Tamar](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day020.jpg)](https://youtu.be/IxMOWEohb6s "Judah and Tamar")
 
 ### Day 20: "Onanism" and "Double standards"  - Michael Eltham ###
@@ -1144,6 +1210,8 @@ Let us not put aside what we can do for others when it is in our power, for we a
 
 ## January 21,2024 ##
 
+### Walking with God ###
+
 [![Walking with God](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day021.jpg)](https://youtu.be/RV2ZyWevslI "Walking with God")
 
 ### Day 21: "Joseph the just" - Michael Eltham ###
@@ -1166,6 +1234,8 @@ Similarly, we too need to realize that.. No matter what happens in life... God i
 
 ## January 22,2024 ##
 
+### Go to Joseph ###
+
 [![Go to Joseph](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day022.jpg)](https://youtu.be/N5QPHCYtr_c "Go to Joseph")
 
 ### Day 22: “Go to Joseph” - Michael Eltham ###
@@ -1185,6 +1255,8 @@ This shows us the humility of Joseph. He does not claim to have the understandin
 For all of us especially those in any ministry, proclaiming the Word of God and seeing signs and wonders, we need to be reminded that it is God alone who gives the growth and so in all of it God be glorified.
 
 ## January 23,2024 ##
+
+### Judah Changes ###
 
 [![Judah Changes](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day023.jpg)](https://youtu.be/A7q-74io-qY "Judah Changes")
 
@@ -1213,6 +1285,8 @@ Similarly although we may feel that this particular incident in our lives has le
 He is the God who restores.
 
 ## January 24,2024 ##
+
+### Tears of Joy ###
 
 [![Tears of Joy](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day024.jpg)](https://youtu.be/7y5ENYg8NWM "Tears of Joy")
 
@@ -1258,6 +1332,8 @@ May we allow, and even encourage, the boys and men in our lives to be true to th
 
 ## January 25,2024 ##
 
+### Job's Questioning ###
+
 [![Job's Questioning](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day025.jpg)](https://youtu.be/mdu9C7LOSsc "Job's Questioning")
 
 ### Day 25: “Redemptive Suffering” - Michael Eltham ###
@@ -1277,6 +1353,8 @@ Along with making prayers for healing and taking good care of our bodies, we als
 May the Holy Spirit lead us 🙏
 
 ## January 26,2024 ##
+
+### God Responds to Job ###
 
 [![God Responds to Job](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day026.jpg)](https://youtu.be/owdEYkteyAY "God Responds to Job")
 
