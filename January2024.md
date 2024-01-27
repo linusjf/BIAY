@@ -63,7 +63,7 @@
     + [Day 12 - Jenita](#day-12---jenita)
     + [Day 12 Anonymous](#day-12-anonymous-1)
   * [January 13,2024](#january-132024)
-    + [Esau Selks His Birthright](#esau-selks-his-birthright)
+    + [Esau Sells His Birthright](#esau-sells-his-birthright)
     + [Day 13 Selling our inheritance for temporal pleasure](#day-13-selling-our-inheritance-for-temporal-pleasure)
     + [Day 13 - Gabriella](#day-13---gabriella)
   * [January 14,2024](#january-142024)
@@ -892,7 +892,7 @@ God is faithful, even when we are unfaithful and He provides.
 
 ## January 13,2024 ##
 
-### Esau Selks His Birthright ###
+### Esau Sells His Birthright ###
 
 [![Esau Sells His Birthright](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day013.jpg)](https://youtu.be/Tg5f77arXqQ "Esau Sells His Birthright")
 
