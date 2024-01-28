@@ -130,7 +130,7 @@
     + [Day 27: “Jesus the new Moses” - Michael Eltham](#day-27-jesus-the-new-moses---michael-eltham)
   * [January 28,2024](#january-282024)
     + [The Burning Bush](#the-burning-bush)
-    + [Day28: “Reverence for God” - Michael Eltham](#day28-reverence-for-god---michael-eltham)
+    + [Day 28: “Reverence for God” - Michael Eltham](#day-28-reverence-for-god---michael-eltham)
 
 <!-- tocstop -->
 
@@ -1407,7 +1407,7 @@ May the Holy Spirit lead us. 🙏
 
 [![The Burning Bush](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day028.jpg)](https://youtu.be/MeiAiIcqd1g "The Burning Bush")
 
-### Day28: “Reverence for God” - Michael Eltham ###
+### Day 28: “Reverence for God” - Michael Eltham ###
 
 One thing that is on the decline in today's world is the reverence for God. We see people cursing and taking the Lord’s name in vain. We are taking God out of everything - schools, marriages, relationships, laws of the country.
 
