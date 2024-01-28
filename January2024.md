@@ -128,6 +128,9 @@
     + [Introduction to Egypt & Exodus (with Jeff Cavins)](#introduction-to-egypt--exodus-with-jeff-cavins)
     + [The Birth of Moses](#the-birth-of-moses)
     + [Day 27: “Jesus the new Moses” - Michael Eltham](#day-27-jesus-the-new-moses---michael-eltham)
+  * [January 28,2024](#january-282024)
+    + [The Burning Bush](#the-burning-bush)
+    + [Day28: “Reverence for God” - Michael Eltham](#day28-reverence-for-god---michael-eltham)
 
 <!-- tocstop -->
 
@@ -1397,3 +1400,27 @@ Jesus is the new Moses – their story has many similarities. The ruler/king is 
 Even Jesus found His bride at the well, the Samaritan women. Don’t be scandalized – she just represents humanity. Jesus is our spiritual bridegroom and we, His bride.
 
 May the Holy Spirit lead us. 🙏
+
+## January 28,2024 ##
+
+### The Burning Bush ###
+
+[![The Burning Bush](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day028.jpg)](https://youtu.be/MeiAiIcqd1g "The Burning Bush")
+
+### Day28: “Reverence for God” - Michael Eltham ###
+
+One thing that is on the decline in today's world is the reverence for God. We see people cursing and taking the Lord’s name in vain. We are taking God out of everything - schools, marriages, relationships, laws of the country.
+
+We see Moses’ first exposure to Divinity. He could not look at it and had to cover his face. God told him that he needed to take off his sandals for he was standing on Holy ground.
+
+We need to examine ourselves each time we come into God’s presence, whether it is personal prayer or Holy Eucharist. We need to examine our hearts and repent of any sin(take off our sandals) before we worship our God.
+
+ Receiving communion has become such a casual thing and the sacrament of confession has become a yearly affair. Let us examine our hearts and see if any mortal sins needs to be confessed. For we do not encounter just another person but God himself, the great “I AM”. He is the Alpha and the Omega the beginning and the end – there was nothing before Him and nothing comes after Him.
+
+God created us in His image and likeness, but we try to create God in our image and put him in a box – we ask Him his name, we ask what God can do, we ask if God can heal us, provide for us, etc. We seem to doubt God's power or will to do good sometimes. 
+
+We cannot comprehend God fully; we can just experience a few aspects of God. If God reveals himself fully to us – we will not be able to look (like Moses)
+
+Let us have a deeper reverence for the Lord. Take off our sandals of sin as we draw closer to the Lord.
+
+ May the Holy Spirit lead us 🙏.
