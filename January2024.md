@@ -135,6 +135,9 @@
   * [January 29,2024](#january-292024)
     + [Moses Returns to Egypt](#moses-returns-to-egypt)
     + [Day 29: "Finding excuses" - Michael Eltham](#day-29-finding-excuses---michael-eltham)
+  * [January 30,2024](#january-302024)
+    + [Nile Turned to Blood](#nile-turned-to-blood)
+    + [Day 30 “Hardness of heart” - Michael Eltham](#day-30-hardness-of-heart---michael-eltham)
 
 <!-- tocstop -->
 
@@ -1464,3 +1467,25 @@ Speaking of “I’m too Busy”. When Pharoah found out that the Israelites wan
 Do we have Pharaohs in our lives, or is part of us Pharaoh itself? When our soul yearns for the Lord, we come up with so many chores and tasks – that we neglect "dedicated Worship time "for the Lord. Let us stop making excuses and start worshiping the great I AM.
 
 May the Holy Spirit Lead us 🙏
+
+## January 30,2024 ##
+
+### Nile Turned to Blood ###
+
+[![Nile Turned to Blood](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day030.jpg)](https://youtu.be/4ov4fETX5cY "Nile Turned to Blood")
+
+### Day 30 “Hardness of heart” - Michael Eltham ###
+
+God had to remind Moses – over and over again, who God was. The God of your fathers – Abraham, Isaac, and Jacob. God wants to remind Moses that God is no random person but God almighty, the God who created us.
+
+Isn’t it the same with us? We have seen so many Miracles and seen how the Lord has provided for us till now, yet we doubt Him and are overly anxious about so many things. Our hearts are so hard.
+
+In Leviticus, we see how flexible God is towards us. For is allowing almost anything to be offered as a sin offering. One is supposed to offer a Ram but if they can’t afford it, they offer something as simple as flour. God does not want anything to stand in the way of His Mercy towards us.
+
+Like Pharaoh, we are hardening our hearts and don’t want to listen to God. Even though we see so many Miracles. Or maybe our hearts are full of doubt like Moses and Arron.
+
+“Today, if you hear his voice, do not harden your hearts” Heb 3:15
+
+May the Holy Spirit melt our stony hard hearts and give us Hearts of Flesh.
+
+May the Holy Spirit lead us. 🙏
