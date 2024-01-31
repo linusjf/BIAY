@@ -140,6 +140,7 @@
     + [Day 30 “Hardness of heart” - Michael Eltham](#day-30-hardness-of-heart---michael-eltham)
   * [January 31,2024](#january-312024)
     + [Frogs, Gnats, and Flies](#frogs-gnats-and-flies)
+    + [Day 31: “Instant prayers”](#day-31-instant-prayers)
 
 <!-- tocstop -->
 
@@ -1497,3 +1498,15 @@ May the Holy Spirit lead us. 🙏
 ### Frogs, Gnats, and Flies ###
 
 [![Frogs, Gnats, and Flies](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day031.jpg)](https://youtu.be/VqdJGQorGro "Frogs, Gnats, and Flies")
+
+### Day 31: “Instant prayers” ###
+
+We are used to getting what we want almost immediately. Drive-through food, ATM - Any time money, Instant money transfer, Instant coffee, Instant Pot, expecting an immediate reply to your text, instant relief, etc.
+
+We even expect God to respond immediately to our prayers, which does happen. However, sometimes God holds back his response/blessing so that we learn our life lessons. We need pain and suffering in our lives – for If we were self-sufficient, we would not need others or God. We would be focused on the physical world and not worry about our souls.
+
+Pharoah got tired of the frogs, gnats, and flies – he told Moses that he would let God’s people go if Moses could stop the plagues. When Moses asked when Pharaoh said tomorrow. Pharoah’s heart was not ready – Moses and Arron – did the Miracle and stopped the plagues – but Pharoah did not keep up his end of the deal, he did not let the people go.
+
+Sometimes when we receive answers to prayers too quickly – we are not really learning the lesson that we ought to. So let us not be in a hurry, let us petition the Lord and wait for Him to answer. In the expectant waiting – let us learn to love suffering and offer it up for our soul and for everyone else.
+
+May the Holy Spirit Lead us 🙏
