@@ -138,6 +138,8 @@
   * [January 30,2024](#january-302024)
     + [Nile Turned to Blood](#nile-turned-to-blood)
     + [Day 30 “Hardness of heart” - Michael Eltham](#day-30-hardness-of-heart---michael-eltham)
+  * [January 31,2024](#january-312024)
+    + [Frogs, Gnats, and Flies](#frogs-gnats-and-flies)
 
 <!-- tocstop -->
 
@@ -1489,3 +1491,9 @@ Like Pharaoh, we are hardening our hearts and don’t want to listen to God. Eve
 May the Holy Spirit melt our stony hard hearts and give us Hearts of Flesh.
 
 May the Holy Spirit lead us. 🙏
+
+## January 31,2024 ##
+
+### Frogs, Gnats, and Flies ###
+
+[![Frogs, Gnats, and Flies](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day031.jpg)](https://youtu.be/VqdJGQorGro "Frogs, Gnats, and Flies")
