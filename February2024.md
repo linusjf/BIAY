@@ -7,6 +7,8 @@
     + [Cattle, Boils, and Hail](#cattle-boils-and-hail)
     + [Day 32: “Habitual sins” - Michael Eltham](#day-32-habitual-sins---michael-eltham)
     + [Day 32 - Gabriella](#day-32---gabriella)
+  * [February 02,2024](#february-022024)
+    + [Locusts, Darkness, and Death of the First Born](#locusts-darkness-and-death-of-the-first-born)
 
 <!-- tocstop -->
 
@@ -53,3 +55,9 @@ I have also often pondered why does God harden Pharaoh’s heart? He did not tak
 
 *Hebrews 3:7–8*
 Therefore the Holy Spirit says, 'Today if you hear his voice, do not harden your hearts as in rebellion. . . “
+
+## February 02,2024 ##
+
+### Locusts, Darkness, and Death of the First Born ###
+
+[![Locusts, Darkness, and Death of the First Born](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day033.jpg)](https://youtu.be/YqYQ4HePEOE "Locusts, Darkness, and Death of the First Born")
