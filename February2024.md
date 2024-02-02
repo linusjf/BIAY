@@ -10,6 +10,8 @@
   * [February 02,2024](#february-022024)
     + [Locusts, Darkness, and Death of the First Born](#locusts-darkness-and-death-of-the-first-born)
     + [Day 33: “Idols and false gods”](#day-33-idols-and-false-gods)
+  * [February 03,2024](#february-032024)
+    + [The Passover Instituted](#the-passover-instituted)
 
 <!-- tocstop -->
 
@@ -82,3 +84,9 @@ Moses was not being sneaky but being honest here.
 We need to be honest as we journey through the BIAY and see what unfolds, how does God want us to worship? What does Jesus command us to do? “Do this in memory of me”
 
 May the Holy Spirit lead us. 🙏
+
+## February 03,2024 ##
+
+### The Passover Instituted ###
+
+[![The Passover Instituted](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day034.jpg)](https://youtu.be/7sPdLnUkhRE "The Passover Instituted")
