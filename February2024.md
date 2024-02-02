@@ -9,6 +9,7 @@
     + [Day 32 - Gabriella](#day-32---gabriella)
   * [February 02,2024](#february-022024)
     + [Locusts, Darkness, and Death of the First Born](#locusts-darkness-and-death-of-the-first-born)
+    + [Day 33: “Idols and false gods”](#day-33-idols-and-false-gods)
 
 <!-- tocstop -->
 
@@ -61,3 +62,23 @@ Therefore the Holy Spirit says, 'Today if you hear his voice, do not harden your
 ### Locusts, Darkness, and Death of the First Born ###
 
 [![Locusts, Darkness, and Death of the First Born](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day033.jpg)](https://youtu.be/YqYQ4HePEOE "Locusts, Darkness, and Death of the First Born")
+
+### Day 33: “Idols and false gods” ###
+
+We see the 10 plagues and would wonder why 10; Fr Mike explains it so beautifully about the 10 gods that the Egyptians had and Pharoah would not be content until he saw all those gods defeated. Our God, “God Almighty”, “the great I AM - Yahweh”, “the First and the Last”, “the source of all good” destroyed every false Egyptian god with each plague.
+
+God wanted to free His people so that they can go and worship Him.
+
+We have many false gods and idols in our lives. The dictionary meaning for god is “(in certain other religions) a superhuman being or spirit worshiped as having power over nature or human fortunes; a deity. “
+
+Let us examine our hearts to see what is it that has power over us? What is it that controls us?
+
+Could be our sins, incorrect beliefs, things, status, power, or people. Or it could be us creating God in our own image instead of learning who He is and how he wants to be worshiped.
+
+Moses tells Pharaoh that they need to also take the cattle along with them to worship the Lord because Moses does not know how God would want them to offer sacrifice.
+
+Moses was not being sneaky but being honest here.
+
+We need to be honest as we journey through the BIAY and see what unfolds, how does God want us to worship? What does Jesus command us to do? “Do this in memory of me”
+
+May the Holy Spirit lead us. 🙏
