@@ -12,6 +12,7 @@
     + [Day 33: “Idols and false gods”](#day-33-idols-and-false-gods)
   * [February 03,2024](#february-032024)
     + [The Passover Instituted](#the-passover-instituted)
+    + [Day 34: “Who is worthy” - Michael Eltham](#day-34-who-is-worthy---michael-eltham)
 
 <!-- tocstop -->
 
@@ -90,3 +91,41 @@ May the Holy Spirit lead us. 🙏
 ### The Passover Instituted ###
 
 [![The Passover Instituted](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day034.jpg)](https://youtu.be/7sPdLnUkhRE "The Passover Instituted")
+
+### Day 34: “Who is worthy” - Michael Eltham ###
+
+We all are familiar with what went down in the Passover. The explanation today in the podcast is remarkable, so many items to talk about. However, will stick to one. The uncircumcised shall not eat of the lamb.
+
+As described by Justin Martyr in the ~150 AD that the Eucharist was only received by some, even today only the baptized are allowed to receive communion.
+
+Modern beliefs (15th century) of “Saved by Faith alone” run into hot water when we go deeper in scripture and learn the true meaning, not just what it means in the 21st century, but by understating the traditions and history of the Israelites. Below are some points on why Baptism is considered so important to be saved, to be integrated into the church, and to prepare us to receive the Eucharist.
+
+Unlike the common definition for born again – “Believe in your heart and confess with your lips and you will be saved”
+
+Jesus in His own words teaches us how to be born again, “Very truly I tell you, no one can enter the kingdom of God unless they are born of water and the Spirit.” John 3:5
+
+Water & Spirit
+
+We can see the water & Spirit theme from Genesis.
+
+1. At the dawn of creation, we see water and Spirit hovering over the waters and this beautiful world was created.
+
+2. Noah and his family passed through the water(flood) and finally they send out the dove to see if there is dry land. The dove is a symbol of Spirit. They are saved again – we have the theme of water and Spirit.
+
+3. We see the Israelites crossing the red see(water), led by smoke by day and fire by night.
+
+Smoke and fire are symbols of the Holy Spirit. Again when they are saved we have the theme of water and Spirit.
+
+4. Israelites Crossing the Jordan to the promised Land
+
+5. Jesus was baptized – in the water of Jordan and the Holy Spirit came down like a dove.
+
+6. So you are being saved by BAPTISIM, really initiated to be saved. (Water baptism)
+
+7. Then you are confirmed with the Holy Spirit in the sacrament of confirmation. (Spirit baptism)
+
+8. Then you periodically cleanse yourself in the Sacrament of Confession
+
+9. You nourish yourself by receiving Jesus Body and Blood in the Sacrament of the Eucharist.
+
+May the Holy Spirit lead us 🙏
