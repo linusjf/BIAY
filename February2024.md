@@ -13,6 +13,8 @@
   * [February 03,2024](#february-032024)
     + [The Passover Instituted](#the-passover-instituted)
     + [Day 34: “Who is worthy” - Michael Eltham](#day-34-who-is-worthy---michael-eltham)
+  * [February 04,2024](#february-042024)
+    + [Crossing the Red Sea](#crossing-the-red-sea)
 
 <!-- tocstop -->
 
@@ -129,3 +131,9 @@ Smoke and fire are symbols of the Holy Spirit. Again when they are saved we have
 9. You nourish yourself by receiving Jesus Body and Blood in the Sacrament of the Eucharist.
 
 May the Holy Spirit lead us 🙏
+
+## February 04,2024 ##
+
+### Crossing the Red Sea ###
+
+[![Crossing the Red Sea](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day035.jpg)](https://youtu.be/ckv9Lc74htE "Crossing the Red Sea")
