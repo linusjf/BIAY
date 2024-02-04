@@ -15,6 +15,7 @@
     + [Day 34: “Who is worthy” - Michael Eltham](#day-34-who-is-worthy---michael-eltham)
   * [February 04,2024](#february-042024)
     + [Crossing the Red Sea](#crossing-the-red-sea)
+    + [Day 35: “The Lord is fighting for us” - Michael Eltham](#day-35-the-lord-is-fighting-for-us---michael-eltham)
 
 <!-- tocstop -->
 
@@ -137,3 +138,25 @@ May the Holy Spirit lead us 🙏
 ### Crossing the Red Sea ###
 
 [![Crossing the Red Sea](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day035.jpg)](https://youtu.be/ckv9Lc74htE "Crossing the Red Sea")
+
+### Day 35: “The Lord is fighting for us” - Michael Eltham ###
+
+We see how the Israelites get impatient and start complaining, that they were better off in Egypt.
+
+But God tells us not to give us, not to succumb to the small trials we face. We need to “be still”, for the Lord is fighting for us. Does that mean we need to do nothing? Or maybe it means we need to stand our ground, keep doing good, resist the enemy and persevere.
+
+Let us not trust in our own ability or strength. We need to just keep moving forward in the direction the Lord is leading us, even though it seems hard and there is no possible solution.
+
+The Lord will make a way where there seems to be no way, He will open up the sea to lead us a dry path. Just keep doing what He commands you to do, our perseverance will be rewarded with a "breakthrough".
+
+The Lord will crush the enemy that pursues us, that comes after us. The Lord will wipe them out from the face of the earth, like Pharoah and his chariots – there will be none left.
+
+“If God is for us, who can be against us?” Rom 8:31
+
+“Some trust in chariots and some in horses, but we trust in the name of the LORD our God.” Ps 20:7
+
+Jer 20:11 “”
+
+But the Lord is with me as a dread warrior; therefore my persecutors will stumble, they will not overcome me. They will be greatly shamed, for they will not succeed. “
+
+May the Holy Spirit lead us. 🙏
