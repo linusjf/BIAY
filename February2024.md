@@ -16,6 +16,10 @@
   * [February 04,2024](#february-042024)
     + [Crossing the Red Sea](#crossing-the-red-sea)
     + [Day 35: “The Lord is fighting for us” - Michael Eltham](#day-35-the-lord-is-fighting-for-us---michael-eltham)
+    + [Day 35 Anonymous](#day-35-anonymous)
+  * [February 05,2024](#february-052024)
+    + [Manna From Heaven](#manna-from-heaven)
+    + [Day 36: “Murmuring for Manna to Murmuring about the True presence of Jesus in the Eucharist.” - Michael Eltham](#day-36-murmuring-for-manna-to-murmuring-about-the-true-presence-of-jesus-in-the-eucharist---michael-eltham)
 
 <!-- tocstop -->
 
@@ -158,5 +162,37 @@ The Lord will crush the enemy that pursues us, that comes after us. The Lord wil
 Jer 20:11 “”
 
 But the Lord is with me as a dread warrior; therefore my persecutors will stumble, they will not overcome me. They will be greatly shamed, for they will not succeed. “
+
+May the Holy Spirit lead us. 🙏
+
+### Day 35 Anonymous ### 
+
+Joseph's bones were carried out of Egypt as told by him.  This is an eye-opener to me, as I wondered why remains are preserved even today.
+GOD has revealed Himself in humility,  poverty, allowed us to torture Hiim.
+The Lord fights for you, you have to only keep still.
+
+## February 05,2024 ##
+
+### Manna From Heaven ###
+
+[![Manna From Heaven](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day036.jpg)](https://youtu.be/1WTXCYU6f7U "Manna From Heaven")
+
+### Day 36: “Murmuring for Manna to Murmuring about the True presence of Jesus in the Eucharist.” - Michael Eltham ###
+
+A few weeks after the great Miracle of the Red Sea parting, the Israelites start their murmuring.
+
+They look back at the days of their slavery and say it would have been better for us to have died in the land of Egypt, at least we had enough to eat. God rains Manna from heaven, the bread that came down from heaven. This bread that they ate sustained them for the journey to the promised land.
+
+This was just a prefiguration of what we have today in Jesus Christ. Jesus is the bread of life, the bread that came down from Heaven. Jesus was born in Bethlehem - which means “House of Bread”.
+
+Jesus offers us His body in the Eucharist, our daily Manna. The food that will sustain us on our journey to the promised land – Heaven.
+
+Jesus referred to this incident in John 6
+
+“I am the bread of life. 49 Your ancestors ate the manna in the wilderness, and they died. 50 This is the bread that comes down from heaven, so that one may eat of it and not die. 51 I am the living bread that came down from heaven. Whoever eats of this bread will live forever; and the bread that I will give for the life of the world is my flesh.”
+
+Most people started “murmuring” after this teaching – about eating his flesh. They said this teaching was too difficult and they stopped following Jesus. If the bread he offered was just symbolic and not real flesh, they would have not left, Jesus meant His flesh. We will deep dive into this when we get to John.
+
+Are we murmuring about the true presence of Jesus in the Eucharist? The Eucharist is truly Jesus’ Body and Blood, the food that will sustain us on our journey to Heaven.
 
 May the Holy Spirit lead us. 🙏
