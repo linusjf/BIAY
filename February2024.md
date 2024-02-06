@@ -25,6 +25,8 @@
   * [February 06,2024](#february-062024)
     + [The Mystical Works of God](#the-mystical-works-of-god)
     + [Day 37: “Water from the Rock - Jesus” - Michael Eltham](#day-37-water-from-the-rock---jesus---michael-eltham)
+  * [February 07,2024](#february-072024)
+    + [The Ten Commandments](#the-ten-commandments)
 
 <!-- tocstop -->
 
@@ -242,3 +244,9 @@ When the soldiers pierced His side, blood and water poured out. The living water
 Jesus fulfils this promise on Pentecost, He send the Holy Spirit the Living waters to become within us a spring of water gushing  up to eternal life.
 
 May the Holy Spirit lead us 🙏
+
+## February 07,2024 ##
+
+### The Ten Commandments ###
+
+[![The Ten Commandments](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day038.jpg)](https://youtu.be/vAZYQXQl-zI "The Ten Commandments")
