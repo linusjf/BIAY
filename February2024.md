@@ -20,6 +20,11 @@
   * [February 05,2024](#february-052024)
     + [Manna From Heaven](#manna-from-heaven)
     + [Day 36: “Murmuring for Manna to Murmuring about the True presence of Jesus in the Eucharist.” - Michael Eltham](#day-36-murmuring-for-manna-to-murmuring-about-the-true-presence-of-jesus-in-the-eucharist---michael-eltham)
+    + [Day 36 Simitra](#day-36-simitra)
+    + [Day 36 Anonymous](#day-36-anonymous)
+  * [February 06,2024](#february-062024)
+    + [The Mystical Works of God](#the-mystical-works-of-god)
+    + [Day 37: “Water from the Rock - Jesus” - Michael Eltham](#day-37-water-from-the-rock---jesus---michael-eltham)
 
 <!-- tocstop -->
 
@@ -196,3 +201,44 @@ Most people started “murmuring” after this teaching – about eating his fle
 Are we murmuring about the true presence of Jesus in the Eucharist? The Eucharist is truly Jesus’ Body and Blood, the food that will sustain us on our journey to Heaven.
 
 May the Holy Spirit lead us. 🙏
+
+### Day 36 Simitra ###
+
+Exodus 16:17-18, "And the people of Israel did so. They gathered, some more, some less. But when they measured it with an omer, whoever gathered much had nothing left over, and whoever gathered little had no lack. Each of them gathered as much as he could eat".
+
+Irrespective of the quantity they collected, those who collected  much did not have left over and those who collected less were not in lack.
+
+This is so profound. If only we can look at this and know that no matter how much we accumulate it will never be sufficient for our greed however those who are in poverty are  living their lives relying on God to give them their fill each day and so are filled.
+
+So let us live to worship God. We are given six days to work and keep one day -the Sabbath Holy as it is the day that we are to praise and worship God for his goodness. One day to praise and thank God, so that we remember that we have His grace with us on the six days that we work.
+
+### Day 36 Anonymous ###
+
+God is training them. Trying to teach His people who He is and the degree to which they can trust Him.  He is faithful.   We have to be obedient to Him, His commandments.   He told the people of Israel not to keep food He gave them for the next day.  Yet some disobeyed and kept, but next day it was spoilt.  God shows how truthful He is.  But when God commanded them to gather on the sixth day for 2 days as it was Sabbath, Holy to The Lord, the food never spoilt.  Such is the Power of God Almighty.  What He says He does.
+All Glory to HIM!
+
+## February 06,2024 ##
+
+### The Mystical Works of God ###
+
+[![The Mystical Works of God](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day037.jpg)](https://youtu.be/E1KpvQIdeco "The Mystical Works of God")
+
+### Day 37: “Water from the Rock - Jesus” - Michael Eltham ###
+
+Before we get into the water from the rock, there is a moving image of the power of intercessory prayer. We see when Moses held up his hands the Israelites prevailed and when he put his hand down the Amaleks prevailed. When his hands grew weary Arron and Hur helped lift them up.
+
+The life lesson to learn here is – when we encounter difficult situations and big problems(war) we need to lift up our arms in prayer (Be still for the Lord is fighting for us – we ought to keep praying and stand our ground) and when we get weary of praying we need our family, friends and community to support us in prayer.
+
+“Israelites the fault finders” sounds a little harsh when we call them out like this, but aren’t we being fault finders when we call out their fault. Let’s put ourselves in their shoes and we would possibly do the same if we were without water. We would probably say “Isn’t God with us?”
+
+The Lord command Moses to strike the rock with his rod and water flowed out. This quenched their thirst.
+
+Jesus the new Moses is the rock Himself, the rock of ages, the stone that the builders rejected.
+
+When the soldiers pierced His side, blood and water poured out. The living water – the Holy Spirit – the water that Jesus spoke about at the well to the Samaritan women.
+
+“Everyone who drinks of this water will be thirsty again, 14 but those who drink of the water that I will give them will never be thirsty. The water that I will give will become in them a spring of water gushing up to eternal life.” Jh 4:13
+
+Jesus fulfils this promise on Pentecost, He send the Holy Spirit the Living waters to become within us a spring of water gushing  up to eternal life.
+
+May the Holy Spirit lead us 🙏
