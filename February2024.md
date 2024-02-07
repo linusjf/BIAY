@@ -27,6 +27,8 @@
     + [Day 37: “Water from the Rock - Jesus” - Michael Eltham](#day-37-water-from-the-rock---jesus---michael-eltham)
   * [February 07,2024](#february-072024)
     + [The Ten Commandments](#the-ten-commandments)
+  * [February 08,2024](#february-082024)
+    + [Slavery in the Old Testament](#slavery-in-the-old-testament)
 
 <!-- tocstop -->
 
@@ -250,3 +252,9 @@ May the Holy Spirit lead us 🙏
 ### The Ten Commandments ###
 
 [![The Ten Commandments](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day038.jpg)](https://youtu.be/vAZYQXQl-zI "The Ten Commandments")
+
+## February 08,2024 ##
+
+### Slavery in the Old Testament ###
+
+[![Slavery in the Old Testament](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day039.jpg)](https://youtu.be/otX2IGrq7wI "Slavery in the Old Testament")
