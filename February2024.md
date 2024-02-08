@@ -27,8 +27,10 @@
     + [Day 37: “Water from the Rock - Jesus” - Michael Eltham](#day-37-water-from-the-rock---jesus---michael-eltham)
   * [February 07,2024](#february-072024)
     + [The Ten Commandments](#the-ten-commandments)
+    + [Day 38 “Relationship and Rules” - Michael Eltham](#day-38-relationship-and-rules---michael-eltham)
   * [February 08,2024](#february-082024)
     + [Slavery in the Old Testament](#slavery-in-the-old-testament)
+    + [Day 39 “God delivered Israelites from slavery, now He will slowly remove slavery from their hearts” - Michael Eltham](#day-39-god-delivered-israelites-from-slavery-now-he-will-slowly-remove-slavery-from-their-hearts----michael-eltham)
 
 <!-- tocstop -->
 
@@ -253,8 +255,30 @@ May the Holy Spirit lead us 🙏
 
 [![The Ten Commandments](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day038.jpg)](https://youtu.be/vAZYQXQl-zI "The Ten Commandments")
 
+### Day 38 “Relationship and Rules” - Michael Eltham ###
+
+No relationship will flourish without rules. There is no sport without rules, no school without school rules, imagine driving on a road without any traffic rules, would you put your money in a bank with no rules and anyone could withdraw your money. Rules are for the common good of all.
+
+When you buy any product, it will always come with a manual to use the product. No one will put stainless steel containers in a microwave or fill water in a car gas tank. Without knowing we are following rules in the world, what if you decide to not believe in the law of gravity and decide to walk off a skyscraper. Foolishness. :)
+
+God gave us commandments not to burden us or to make us miserable. But to give us a guideline to live the good life. Just imagine if everyone followed the commandments, if everyone had a right relationship with God, honored their parents, did not steal, kill, or commit adultery. It would have been heaven on earth. Being human we tend to dabble with sin, we look for momentary satisfaction and a shortcut (For example: eating the forbidden fruit to become like God)
+
+Sin causes shame, like Adam and Eve we want to hide from God. We lose our right relationship with God which leaves us empty. We try to fill this emptiness with more temporary satisfaction by committing more sin. We will never rest until we rest in God.
+
+Let us rise up and go to the Father who is waiting for us. Try again to follow His commandments so that it will be good with us and we are in the right state with God, we will walk with Him fearlessly in the Garden in the cool of the evening.
+
+May the Holy Spirit lead us 🙏
+
 ## February 08,2024 ##
 
 ### Slavery in the Old Testament ###
 
 [![Slavery in the Old Testament](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day039.jpg)](https://youtu.be/otX2IGrq7wI "Slavery in the Old Testament")
+
+### Day 39 “God delivered Israelites from slavery, now He will slowly remove slavery from their hearts”  - Michael Eltham ###
+
+Like Fr Mike explained so beautifully, God must deal gently with us broken human beings. If we take the reading out of context, we can tend to say that God likes slavery and hence made rules for the slaves. If God does not stoop down to our level, we will not be able to bare God, just like when God spoke to his people on mount Sanai a few chapters ago it was like thunder and the people requested Moses that God not speak to them, rather Moses be the listener. 
+
+A nocturnal creature like a rodent – would flee to hide when there is a bright light turned ON. In the same way, if God reveals Himself to us directly, we will die of awe. We will be blinded like Saul(St Paul) we will be consumed by His fire of Love. God is dealing gently with the Israelites who were slaves for generations (400 years), slavery is a way of life for them. It’s just like bringing an abused pet home, we need to first let the pet know that we are not going to hurt it. We need to give it space, and offer it some calm, some care, although we want to go and hug it and tell it that we mean no harm, the pet is not in a state to understand care and love – it will bite us if we approach it with too much of enthusiasm. It took God little time to get the Israelites out of slavery (Egypt) but will take many years to get slavery (Egypt) out of their hearts. Let us journey with them, as the Lord journeys with us to lead us slowly and gently to wholeness as He leads the Israelites to the promised land both physically and mentally. 
+
+May the Holy Spirit lead us. 🙏
