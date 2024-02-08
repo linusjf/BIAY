@@ -31,6 +31,8 @@
   * [February 08,2024](#february-082024)
     + [Slavery in the Old Testament](#slavery-in-the-old-testament)
     + [Day 39 “God delivered Israelites from slavery, now He will slowly remove slavery from their hearts” - Michael Eltham](#day-39-god-delivered-israelites-from-slavery-now-he-will-slowly-remove-slavery-from-their-hearts----michael-eltham)
+  * [February 09,2024](#february-092024)
+    + [Laws of Justice](#laws-of-justice)
 
 <!-- tocstop -->
 
@@ -282,3 +284,9 @@ Like Fr Mike explained so beautifully, God must deal gently with us broken human
 A nocturnal creature like a rodent – would flee to hide when there is a bright light turned ON. In the same way, if God reveals Himself to us directly, we will die of awe. We will be blinded like Saul(St Paul) we will be consumed by His fire of Love. God is dealing gently with the Israelites who were slaves for generations (400 years), slavery is a way of life for them. It’s just like bringing an abused pet home, we need to first let the pet know that we are not going to hurt it. We need to give it space, and offer it some calm, some care, although we want to go and hug it and tell it that we mean no harm, the pet is not in a state to understand care and love – it will bite us if we approach it with too much of enthusiasm. It took God little time to get the Israelites out of slavery (Egypt) but will take many years to get slavery (Egypt) out of their hearts. Let us journey with them, as the Lord journeys with us to lead us slowly and gently to wholeness as He leads the Israelites to the promised land both physically and mentally. 
 
 May the Holy Spirit lead us. 🙏
+
+## February 09,2024 ##
+
+### Laws of Justice ###
+
+[![Laws of Justice](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day040.jpg)](https://youtu.be/zDgMhpvzoFU "Laws of Justice")
