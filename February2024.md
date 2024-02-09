@@ -33,6 +33,8 @@
     + [Day 39 “God delivered Israelites from slavery, now He will slowly remove slavery from their hearts” - Michael Eltham](#day-39-god-delivered-israelites-from-slavery-now-he-will-slowly-remove-slavery-from-their-hearts----michael-eltham)
   * [February 09,2024](#february-092024)
     + [Laws of Justice](#laws-of-justice)
+  * [February 10,2024](#february-102024)
+    + [The Day of Atonement](#the-day-of-atonement)
 
 <!-- tocstop -->
 
@@ -290,3 +292,9 @@ May the Holy Spirit lead us. 🙏
 ### Laws of Justice ###
 
 [![Laws of Justice](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day040.jpg)](https://youtu.be/zDgMhpvzoFU "Laws of Justice")
+
+## February 10,2024 ##
+
+### The Day of Atonement ###
+
+[![The Day of Atonement](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day041.jpg)](https://youtu.be/7HQsLHrXcw4 "The Day of Atonement")
