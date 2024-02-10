@@ -33,8 +33,10 @@
     + [Day 39 “God delivered Israelites from slavery, now He will slowly remove slavery from their hearts” - Michael Eltham](#day-39-god-delivered-israelites-from-slavery-now-he-will-slowly-remove-slavery-from-their-hearts----michael-eltham)
   * [February 09,2024](#february-092024)
     + [Laws of Justice](#laws-of-justice)
+    + [Day 40: “Only Mortal sin makes us unworthy of receiving communion, not just bodily discharge” - Michael Eltham](#day-40-only-mortal-sin-makes-us-unworthy-of-receiving-communion-not-just-bodily-discharge---michael-eltham)
   * [February 10,2024](#february-102024)
     + [The Day of Atonement](#the-day-of-atonement)
+    + [Day 41: “Atonement for sins – Confession & Eucharist”](#day-41-atonement-for-sins-%E2%80%93-confession--eucharist)
 
 <!-- tocstop -->
 
@@ -293,8 +295,55 @@ May the Holy Spirit lead us. 🙏
 
 [![Laws of Justice](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day040.jpg)](https://youtu.be/zDgMhpvzoFU "Laws of Justice")
 
+### Day 40: “Only Mortal sin makes us unworthy of receiving communion, not just bodily discharge” - Michael Eltham ###
+
+We are invited to the great banquet, the lamb’s supper – we receive Jesus’ body and blood. To respond to this invitation, we must prepare ourselves for so great and so holy a moment. 
+
+St. Paul urges us to examine our conscience: "Whoever, therefore, eats the bread or drinks the cup of the Lord in an unworthy manner will be guilty of profaning the body and blood of the Lord. Let a man examine himself, and so eat of the bread and drink of the cup. For anyone who eats and drinks without discerning the body eats and drinks judgment upon himself."218 Anyone conscious of a grave sin must receive the sacrament of Reconciliation before coming to communion. CC 1385
+
+The reason I bring it up is for us not to get too worried about instructions in Leviticus about becoming unclean from bodily discharge. Remember these instructions are Baby steps that will evolve into solid teaching by the time Jesus comes.
+
+The only thing that makes us unworthy of receiving communion is Mortal sin. If the bodily discharge is due to a mortal sin then you are unworthy due to the mortal sin, not the bodily discharge alone.
+
+“But what comes out of the man, that is what defiles him.
+ From within the man, from his heart,
+ come evil thoughts, unchastity, theft, murder,
+ adultery, greed, malice, deceit,
+ licentiousness, envy, blasphemy, arrogance, folly.
+ All these evils come from within and they defile.”Mk 7:21-23
+
+Jesus is making it very clear that we should not pay too much attention to outward things but focus on the heart, for from the heart comes sin and it is sin that defiles us.
+
+Congratulations on making it to day 40, the number 40 means a long time in the bible. Kudos to us.
+
+May the Holy Spirit Lead us. 🙏
+
 ## February 10,2024 ##
 
 ### The Day of Atonement ###
 
 [![The Day of Atonement](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day041.jpg)](https://youtu.be/7HQsLHrXcw4 "The Day of Atonement")
+
+### Day 41: “Atonement for sins – Confession & Eucharist” ###
+
+Instructions given for atonement of sins are so detailed and clear, two lambs were needed – one for the priests and one for the people, placing the sins on the lamb and sacrificing one and sending the other one out to the wilderness to die.
+
+Jesus is the spotless lamb of God who takes away the sin of the world. He does not need two lambs as He was the priest himself, a priest in the order of Melchizedek, He had no sins and only had to carry the sins of the people.
+
+“ Unlike the other high priests, he has no need to offer sacrifices day after day, first for his own sins, and then for those of the people; this he did once for all when he offered himself. “ Heb 7:27
+
+We need not offer lambs, goats, or bulls anymore as Jesus paid for our sins once and for all. However, we are invited to celebrate the Lamb's supper everyday “Do this in memory of me”.
+
+We are invited to the “Atonement of sins” and the sacrifice literally every day at Mass and mandatory once a week on Sunday.
+
+We need to prepare for Mass by checking our hearts for any unconfessed sins.
+
+We need to pray with the Psalmist and examine our conscience
+
+Search me, O God, and know my heart; test me and know my thoughts. See if there is any wicked way in me, and lead me in the way everlasting.
+
+Ps 139:23-24
+
+If our sins are Venial then a Confession is not Mandatory as the truly repented "Venial" sins are forgiven at Mass, but if it’s a Mortal sin we need to make a confession to be made worthy to receive communion.
+
+May the Holy Spirit lead us. 🙏
