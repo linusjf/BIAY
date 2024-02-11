@@ -37,6 +37,9 @@
   * [February 10,2024](#february-102024)
     + [The Day of Atonement](#the-day-of-atonement)
     + [Day 41: “Atonement for sins – Confession & Eucharist”](#day-41-atonement-for-sins-%E2%80%93-confession--eucharist)
+  * [February 11,2024](#february-112024)
+    + [Moral Laws](#moral-laws)
+    + [Day 42: “Moral Law” - Michael Eltham](#day-42-moral-law---michael-eltham)
 
 <!-- tocstop -->
 
@@ -345,5 +348,37 @@ Search me, O God, and know my heart; test me and know my thoughts. See if there 
 Ps 139:23-24
 
 If our sins are Venial then a Confession is not Mandatory as the truly repented "Venial" sins are forgiven at Mass, but if it’s a Mortal sin we need to make a confession to be made worthy to receive communion.
+
+May the Holy Spirit lead us. 🙏
+
+## February 11,2024 ##
+
+### Moral Laws ###
+
+[![Moral Laws](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day042.jpg)](https://youtu.be/IdnEHXWyjaI "Moral Laws")
+
+### Day 42: “Moral Law” - Michael Eltham ###
+
+As we hear the laws and detailed instructions, we can’t help but realize how privileged we are, we don’t live in barbarous times. We live in Nations that have laws and regulations. We also have something called the natural and moral law. We have manners and acceptable social behavior. Let’s thank the Lord for He is the source of all good. 
+
+James 1:17 “ Everything good comes from God”.
+
+CCC 1961 God, our Creator and Redeemer, chose Israel for himself to be his people and revealed his Law to them, thus preparing for the coming of Christ. The Law of Moses expresses many truths naturally accessible to reason. These are stated and authenticated within the covenant of salvation.
+
+Many of these laws are still relevant today and that’s why marriage is not permitted for those closely related, the human race has come a long way.
+
+However, we notice that the sexual immorality that was happening back then is still happening in our sociality today. Instead of correcting the bad behavior, society praises them and the government law permits it.
+
+We need to heed the warning of the Lord lest our nations will be destroyed.
+
+Lev 18: 22-24
+
+“Men, you must not have sexual relations with another man as with a woman. That is a terrible sin!
+
+“Men, you must not have sexual relations with any animal. This will make you filthy. And women, you must not have sexual relations with any animal. It is against nature!
+
+“Don’t make yourself unclean by doing any of these wrong things! I am throwing nations off their land and giving it to you because they did those terrible sins.
+
+They made the land filthy. Now the land is sick of those things, and it will vomit out the people who live there.
 
 May the Holy Spirit lead us. 🙏
