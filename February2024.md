@@ -40,6 +40,8 @@
   * [February 11,2024](#february-112024)
     + [Moral Laws](#moral-laws)
     + [Day 42: “Moral Law” - Michael Eltham](#day-42-moral-law---michael-eltham)
+  * [February 12,2024](#february-122024)
+    + [The Ark of the Covenant](#the-ark-of-the-covenant)
 
 <!-- tocstop -->
 
@@ -382,3 +384,9 @@ Lev 18: 22-24
 They made the land filthy. Now the land is sick of those things, and it will vomit out the people who live there.
 
 May the Holy Spirit lead us. 🙏
+
+## February 12,2024 ##
+
+### The Ark of the Covenant ###
+
+[![The Ark of the Covenant](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day043.jpg)](https://youtu.be/8BrRBQ4GKGo "The Ark of the Covenant")
