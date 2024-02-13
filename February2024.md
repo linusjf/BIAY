@@ -40,9 +40,14 @@
   * [February 11,2024](#february-112024)
     + [Moral Laws](#moral-laws)
     + [Day 42: “Moral Law” - Michael Eltham](#day-42-moral-law---michael-eltham)
+    + [Day 42 - Jenita](#day-42---jenita)
+    + [Day 42 Anonymous](#day-42-anonymous)
   * [February 12,2024](#february-122024)
     + [The Ark of the Covenant](#the-ark-of-the-covenant)
     + [Day 43: “The Tabernacle, His presence” - Michael Eltham.](#day-43-the-tabernacle-his-presence---michael-eltham)
+    + [Day 43 Simitra](#day-43-simitra)
+  * [February 13,2024](#february-132024)
+    + [Priestly Garments](#priestly-garments)
 
 <!-- tocstop -->
 
@@ -386,6 +391,26 @@ They made the land filthy. Now the land is sick of those things, and it will vom
 
 May the Holy Spirit lead us. 🙏
 
+### Day 42 - Jenita ###
+
+In these reading we see how God constantly watches and cares for his children. 
+
+He sees to their every need and ensures they are fit to be in his presence. 
+
+The people show acts of trust, and thats what we need to learn today. 
+
+
+Trust in God and obey his laws
+
+### Day 42 Anonymous ###
+
+Despite His wonders they did  not believe. 
+Their  heart was not steadfast towards Him.
+The temptations to 
+Forget what U hv done.
+How good You are, and how fickle  we can be.
+3 -laws-  a particular kind of Society,  temple worship and sexual morality - this is an universal, absolute commandment.
+
 ## February 12,2024 ##
 
 ### The Ark of the Covenant ###
@@ -401,3 +426,18 @@ The Old Testament bread was just bread offered up to the Lord, but our NT bread 
 And let us not forget that the mercy seat was built on top of the ark of the covenant – just to remind us that God’s mercy is above the law. He loves us first and has mercy towards us, the law is something we need to follow to be better lovers of God and Neighbour. But His Mercy exceeds the law. We are saved by His Mercy and not by following the law.
 
 May the Holy Spirit Lead us. 🙏
+
+### Day 43 Simitra ###
+
+Exodus 25:30
+And you shall set the bread of the Presence on the table before me always.
+
+The bread of the presence was placed in the Holy Place for which there was no direct access to the people of Israel.
+
+However today Jesus the bread of Life is not only placed in the Tabernacle daily but is also willingly entering into our hearts. How blessed we are as Roman Catholics to receive the presence of God through the Holy Eucharist DAILY. Thank you Jesus for nourishing us with your body, the bread of life daily.
+
+## February 13,2024 ##
+
+### Priestly Garments ###
+
+[![Priestly Garments](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day044.jpg)](https://youtu.be/D125Rck-CmQ "Priestly Garments")
