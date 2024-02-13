@@ -51,6 +51,8 @@
     + [Day 44: “Priests' clothes during Worship aren’t Jeans and T-shirt” - Michael Eltham](#day-44-priests-clothes-during-worship-arent-jeans-and-t-shirt---michael-eltham)
     + [Golden Garments of the Kohen Gadol Shemot](#golden-garments-of-the-kohen-gadol-shemot)
     + [Bishop's Garments](#bishops-garments)
+  * [February 14,2024](#february-142024)
+    + [Pray for Priests](#pray-for-priests)
 
 <!-- tocstop -->
 
@@ -464,3 +466,9 @@ May the Holy Spirit lead us.
 ### Bishop's Garments ###
 
 ![Bishop's Garments](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/IMG-20240213-WA0002.jpg)
+
+## February 14,2024 ##
+
+### Pray for Priests ###
+
+[![Pray for Priests](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day045.jpg)](https://youtu.be/GWWc17LJngM "Pray for Priests")
