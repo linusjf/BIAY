@@ -53,6 +53,10 @@
     + [Bishop's Garments](#bishops-garments)
   * [February 14,2024](#february-142024)
     + [Pray for Priests](#pray-for-priests)
+    + [Day 45: “Holy Priests and celibacy”](#day-45-holy-priests-and-celibacy)
+  * [February 15,2024](#february-152024)
+    + [Set Apart for God](#set-apart-for-god)
+    + [Day 46: “Holy Oil, Holy water, Holy stuff, Sacramentals”](#day-46-holy-oil-holy-water-holy-stuff-sacramentals)
 
 <!-- tocstop -->
 
@@ -472,3 +476,57 @@ May the Holy Spirit lead us.
 ### Pray for Priests ###
 
 [![Pray for Priests](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day045.jpg)](https://youtu.be/GWWc17LJngM "Pray for Priests")
+
+### Day 45: “Holy Priests and celibacy” ###
+
+When major clergy scandals come up, we can very easily blame the priests and the bishops. However, we need to remember that priests come from families and from the community. There is a lot of sin and corruption in this world that has influenced everyone laity and priests alike. We need to pray and support our brother priests to lead a holy life. And we need to also bring to justice those who have violated the innocence of others.
+
+The catholic priests are called to imitate Jesus at a higher level, hence are also called to celibacy.
+
+Below is an excerpt from “Catholic Answers ”
+
+In examining the issue of celibacy, we should first address its historical development in the life of the Church and then its spiritual basis and relevance for today’s clergy.
+
+Our Lord presented celibacy as a legitimate lifestyle not only by His very life since He never married but also in His teaching. When our Lord emphasized that marriage was a covenant between husband and wife and thereby prohibited divorce and re-marriage (cf. Matthew 19:3-12), He concluded, “Some men are incapable of sexual activity from birth; some have been deliberately made so; and some there are who have freely renounced sex for the sake of God’s reign.” Traditionally, our Church– as evidenced in the Catechism (#1579)– points to this “free renunciation of sex for the sake of God’s reign” as a basis for celibacy.
+
+Nevertheless, in the early Church, clerical celibacy was not mandated. St. Paul in his first letter to St. Timothy wrote, “A bishop must be irreproachable, married only once, of even temper, self-controlled, modest, and hospitable” (3:2) and “Deacons may be married but once and must be good managers of their children and their households” (3:12). However, one should not erroneously construe this teaching to mean that a bishop, priest, or deacon had to be married; St. Paul admitted that he himself was not married (I Corinthians 7:8).
+
+Read more https://catholicstraightanswers.com/why-does-the-church-mandate-that-priests-be-celibate/
+
+Let us pray for our priest today.
+
+May the Holy Spirit lead us 🙏
+
+## February 15,2024 ##
+
+### Set Apart for God ###
+
+[![Set Apart for God](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day046.jpg)](https://youtu.be/UYClL-9IDGo "Set Apart for God")
+
+### Day 46: “Holy Oil, Holy water, Holy stuff, Sacramentals” ###
+
+It’s fascinating to see how many of the practices in the catholic church stem from OT instructions from the Lord. The sabbath law, the consecrating of cups, temples, altars, and priests.
+
+We see that priests were anointed with oil. One thing to call out is there is no intrinsic power in the oil or the oil on its own has no power - it’s the method God prescribes.
+
+Just as we dedicate different bowls for different purposes, the bowls used to feed the dogs won’t be used to feed the kids.
+
+When something is blessed – all we do is mark it for special use, for a supernatural purpose.
+
+That’s why the priests are anointed and set apart to do God’s work.
+
+Even oils, water, salt, medals, prayer cloths, bibles, pictures, and statues are used, once blessed are called “sacramentals” They are used for sacramental purposes and for personal prayer use.
+
+The blessed items are holy and will help remind us to pray and even ward off evil. It can be used when praying prayers of healing or deliverance. Many miracles have taken place with the use of sacramentals.
+
+One of the Biblical references for sacramentals can be seen in acts, where handkerchiefs from Paul healed sick people.
+
+Acts 29: 11, 12 “God did extraordinary miracles through Paul, so that when the handkerchiefs or aprons that had touched his skin were brought to the sick, their diseases left them, and the evil spirits came out of them.”
+
+Go on Sprinkle some Holy water 😃
+
+Joke: How do you make holy water? 
+
+Boil the hell out of it. 😂
+
+May the Holy Spirit lead us. 🙏
