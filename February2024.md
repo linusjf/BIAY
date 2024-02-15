@@ -57,6 +57,8 @@
   * [February 15,2024](#february-152024)
     + [Set Apart for God](#set-apart-for-god)
     + [Day 46: “Holy Oil, Holy water, Holy stuff, Sacramentals”](#day-46-holy-oil-holy-water-holy-stuff-sacramentals)
+  * [February 16,2024](#february-162024)
+    + [The Golden Calf](#the-golden-calf)
 
 <!-- tocstop -->
 
@@ -530,3 +532,9 @@ Joke: How do you make holy water?
 Boil the hell out of it. 😂
 
 May the Holy Spirit lead us. 🙏
+
+## February 16,2024 ##
+
+### The Golden Calf ###
+
+[![The Golden Calf](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day047.jpg)](https://youtu.be/rCAaZjEWy34 "The Golden Calf")
