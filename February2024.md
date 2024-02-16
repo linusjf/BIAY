@@ -60,6 +60,8 @@
   * [February 16,2024](#february-162024)
     + [The Golden Calf](#the-golden-calf)
     + [Day 47: “Man-O-Man what a man - Moses” “We the stiff-necked people want to make God in our own image” “Be a Levite – on the Lord’s Side”](#day-47-man-o-man-what-a-man---moses-we-the-stiff-necked-people-want-to-make-god-in-our-own-image-be-a-levite-%E2%80%93-on-the-lords-side)
+  * [February 17,2024](#february-172024)
+    + [God's Presence](#gods-presence)
 
 <!-- tocstop -->
 
@@ -561,3 +563,9 @@ We need to be defenders of the faith in this world, we need to take a stand agai
 We need to proclaim the Word of God and give every soul an opportunity to be saved.
 
 May the Holy Spirit Lead us.🙏
+
+## February 17,2024 ##
+
+### God's Presence ###
+
+[![God's Presence](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day048.jpg)](https://youtu.be/-LqhdCd_rjo "God's Presence")
