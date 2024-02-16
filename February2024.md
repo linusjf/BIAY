@@ -59,6 +59,7 @@
     + [Day 46: “Holy Oil, Holy water, Holy stuff, Sacramentals”](#day-46-holy-oil-holy-water-holy-stuff-sacramentals)
   * [February 16,2024](#february-162024)
     + [The Golden Calf](#the-golden-calf)
+    + [Day 47: “Man-O-Man what a man - Moses” “We the stiff-necked people want to make God in our own image” “Be a Levite – on the Lord’s Side”](#day-47-man-o-man-what-a-man---moses-we-the-stiff-necked-people-want-to-make-god-in-our-own-image-be-a-levite-%E2%80%93-on-the-lords-side)
 
 <!-- tocstop -->
 
@@ -538,3 +539,25 @@ May the Holy Spirit lead us. 🙏
 ### The Golden Calf ###
 
 [![The Golden Calf](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day047.jpg)](https://youtu.be/rCAaZjEWy34 "The Golden Calf")
+
+### Day 47: “Man-O-Man what a man - Moses” “We the stiff-necked people want to make God in our own image” “Be a Levite – on the Lord’s Side” ###
+
+There is a lot going on in this one Chapter on the Golden calf. Moses goes up for a time of awesome experience with God, receives tablets that were written by God’s own finger.
+
+The people waiting for Moses go impatient and uncertain, remember God performed great Miracles for these people – brought them out of Egypt by making a dry path in the red sea, manna from heaven, water from the rock, quails from the sky, etc. Yet they get impatient they go to Aaron for a solution.
+
+Aaron does the unthinkable – he takes all the gold and makes a calf. Are we not like Aaron and the Israelites, we go impatient and want to take things into our own hands. Isn’t this Pandemic making us a little impatient and we just want to take things into our own hands.
+
+In general, we tend to take what is good and make it the “ultimate”. We take the good things of this world like science, riches, medicine, technology, learning, job, spouses, children, earthly leaders and make little gods out of them, rather than using the things of this world we start misusing them, and then we eventually become salves of these false gods of power, fame, status, fitness, looks, beauty, health. We are a stiff-necked people who want to even take control of God, we want to make of HIM an idol, put him on the shelf when we don’t want Him, bring Him out when we need Him.
+
+On one side we see the evil stiff-necked people and on the other side, we see this Holy Man Moses.
+
+He puts himself on the line - Interceding for the people he prays “Lord blot out my name – but please forgive them”. Just how Abraham pleaded for Sodom and Gomorrah and Moses for the idolaters – You and Me are called to be Intercessorsfor this broken and sinful world.
+
+We are called to be Levites, the tribe that ordained themselves by standing up for the Lord. When Moses cried out “Who is on the Lord's side” the Levites took up sword and slay 3000 Men.
+
+We need to be defenders of the faith in this world, we need to take a stand against all evil. Please don’t take up swords and start slaying people, but take up the Word of God, the double edge sword, learn it, and use it to slay the evil forces, evil thoughts, and evil theory in this world.
+
+We need to proclaim the Word of God and give every soul an opportunity to be saved.
+
+May the Holy Spirit Lead us.🙏
