@@ -62,6 +62,7 @@
     + [Day 47: “Man-O-Man what a man - Moses” “We the stiff-necked people want to make God in our own image” “Be a Levite – on the Lord’s Side”](#day-47-man-o-man-what-a-man---moses-we-the-stiff-necked-people-want-to-make-god-in-our-own-image-be-a-levite-%E2%80%93-on-the-lords-side)
   * [February 17,2024](#february-172024)
     + [God's Presence](#gods-presence)
+    + [Day 48: “Personal relationship with God” “Eucharistic Adoration - Our tent of the presence”](#day-48-personal-relationship-with-god-eucharistic-adoration---our-tent-of-the-presence)
 
 <!-- tocstop -->
 
@@ -569,3 +570,19 @@ May the Holy Spirit Lead us.🙏
 ### God's Presence ###
 
 [![God's Presence](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day048.jpg)](https://youtu.be/-LqhdCd_rjo "God's Presence")
+
+### Day 48: “Personal relationship with God” “Eucharistic Adoration - Our tent of the presence” ###
+
+We see this beautiful relationship that Moses had with God. He goes up into the Tent of the Presence regularly and spends time with God. When he came out his face was transformed glowing and radiant. Although he did not see God’s face (no one can live after seeing God's face) when Moses went into the tent the pillar of cloud would descend and stand at the entrance of the tent, and the Lord would speak with Moses. Even though Moses wanted to see God in all His glory the Lord spared Moses and told him that no one could live if they saw God in all His glory. He did see God's back.
+
+Let us not feel jealous of Moses, we have our own tent of meeting in the Eucharistic Lord. When we go to Eucharistic Adoration, we see God’s face in the host. It is truly God’s face because He said “This is my body”. The only reason we don’t see Jesus in all His splendor and glory is for our sake. If we see God’s glory fully revealed we will not be able to live. Although the effect is the same, if you look at people who frequent Eucharistic adoration, their faces will be glowing. Look at pictures of many saints their faces seem aglow, and they have a hallow as well. All saints love adoration, Mother Theresa would frequent adoration before and after her busy day – this gave her the strength needed to serve the poor and the ability to see Jesus in each person she met.
+
+To be able to live this life of vows, these four vows, we need our life to be woven with the Eucharist. That’s why we begin our day with Jesus in the Holy Eucharist. With him, we go forward. And when we come back in the evening we have one hour of adoration before Jesus in the Blessed Sacrament, and at this you will be surprised, that we have not had to cut down our work for the poor.
+
+-Saint Mother Theresa.
+
+Here in the adoration, we can like Moses ask for anything and it will be given to us.
+
+If it’s not for God's presence, we cannot move forward. Like Moses we need to tell the Lord unless you come with us we will not go anywhere. I'm sure the Lord will grant us this request.
+
+May the Holy Spirit lead us 🙏
