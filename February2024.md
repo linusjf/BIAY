@@ -63,6 +63,9 @@
   * [February 17,2024](#february-172024)
     + [God's Presence](#gods-presence)
     + [Day 48: “Personal relationship with God” “Eucharistic Adoration - Our tent of the presence”](#day-48-personal-relationship-with-god-eucharistic-adoration---our-tent-of-the-presence)
+  * [February 18,2024](#february-182024)
+    + [The Year of Jubilee](#the-year-of-jubilee)
+    + [Day 49: “A willing and cheerful giver”](#day-49-a-willing-and-cheerful-giver)
 
 <!-- tocstop -->
 
@@ -585,4 +588,19 @@ Here in the adoration, we can like Moses ask for anything and it will be given t
 
 If it’s not for God's presence, we cannot move forward. Like Moses we need to tell the Lord unless you come with us we will not go anywhere. I'm sure the Lord will grant us this request.
 
+May the Holy Spirit lead us 🙏
+
+## February 18,2024 ##
+
+### The Year of Jubilee ###
+
+[![The Year of Jubilee](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day049.jpg)](https://youtu.be/rG1InQh9tjg "The Year of Jubilee")
+
+### Day 49: “A willing and cheerful giver” ###
+
+As we read the blueprint that God gives the Israelites, the details are so many. If I was given these instructions, I would say let’s just make a square box for the tablets and get done with it. I would think why all this fuss about the hooks, the poles, the mercy seat, the curtains, the jewelry, the altars, the utensils, the lamps.
+But the Israelites responded with great willingness, they came everyone whose heart stirred him, everyone whose spirit moved him, men and women, with different skills weaving, constructing, etc. The people started looking for stuff in their houses, they brought jewelry, fine cloth, anything of value, they brought stuff every day.
+“The people bring much more than enough for doing the work which the Lord has commanded us to do. So the people were restrained from bringing; for the stuff they had was sufficient to all the work and more” Ex 35:5,7
+There is something for us to learn from the Israelites, we need to cultivate this attitude towards God’s work. We should go out of our way to give towards the Gospel, give of our time, our talent, and our resources. We should be willing and our hearts should be stirring to do God’s work and to love our neighbor.
+“God loves a cheerful giver.” 2 Cor 9:7
 May the Holy Spirit lead us 🙏
