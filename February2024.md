@@ -69,6 +69,7 @@
     + [Day 49 Anonymous](#day-49-anonymous)
   * [February 19,2024](#february-192024)
     + [Sacrificial Offerings](#sacrificial-offerings)
+    + [Day 50 “Obedience” - Michael Eltham](#day-50-obedience---michael-eltham)
 
 <!-- tocstop -->
 
@@ -621,3 +622,9 @@ Thank You Lord, for Your mercies n not letting us be slaves forever!
 ### Sacrificial Offerings ###
 
 [![Sacrificial Offerings](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day050.jpg)](https://youtu.be/RsiztOG3g-E "Sacrificial Offerings")
+
+### Day 50 “Obedience” - Michael Eltham ###
+In Leviticus 26 we see detailed explanations on what happens to those who are obedient and those who disobey.
+The promise of the Lord for the obedient are many, the most important is “I will walk with you, I will be your God”. I think this is important as we recall the story of creation, where God walked with Adam and Eve in the cool of the evening. It’s reminding me of that story where a prince of a kingdom wanted to give gifts to a few dedicated people, others picked land and gold but one maiden picked the prince himself. She said, “If I have the prince, I have everything else”. That is the best choice that we need to make as well.
+We also see the detail of wrath, looks like those who disobey the Lord, get more and more punishment. Like a good Father, God does not want to punish us but cause us to choose him over things of the world, we need to be obedient to be restored to what our first parents lost. If we are obedient the promise is great, “I will walk with you, I am you, God”. We will walk with the Lord in the cool of the evening. We will experience His presence in our daily lives.
+May the Holy Spirit Lead us. 🙏
