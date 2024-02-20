@@ -73,6 +73,9 @@
   * [February 20,2024](#february-202024)
     + [Israel's Worship of God](#israels-worship-of-god)
     + [Day 51 “Getting worship of God right” "Votive offerings"](#day-51-getting-worship-of-god-right-votive-offerings)
+  * [February 21,2024](#february-212024)
+    + [Introduction to Desert Wanderings (with Jeff Cavins)](#introduction-to-desert-wanderings-with-jeff-cavins)
+    + [Israel Continues to Journey](#israel-continues-to-journey)
 
 <!-- tocstop -->
 
@@ -647,3 +650,13 @@ How about going beyond the Sunday obligation and going to church on a few weekda
 If we have an attitude of “If I wake up I’ll go” we need to change it and be more precise like the Levites, measure out what we can do and what we want to do for the Lord, dedicated it to the Lord and He will make sure all hurdles are removed for us to do what we intend to do.
 Congratulations on completing Exodus and Leviticus!!!
 May the Holy Spirit lead us. 🙏
+
+## February 21,2024 ##
+
+### Introduction to Desert Wanderings (with Jeff Cavins) ###
+
+[![Introduction to Desert Wanderings (with Jeff Cavins)](https://raw.githubusercontent.com/linusjf/BIAY/main/February/desertwanderings.jpg)](https://youtu.be/vobPC8MPi0Y "Introduction to Desert Wanderings (with Jeff Cavins)")
+
+### Israel Continues to Journey ###
+
+[![Israel Continues to Journey](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day052.jpg)](https://youtu.be/mgdtG9DM-wQ "Israel Continues to Journey")
