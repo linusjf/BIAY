@@ -76,6 +76,10 @@
   * [February 21,2024](#february-212024)
     + [Introduction to Desert Wanderings (with Jeff Cavins)](#introduction-to-desert-wanderings-with-jeff-cavins)
     + [Israel Continues to Journey](#israel-continues-to-journey)
+    + [Day 52 “Names, names, names – God was serious when he said I have called you by name” - Michael Eltham](#day-52-names-names-names-%E2%80%93-god-was-serious-when-he-said-i-have-called-you-by-name---michael-eltham)
+  * [February 22,2024](#february-222024)
+    + [The Twelve Tribes of Israel](#the-twelve-tribes-of-israel)
+    + [Day 53 “Following the guidance of the Lord” - Michael Eltham](#day-53-following-the-guidance-of-the-lord---michael--eltham)
 
 <!-- tocstop -->
 
@@ -660,3 +664,53 @@ May the Holy Spirit lead us. 🙏
 ### Israel Continues to Journey ###
 
 [![Israel Continues to Journey](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day052.jpg)](https://youtu.be/mgdtG9DM-wQ "Israel Continues to Journey")
+
+### Day 52 “Names, names, names – God was serious when he said I have called you by name” - Michael Eltham ###
+As we hear the names and the numbers we tend to tune out, it’s totally normal for us. Our capacity as human beings is limited, we can only care for ourselves, our family, and our friends.
+However the Lord cares for everyone, he loves each one of us so intimately that
+“He knows when we sit down and when we raise up, when we go out and when we come in. Even before a word is on our lips He already knows it.” Ps 139.
+“Even your very hair is numbered: – Mat 10
+He chose us
+“You did not choose me, but I chose you and appointed you” John 15
+“Before I formed you in the womb I knew you, before you were born I set you apart; I appointed you as a prophet to the nations.” Jer 1:5
+This knowledge is too much for us to understand, that our creator can love each one in such a personal way. We cannot even imagine how the Lord can love billions and billions and zillions of people across centuries. That he can care about every little thing about each person that ever existed. Even the most complex network of computer servers cannot come close to the knowledge of God. We are truly blessed to be God's chosen children. 
+My favorite part of today’s psalm - 84:
+Better is one day in your courts
+  than a thousand elsewhere;
+ I would rather be a doorkeeper in the house of my God
+  than dwell in the tents of the wicked.
+I have never come out of prayer sad or hopeless. Every time we pray – we encounter God and no one leaves the presence of God sad and hopeless.
+“Prayer is the best weapon we possess. It is the key that opens the heart of God.”
+St Padre Pio. 
+May the Holy Spirit lead us 🙏
+
+## February 22,2024 ##
+
+### The Twelve Tribes of Israel ###
+
+[![The Twelve Tribes of Israel](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day053.jpg)](https://youtu.be/AYnxI_XyO00 "The Twelve Tribes of Israel")
+
+### Day 53 “Following the guidance of the Lord” - Michael  Eltham ###
+
+We see how the Lord gives them detailed instruction on how to deal with the different cities/tribes that they come across. He said that he should not fight some people (Esau’s descendants) but buy food and water from them, and then fight with those who do not let them pass. God has a plan for them, he knows the future and will guide them according to His path.
+
+In the same way, the Lord has plans for us.
+
+Jer 29:11 “For I know the plans I have for you,” declares the LORD, “plans to prosper you and not to harm you, plans to give you hope and a future.”
+
+We need to lean on the Lord in prayer to hear His heart and to learn what He wants of us.
+
+“Trust in the Lord with all your heart, and do not lean on your own understanding. In all your ways acknowledge him, and he will make straight your paths.” Prov 3:5-6
+
+We can find God’s heart as we read His word. His word will guide us on the right path.
+
+“Your word is a lamp to my feet and a light to my path.” Ps 119:105
+
+And always remember just as the tribe of Judah always marched first. Our praise should also go up first. Judah means praise.
+
+May this Psalm be our song, may praise always be on our lips.
+
+Ps 34: “I will bless the Lord at all times;
+  his praise shall continually be in my mouth.”
+
+May the Holy Spirit Lead us 🙏
