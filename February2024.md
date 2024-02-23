@@ -80,6 +80,8 @@
   * [February 22,2024](#february-222024)
     + [The Twelve Tribes of Israel](#the-twelve-tribes-of-israel)
     + [Day 53 “Following the guidance of the Lord” - Michael Eltham](#day-53-following-the-guidance-of-the-lord---michael--eltham)
+  * [February 23,2024](#february-232024)
+    + [The Tribe of Levi](#the-tribe-of-levi)
 
 <!-- tocstop -->
 
@@ -714,3 +716,9 @@ Ps 34: “I will bless the Lord at all times;
   his praise shall continually be in my mouth.”
 
 May the Holy Spirit Lead us 🙏
+
+## February 23,2024 ##
+
+### The Tribe of Levi ###
+
+[![The Tribe of Levi](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day054.jpg)](https://youtu.be/17Q3BIbfO8U "The Tribe of Levi")
