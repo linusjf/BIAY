@@ -86,6 +86,8 @@
   * [February 24,2024](#february-242024)
     + [Obedience to God](#obedience-to-god)
     + [Day 55 “Teach my words to your children”](#day-55-teach-my-words-to-your-children)
+  * [February 25,2024](#february-252024)
+    + [Jealous Husbands](#jealous-husbands)
 
 <!-- tocstop -->
 
@@ -766,3 +768,9 @@ We need to remember his Law and his Word and teach it to our children and their 
 “Assemble the people for me, and I will let them hear my words, so that they may learn to fear me as long as they live on the earth, and may teach their children “ Deuteronomy 4:5
 We are responsible for tomorrow's generation. Let us teach and kids and grandkids about God and His word.
 May the Holy Spirit Lead us. 🙏
+
+## February 25,2024 ##
+
+### Jealous Husbands ###
+
+[![Jealous Husbands](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day056.jpg)](https://youtu.be/oZsJMk7lmh8 "Jealous Husbands")
