@@ -83,6 +83,9 @@
   * [February 23,2024](#february-232024)
     + [The Tribe of Levi](#the-tribe-of-levi)
     + [Day 54: “Don’t take your faith for granted, work out your salvation”](#day-54-dont-take-your-faith-for-granted-work-out-your-salvation)
+  * [February 24,2024](#february-242024)
+    + [Obedience to God](#obedience-to-god)
+    + [Day 55 “Teach my words to your children”](#day-55-teach-my-words-to-your-children)
 
 <!-- tocstop -->
 
@@ -749,3 +752,17 @@ St Paul sets a good example – he tried really hard all his live and was able t
 “I have fought the good fight, I have finished the race, I have kept the faith.” 2 Tim 4:7
 
 May the Holy Spirit lead us 🙏
+
+## February 24,2024 ##
+
+### Obedience to God ###
+
+[![Obedience to God](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day055.jpg)](https://youtu.be/j7rpQ4Z9Yzw "Obedience to God")
+
+### Day 55 “Teach my words to your children” ###
+The statutes, ordinances, commands, commandments, and law of the Lord are good for us. They are the best, no other law is as good as the law of the Lord. Some states have laws that forbid the sale of cigarettes or alcohol to anyone under the age of 21, however, the same state allows teens to have abortions (commit murder).
+“What other great nation has statutes and ordinances as just as this entire law that I am setting before you today?” Deuteronomy 4:5
+We need to remember his Law and his Word and teach it to our children and their children.
+“Assemble the people for me, and I will let them hear my words, so that they may learn to fear me as long as they live on the earth, and may teach their children “ Deuteronomy 4:5
+We are responsible for tomorrow's generation. Let us teach and kids and grandkids about God and His word.
+May the Holy Spirit Lead us. 🙏
