@@ -88,6 +88,7 @@
     + [Day 55 “Teach my words to your children”](#day-55-teach-my-words-to-your-children)
   * [February 25,2024](#february-252024)
     + [Jealous Husbands](#jealous-husbands)
+    + [Day 56 Jealousy between Spouses](#day-56-jealousy-between-spouses)
 
 <!-- tocstop -->
 
@@ -774,3 +775,17 @@ May the Holy Spirit Lead us. 🙏
 ### Jealous Husbands ###
 
 [![Jealous Husbands](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day056.jpg)](https://youtu.be/oZsJMk7lmh8 "Jealous Husbands")
+
+### Day 56 Jealousy between Spouses ###
+
+We live in a society where there is a lot of cheating, betrayal, infidelity, and divorce. The main reason is that spouses are trying to make a marriage work on their own. We have two human beings – who are both broken, trying to find fulfillment in each other.
+
+We as human beings are earthen vessels, when two earthen vessels are in close contact with each other – they are bound to bang into each other and cause cracks. The cracks do not help in holding water – love. If the cracks are not patched properly, they can escalate into jealousy, betrayal, anger, frustration, ignoring the needs of the spouse, lies, controlling the spouse, Criticism, Contempt, Defensiveness, Stonewalling, infidelity, and eventually separation.
+
+We see the blame game happening with the very first couple Adam and Eve, where Eve offers Adam the forbidden fruit(kind of telling him that she committed the sin so it’s okay) and we see Adam – blaming Eve, “Lord the woman you gave me”, Adam even blaming God.
+
+Who can save us from this??
+
+It takes 3 to make marriage work, Husband, Wife, and God. Modeled like the Holy Trinity – Father, Son, and Holy Spirit. We need God in every marriage, in fact, God should be what unites a Man and Woman, just as the Holy Spirit is the love between the Father and the Son. If God is honored in the marriage, the marriage will work. To honor God the couple needs to pray together, honor God in life choices and rely on God to make the marriage work. What seems impossible with man is possible with God. Don’t worry we have Mother Mary looking out for us, she will intercede on our behalf to her Son, as soon as she sees the wine run out in our marriage.
+
+May the Holy Spirit lead us. 🙏
