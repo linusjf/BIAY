@@ -89,6 +89,8 @@
   * [February 25,2024](#february-252024)
     + [Jealous Husbands](#jealous-husbands)
     + [Day 56 Jealousy between Spouses](#day-56-jealousy-between-spouses)
+  * [February 26,2024](#february-262024)
+    + [Hear, O Israel](#hear-o-israel)
 
 <!-- tocstop -->
 
@@ -789,3 +791,9 @@ Who can save us from this??
 It takes 3 to make marriage work, Husband, Wife, and God. Modeled like the Holy Trinity – Father, Son, and Holy Spirit. We need God in every marriage, in fact, God should be what unites a Man and Woman, just as the Holy Spirit is the love between the Father and the Son. If God is honored in the marriage, the marriage will work. To honor God the couple needs to pray together, honor God in life choices and rely on God to make the marriage work. What seems impossible with man is possible with God. Don’t worry we have Mother Mary looking out for us, she will intercede on our behalf to her Son, as soon as she sees the wine run out in our marriage.
 
 May the Holy Spirit lead us. 🙏
+
+## February 26,2024 ##
+
+### Hear, O Israel ###
+
+[![Hear, O Israel](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day057.jpg)](https://youtu.be/XmcXTuH0W4M "Hear, O Israel")
