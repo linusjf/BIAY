@@ -91,6 +91,7 @@
     + [Day 56 Jealousy between Spouses](#day-56-jealousy-between-spouses)
   * [February 26,2024](#february-262024)
     + [Hear, O Israel](#hear-o-israel)
+    + [Day 57 *“Lent – The Nazirite vow – time set apart for the Lord” “Psalm 91 – WOW!!!”*](#day-57-lent-%E2%80%93-the-nazirite-vow-%E2%80%93-time-set-apart-for-the-lord-psalm-91-%E2%80%93-wow)
 
 <!-- tocstop -->
 
@@ -797,3 +798,43 @@ May the Holy Spirit lead us. 🙏
 ### Hear, O Israel ###
 
 [![Hear, O Israel](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day057.jpg)](https://youtu.be/XmcXTuH0W4M "Hear, O Israel")
+
+### Day 57 *“Lent – The Nazirite vow – time set apart for the Lord” “Psalm 91 – WOW!!!”* ###
+
+ We read about the Nazirite vow and how one would dedicate a certain time totally to God. They would not have any wine or strong drink; they would let the hair grow and not tend to their grooming needs. Isn’t this what one does when they decide to give up something for Lent. 
+We are dedicating ourselves to prayer, reading the bible, attending mass, fasting and almsgiving.
+ Every Lent is a special time of grace for me, I feel spiritually renewed through the 40 days of prayer, fasting and almsgiving. 
+We dedicate ourselves to the Lord at the start of Lent when we put ashes on our forehead, reminding us of our nothingness. We need to offer up sacrifices and give up certain things to remind us that we are in lent. Some examples: I plan to give us meat and wine and the kids plan to give up candy for lent. Some people fast a meal and some don’t add sugar to their coffee. All of these are great reminders to the real purpose of Lent. The real purpose is to remind us what we read in the reading in Deut6 – the great Shema – “ Hear, O Israel: The LORD is our God, the LORD alone. You shall love the LORD your God with all your heart, and with all your soul, and with all your might”
+Throughout lent we need to refocus on the Lord everyday. Our focus should not be on what we give up or our fasting or almsgiving. The focus should be on the Lord. Making Him the Lord of our life, we should strive to love up with everything we have with our heart, mind and soul with all our might. 
+Let’s not forget that every step we take towards God he takes 10 steps towards us. Like we read in Psalm 91 today First verse is what we should need to do and the remaining verses tell us what the Lord will do. 
+We need to make Him our God and live in Him. 
+   
+“You who live in the shelter of the Most High,
+  who abide in the shadow of the Almighty”
+
+Once we make him our God the blessing will flow:
+
+He will be our fortress
+He will deliver us
+He will cover us under His wings
+His faithfulness will be our shield
+We will not fear the terror of night
+Nor fear the arrow
+Or fear the pestilence
+Nor fear destruction
+1000 may fall 10000 may fall – nothing will befall us
+No evil shall befall you
+No scourge will come near your home
+Angles will guard us in all our ways
+We will trample the lion and the serpent
+He will deliver us, protect us 
+He will hear us when we call
+He will be with us in trouble
+He will rescue us and honor us
+With long life He will satisfy us
+He will show us salvation 
+
+Wow!! Wow!!! Thank you Lord
+Ready Ps 91 everyday – make Him the Lord and He will take care of us. 
+
+May the Holy Spirit lead us.
