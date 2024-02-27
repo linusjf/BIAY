@@ -86,12 +86,17 @@
   * [February 24,2024](#february-242024)
     + [Obedience to God](#obedience-to-god)
     + [Day 55 “Teach my words to your children”](#day-55-teach-my-words-to-your-children)
+    + [Day 55 Anonymous](#day-55-anonymous)
   * [February 25,2024](#february-252024)
     + [Jealous Husbands](#jealous-husbands)
     + [Day 56 Jealousy between Spouses](#day-56-jealousy-between-spouses)
   * [February 26,2024](#february-262024)
     + [Hear, O Israel](#hear-o-israel)
     + [Day 57 *“Lent – The Nazirite vow – time set apart for the Lord” “Psalm 91 – WOW!!!”*](#day-57-lent-%E2%80%93-the-nazirite-vow-%E2%80%93-time-set-apart-for-the-lord-psalm-91-%E2%80%93-wow)
+    + [Day 57 : Jenita](#day-57--jenita)
+  * [February 27,2024](#february-272024)
+    + [A Chosen People](#a-chosen-people)
+    + [Day 58: “Do not have strong ties with the world” -Michael Eltham](#day-58-do-not-have-strong-ties-with-the-world--michael-eltham)
 
 <!-- tocstop -->
 
@@ -773,6 +778,15 @@ We need to remember his Law and his Word and teach it to our children and their 
 We are responsible for tomorrow's generation. Let us teach and kids and grandkids about God and His word.
 May the Holy Spirit Lead us. 🙏
 
+### Day 55 Anonymous ###
+
+One Psalm, Ps 88 ends in darkness.
+
+Here is how you are going to carry the Sacred Objects, not to touch them, but carry with poles.  Only tribes of Aaron could approach The Tabernacle.
+Other families had a different task.
+Lord, You have created me for a definite task because of that  I can lift up my head.  Your life matters.
+Thank You Lord!
+
 ## February 25,2024 ##
 
 ### Jealous Husbands ###
@@ -838,3 +852,37 @@ Wow!! Wow!!! Thank you Lord
 Ready Ps 91 everyday – make Him the Lord and He will take care of us. 
 
 May the Holy Spirit lead us.
+
+### Day 57 : Jenita ###
+
+Today's readings speaks volumes of God's blessings and protection for the people who are faithful to him. 
+
+Simple acts of love shown to God leads us to receive innumerable blessings from God. 
+
+Trust in God and stay loyal to worshipping and praising God always
+
+## February 27,2024 ##
+
+### A Chosen People ###
+
+[![A Chosen People](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day058.jpg)](https://youtu.be/y6fknWuyLQU "A Chosen People")
+
+### Day 58: “Do not have strong ties with the world” -Michael Eltham ###
+
+As we journeyed with the Israelites we noticed that the nations that the Lord handed over to the Israelites were much stronger and greater than the Israelites. The Lord with a “Mighty hand and outstretched arm” won every battle for the Israelites.
+
+We see that the Lord commanded the Israelites through Moses not to have mercy on the lands they conquered, to break all the altars of strange gods, not to intermarry with the pagans or make covenants with the other nations. The Lord commanded that they take no gold or silver from those nations.
+
+One possible reason could be that the Lord knows their hearts and their past. They were a people who were born into slavery in Egypt and who possibly practiced local rituals and customs of the Egyptians. They were a people who previously made an idol of gold – Baal. The Lord is being very clear here and telling them that they are “A Chosen people, a people set apart” Not because of what they did but because of God’s picking, because of the covenant God made with their ancestors(Abraham, Isaac, Jacob). God wanted to preserve them and keep them holy, set them apart for the Lord. Because God will eventually bring Salivation to the whole world through them – Jesus would be from the Israelites. Jesus will open salvation to the entire humanity.
+
+We can take a lesson from their journey; we can try not to have strong ties to the world and worldly people.
+
+Jesus calls us to this, he sends us into the world to be a light to the world, we are the salt to the world. Let us be in the world but not of the world.
+
+Jesus prayed for us in John 17:14-18
+
+“I have given them your word, and the world has hated them because they do not belong to the world, just as I do not belong to the world. 15 I am not asking you to take them out of the world, but I ask you to protect them from the evil one.[e] 16 They do not belong to the world, just as I do not belong to the world. 17 Sanctify them in the truth; your word is truth. 18 As you have sent me into the world, so I have sent them into the world.”
+
+Let us not be worldly people but a people set apart, a chosen generation for the Lord. Let us not defile ourselves with the things of the world. Let us not overly focus on this life but on the next.
+
+May the Holy Spirit lead us. 🙏
