@@ -97,6 +97,8 @@
   * [February 27,2024](#february-272024)
     + [A Chosen People](#a-chosen-people)
     + [Day 58: “Do not have strong ties with the world” -Michael Eltham](#day-58-do-not-have-strong-ties-with-the-world--michael-eltham)
+  * [February 28,2024](#february-282024)
+    + [Obligations to God](#obligations-to-god)
 
 <!-- tocstop -->
 
@@ -886,3 +888,9 @@ Jesus prayed for us in John 17:14-18
 Let us not be worldly people but a people set apart, a chosen generation for the Lord. Let us not defile ourselves with the things of the world. Let us not overly focus on this life but on the next.
 
 May the Holy Spirit lead us. 🙏
+
+## February 28,2024 ##
+
+### Obligations to God ###
+
+[![Obligations to God](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day059.jpg)](https://youtu.be/5e8Tw2TL6CY "Obligations to God")
