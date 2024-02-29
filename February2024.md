@@ -94,12 +94,16 @@
     + [Hear, O Israel](#hear-o-israel)
     + [Day 57 *“Lent – The Nazirite vow – time set apart for the Lord” “Psalm 91 – WOW!!!”*](#day-57-lent-%E2%80%93-the-nazirite-vow-%E2%80%93-time-set-apart-for-the-lord-psalm-91-%E2%80%93-wow)
     + [Day 57 : Jenita](#day-57--jenita)
+    + [Day 57 Anonymous](#day-57-anonymous)
   * [February 27,2024](#february-272024)
     + [A Chosen People](#a-chosen-people)
     + [Day 58: “Do not have strong ties with the world” -Michael Eltham](#day-58-do-not-have-strong-ties-with-the-world--michael-eltham)
   * [February 28,2024](#february-282024)
     + [Obligations to God](#obligations-to-god)
     + [Day 59 “No exemption for not keeping the Passover/Eucharist”](#day-59-no-exemption-for-not-keeping-the-passovereucharist)
+  * [February 29,2024](#february-292024)
+    + [Intercessory Prayer](#intercessory-prayer)
+    + [Day 60: “Stubborn people – Intercesssory prayer - 40 days 40 nights X TWO ”](#day-60-stubborn-people-%E2%80%93-intercesssory-prayer---40-days-40-nights-x-two-)
 
 <!-- tocstop -->
 
@@ -864,6 +868,19 @@ Simple acts of love shown to God leads us to receive innumerable blessings from 
 
 Trust in God and stay loyal to worshipping and praising God always
 
+### Day 57 Anonymous ###
+
+Lord, help us never forget what You have done for us!
+
+Aaronic Blessing - every Parent ought to give this blessing to their children. 
+
+We need to remind our children about how The Lord our God  brought us out from slavery in Egypt.   So we have to obey God's commandments, especially not to defile ourselves,  but honour n worship The One True God.
+
+One new revelation about the Sign of The  Cross on our forehead, our lips n our heart. - before The Gospel..
+"May The Word of The Lord  be on our minds, our lips and our hearts. 
+
+All Glory to Jesus!
+
 ## February 27,2024 ##
 
 ### A Chosen People ###
@@ -926,3 +943,27 @@ One is not saved just by showing up for Mass, sorry that’s the truth. We need 
 27 Whoever, therefore, eats the bread or drinks the cup of the Lord in an unworthy manner will be answerable for the body and blood of the Lord. 28 Examine yourselves, and only then eat of the bread and drink of the cup. 29 For all who eat and drink without discerning the body, eat and drink judgment against themselves. 30 For this reason many of you are weak and ill, and some have died. 31  1 Cor 17-31
 
 May the Holy Spirit lead us 🙏
+
+## February 29,2024 ##
+
+### Intercessory Prayer ###
+
+[![Intercessory Prayer](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day060.jpg)](https://youtu.be/jnTpnBCISCU "Intercessory Prayer")
+
+### Day 60: “Stubborn people – Intercesssory prayer - 40 days 40 nights X TWO ” ###
+
+As we read through the journey of the Israelites, we see how the Lord was guiding them so closely. The Lord tells them when to move when to stop – they were led by the fire of smoke.
+
+As we read multiple times they start with the tribe of Judah - which means praise (praise should always be the first thing we do). Even though God is leading them and fighting for them - giving them nations much stronger.
+
+The people rebel, they are stubborn, stiff-necked people – constantly complaining – creating molten images and defiling the Lord.
+
+We see how Moses would go up the mountain – fast for 40 days and night – interceding and praying for the people. He does this not once but twice – once when he received the tablets written by the finger of God – he came down and found that the people have made a molten image and started worshiping it. The mounting was fiery and fuming with God’s anger – he went up again and prayed for 40 days and 40 nights - eventually, the Lord accepted the prayer of Moses and spared the people. We are called to pray for the stubborn people in this world. We need to pray for our political leaders, rebel people, greedy authorities, those who have deafened their ears to the Lord.
+
+Let us make a list of stubborn people in our lives – from our family, friends, and society. Let us offer them up to the Lord this Lent, as we pray 40 days and 40 nights. Let us ask God to give them strength – to see their mistakes and repent.
+
+Let us pray for ourselves – for the stubborn bad habits we are unable to kick. Our intercessory pray will make big difference. Pray one whole lent if it does not bring results – pray another 40 days and 40 nights. We will not rest our case until the Lord hears us – rather until the people, we are praying for change. The Lord is always willing, but the flesh is weak.
+
+Like St Monica who prayed for her whole life for St Augustine – we will not give up. We will persevere in prayer and intercession. For we may be praying for the next saint in the church.
+
+May the Holy Spirit Lead us 🙏
