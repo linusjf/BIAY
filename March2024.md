@@ -6,6 +6,8 @@
   * [March 01,2024](#march-012024)
     + [Complaining in the Desert](#complaining-in-the-desert)
     + [Day 61: “Complaint of rebellion”](#day-61-complaint-of-rebellion)
+  * [March 02,2024](#march-022024)
+    + [Spies Sent to Canaan](#spies-sent-to-canaan)
 
 <!-- tocstop -->
 
@@ -31,3 +33,9 @@ A cheerful heart is a good medicine, but a crushed spirit dries up the bones. Pr
 Let us have a cheerful spirit and praise and pray instead of complaining.
 
 May the Holy Spirt Lead us 🙏
+
+## March 02,2024 ##
+
+### Spies Sent to Canaan ###
+
+[![Spies Sent to Canaan](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day062.jpg)](https://youtu.be/UmoB_TfaWWo "Spies Sent to Canaan")
