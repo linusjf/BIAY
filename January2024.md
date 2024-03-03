@@ -217,74 +217,56 @@ God bless Fr. Mike for presenting the creation story so clearly. I didn't unders
 ### Day 2: *Distrust and Disobedience* - Michael Eltham ###
 
 Man was made for communion with God, they spoke to God and heard God speak. It was a beautiful harmonious life, and everything was going great for Adam and Eve. As we read in the first chapter of the Catechism of the Catholic Church – God created man to share in the blessed life of the Trinity. Adam and Eve were enjoying this beautiful life – in direct communion with God.
-
 1 God, infinitely perfect and blessed in himself, in a plan of sheer goodness freely created man to make him share in his own blessed life.CCC prologue 1
-
 Now God has planted a garden in Eden and grew various plants with fruit that were pleasing to the eye and to eat. Adam was allowed to eat from any tree except the tree of knowledge of good and evil.
-
 15 The Lord God took the man and put him in the garden of Eden to till it and keep it. 16 And the Lord God commanded the man, “You may freely eat of every tree of the garden; 17 but of the tree of the knowledge of good and evil you shall not eat, for in the day that you eat of it you shall die.” Gen 2:15-17
-
 Satan is very crafty as we see in Genesis – he sows seeds of doubt in Eve’s heart. Satan tries to manipulate the truth and question it and eventually causes us to doubt the truth.
-
 But the serpent said to the woman, “You will not die; 5 for God knows that when you eat of it your eyes will be opened, and you will be like God knowing good and evil.” Gen 3:4,5
-
 Satan is proposing that God is a liar and that God does not want our good. According to satan, God didn’t want them to eat the fruit lest they become like God. This would have caused doubt in Eve’s heart. The serpent described in Genesis is no rat snake, it's more like a Dragon like creature – so there is also this element of fear that would have its role to play. Apart from doubt and fear satan eve was also fighting temptations.
-
 So when the woman saw that the tree was good for food, and that it was a delight to the eyes, and that the tree was to be desired to make one wise Gen 3:6
-
 The fruit was also good to look at, good for the stomach and it made one like God.
-
-She could not resist it anymore, the combined effect of doubt, fear, and temptation. She gave in and gave it to Adam as well, I would have expected Adam to at least resist – but it’s described as though he just eats it. (Like a good husband ;) – just joking ). Adam should have stood his ground and resisted the devil. 
-
-The main thing that caused their fall was their distrust in God. God gave them everything – every tree, every creature and even let them share in His divine life. But they just could not trust God enough. This distrust caused their disobedience. This caused sin to enter mankind. 
-
+She could not resist it anymore, the combined effect of doubt, fear, and temptation. She gave in and gave it to Adam as well, I would have expected Adam to at least resist – but it’s described as though he just eats it. (Like a good husband ;) – just joking ). Adam should have stood his ground and resisted the devil.
+The main thing that caused their fall was their distrust in God. God gave them everything – every tree, every creature and even let them share in His divine life. But they just could not trust God enough. This distrust caused their disobedience. This caused sin to enter mankind.
 We can sit and marvel at how stupid our first parents were, but pointing one finger at someone points 4 fingers back at us. Genesis is not a storybook to read and fall asleep over, it’s the story of our lives. We are faced with the same temptations that Adam and Eve faced, we have doubts, fear, and temptation in our lives.
-
 God has given us the truth in the Word of God and from Church tradition, we know what we ought to do. Yet we doubt it, we fear the consequences, we fear what the world will say, and we give into the temptations of the world. We look at what’s good for the eye, good for the flesh, and pride ourselves in our wisdom.
-
 The devil does not have his own clay, he just takes what God created and twists the truth into a lie. Satan will take half-truths and add lies to it and put doubt in our hearts, he is the father of lies.
-
 “He was a murderer from the beginning and does not stand in the truth, because there is no truth in him. When he lies, he speaks according to his own nature, for he is a liar and the father of lies.” Jh 8:44
-
 We sometimes give into the lies of the enemy and give into the temptations of the world. When we commit sin we tend to hide like Adam and Eve we try to cover our sin up.
-
 7 Then the eyes of both were opened, and they knew that they were naked; and they sewed fig leaves together and made loincloths for themselves. Gen 3:7
-
 I feel this is the first penance that Adam and Eve took on because as we all know fig leaves cause itch. This would have caused severe itch for Adam and Eve when they made loincloths with these leaves. I’m sure they were aware of this but they felt so upset with themselves and fearful.
-
 Loved Fr Mike’s explanation of the tone of God for the verse – “who told you you were naked?” The angry tone which most would assume compared to the sympathetic tone. God must have been really hurt - because we didn’t trust Him but believed the serpent instead.
-
 Let us learn to trust God and his commandments. Man’s wisdom is foolishness to God, we should stop making up our own rules. If we decide that we can watch sports instead of worship on Sunday or that a fetus in the womb is just tissue – we are listening to the lies of satan. We should listen to God’s voice and trust God fully.
-
 May the Holy Spirit lead us. 🙏
 
 ### Day 2 – Alice To ###
 
 Thoughts on action of Adam and the serpent:
-1.	After creation, God has given Adam dominion over all animals (Gen 1:28). What Adam should have done when the serpent appeared before Eve was to rebuke it, protected Eve and cast the serpent out with his authority. Because of his inaction, Eve succumbed to temptation.
-2.	The serpent is very clever. It did not do a direct onslaught. It just planted doubt in Eve’s mind by asking her a question. 
-As a Christian, we should be aware of our God-given duty. We should always be aware of what our duty and mission is and adhere to it without fail or doubt because our God will not ask us to do things that we are not capable of and He will always be there to guide us along. We should also be aware that temptations, like the serpent will creep up on us without our being aware of it. We should always be vigilant. 
+
+1. After creation, God has given Adam dominion over all animals (Gen 1:28). What Adam should have done when the serpent appeared before Eve was to rebuke it, protected Eve and cast the serpent out with his authority. Because of his inaction, Eve succumbed to temptation.
+2. The serpent is very clever. It did not do a direct onslaught. It just planted doubt in Eve’s mind by asking her a question.
+
+As a Christian, we should be aware of our God-given duty. We should always be aware of what our duty and mission is and adhere to it without fail or doubt because our God will not ask us to do things that we are not capable of and He will always be there to guide us along. We should also be aware that temptations, like the serpent will creep up on us without our being aware of it. We should always be vigilant.
 Pray each day for protection and guidance from the Holy Spirit and our Mama Mary.
 
 ### Day 2 By Cynthia D'Silva ###
 
-Genesis 3:4-5 
-*But the serpent said to the woman, “you will certainly not die.  God knows that when you eat of it your eyes will be opened, and you will be like God, who knows good and evil.”* 
-Satan did not change God’s word.  He cleverly twisted the Word and told Adam & Eve to look at God’s Word through his eyes.  
-Instead of listening to the devil's interpretation of God’s Word, Eve should have consulted Adam, who knew better what commandment was given to him by God, and if Adam had any confusion he should have consulted his heavenly Father who gave him the commandment. 
+Genesis 3:4-5
+*But the serpent said to the woman, “you will certainly not die.  God knows that when you eat of it your eyes will be opened, and you will be like God, who knows good and evil.”*
+Satan did not change God’s word.  He cleverly twisted the Word and told Adam & Eve to look at God’s Word through his eyes.
+Instead of listening to the devil's interpretation of God’s Word, Eve should have consulted Adam, who knew better what commandment was given to him by God, and if Adam had any confusion he should have consulted his heavenly Father who gave him the commandment.
 We end up in the same situation when we try to interpret God’s Word on our own without guidance from those who have correct knowledge of the scriptures.
 
 Genesis 3:15
 *I will put enmity between you and the woman, and between your seed and her seed.*
-By this promise, God gave the guarantee of His divine assistance in protecting Mary and the Church (the Eucharist / the mystical Body of Christ) from Satan.  
+By this promise, God gave the guarantee of His divine assistance in protecting Mary and the Church (the Eucharist / the mystical Body of Christ) from Satan.
 By this promise it is evident that Mary and Jesus were immaculately conceived, that is, without original sin.  Mary’s holiness was confirmed by Angel Gabriel when he addressed Mary with the words "hail, full of grace” (“kecharitomene” in Greek) (Luke 1:28), which means that Mary was full of grace, like the first Eve before the fall.
 
 [Genesis 3:22-24](https://biblia.com/bible/rsvce/Genesis/3/22-24)
 
 The Garden of Eden was a sanctuary / tabernacle where God dwelt with humans and Adam & Eve were told to leave the holy sanctuary because of the mortal sin which they both committed.
 Mortal sin breaks our communion with God and results in “spiritual death” which means “eternal suffering (Hell) due to eternal separation from God.”
-At any given time in our lives, we are always in a Covenant relation, either with God or with Satan.  Adam and Eve were created holy and full of grace, in a Covenant relation with God, and they were supposed to eat the fruits from the Tree of Life and live forever in that holy state.  But when they chose to obey Satan and ate the forbidden fruit, they automatically broke the Covenant with God and moved into a Covenant with Satan (mortal sin).  
-By this they instantly destroyed the divine life within them and consequently lost all the sanctifying graces which were necessary to perfect the human nature.  Thus they spiritually damaged and weakened the human soul, putting the human race in the power of Satan.  Therefore God, in His divine wisdom, as a loving Father, expelled Adam and Eve from the Garden of Eden, so that humans would not eat from the Tree of Life in a state of mortal sin and live forever under the power of Satan.  
+At any given time in our lives, we are always in a Covenant relation, either with God or with Satan.  Adam and Eve were created holy and full of grace, in a Covenant relation with God, and they were supposed to eat the fruits from the Tree of Life and live forever in that holy state.  But when they chose to obey Satan and ate the forbidden fruit, they automatically broke the Covenant with God and moved into a Covenant with Satan (mortal sin).
+By this they instantly destroyed the divine life within them and consequently lost all the sanctifying graces which were necessary to perfect the human nature.  Thus they spiritually damaged and weakened the human soul, putting the human race in the power of Satan.  Therefore God, in His divine wisdom, as a loving Father, expelled Adam and Eve from the Garden of Eden, so that humans would not eat from the Tree of Life in a state of mortal sin and live forever under the power of Satan.
 The Church follows the same principle.
 If we receive the fruit (Communion) from the tree of Life (the Cross) when we are in a state of mortal sin we will be subject to eternal damnation (1 Corinthians 11:27-29).  When we receive Communion in a state of grace we receive divine life which will give us eternal life after we leave this world (John 6:54).
 
@@ -295,8 +277,7 @@ If we receive the fruit (Communion) from the tree of Life (the Cross) when we ar
 ### Jenita Maria ###
 
 1. *God the provider, the most loving Father*
-
-We understand that.. Even though adam and Eve went Against God's word, and completely disobeyed him, God still loved them through his anger and wrath where he curses them, he still holds them. He takes care of them, and helps them get through their life on earth, to be back with him again for eternity in holiness. 
+    We understand that.. Even though adam and Eve went Against God's word, and completely disobeyed him, God still loved them through his anger and wrath where he curses them, he still holds them. He takes care of them, and helps them get through their life on earth, to be back with him again for eternity in holiness.
 
 2. *The importance of giving the first fruits to God*
 
@@ -354,12 +335,12 @@ God is saying, Noah,  make this ark.  Because u clinged to  me, I will lift you 
 ### Day 3 By Cynthia Dsilva ###
 
 Genesis 5:24
-*After he begot Methuselah, Enoch walked with God for 300 years.  His whole lifetime was 365 years, then he was no more, because God took him.* 
+*After he begot Methuselah, Enoch walked with God for 300 years.  His whole lifetime was 365 years, then he was no more, because God took him.*
 Enoch had an encounter with God when he was 65 years old.  Thereafter, for the rest of his life he walked with God.  Enoch was not a monk.  He was an ordinary family man.  Enoch did not have any scriptures or Temple or Church to guide him and yet he was able to walk with God.  If Enoch could do it then it should not be difficult for us to walk with God when we have the scriptures and the Church to guide us.
 
 Genesis 6:5-7
 *The Lord saw that the people had become wicked and evil.   So the Lord said, “I will wipe out from the earth all the human beings I have created.”*
-After God had already declared to Satan that He would put enmity between Satan and the woman (Genesis 3:15), Satan tried to destroy God's plan for redemption by tempting men and women to lead immoral & sinful lives and therefore God had to send the Great Flood and destroy all humanity except Noah and his family because Noah was found to be righteous.  
+After God had already declared to Satan that He would put enmity between Satan and the woman (Genesis 3:15), Satan tried to destroy God's plan for redemption by tempting men and women to lead immoral & sinful lives and therefore God had to send the Great Flood and destroy all humanity except Noah and his family because Noah was found to be righteous.
 
 [Genesis 3:15](https://biblia.com/bible/rsvce/Genesis/3/15)
 
@@ -411,7 +392,7 @@ May the Holy Spirit lead us. 🙏
 
 1. The foundation between God and man is interwoven with reminder of God's gift of human life.  God forbids murder of man.
 
-2. God says you can eat of the animals.  Animals are God 's creatures.  God entrusted animals to the stewardship of human beings.  And it is contrary to human dignity to be cruel to them.  This is an issue which troubled me a lot, when I saw humans attacking animals mercilessly.   
+2. God says you can eat of the animals.  Animals are God 's creatures.  God entrusted animals to the stewardship of human beings.  And it is contrary to human dignity to be cruel to them.  This is an issue which troubled me a lot, when I saw humans attacking animals mercilessly.
 
 3. God loves His creation and creatures and we have to be obedient to His commandments. We should never question His ways because He created us and He knows  what is best for us.  I seek pardon for the times I have knowingly or unknowingly questioned.God, why He created animals to suffer at human hands?
 All Glory  to The Most Holy Trinity!
@@ -467,7 +448,7 @@ Help us to use our gifts for Your glory O Lord!
 
 ### Day-5 Anonymous ###
 
-Nimrod -the mighty hunter before The Lord, his quest for ambition, power and control, for self-glory. 
+Nimrod -the mighty hunter before The Lord, his quest for ambition, power and control, for self-glory.
 
 Forgetting they were created by God. they were planning to build the Tower of Babel and since they were all speaking the same language, it was much easier for them to plan.  Thus forgetting they had a Creator who was watching their every move. And rightly God comes down n scatters them all.  Their plan could not be established.
 
@@ -507,11 +488,11 @@ May the Holy Spirit lead us. 🙏
 
 ### Day 6 - Joice Pereira ###
 
-I will bless you and make your name great. So that you will be a blessing. I will bless those who bless you. 
+I will bless you and make your name great. So that you will be a blessing. I will bless those who bless you.
 
 Abraham had a great gain of faith through him God is going to bless the world.
 
-Job is blameless and upright man who fears God and turns away from evil. In all his suffering Job did not sin or charge God with wrongdoing. 
+Job is blameless and upright man who fears God and turns away from evil. In all his suffering Job did not sin or charge God with wrongdoing.
 
 Proverb: The fear of the Lord  is the beginning of the knowledge.
 
@@ -605,15 +586,15 @@ May the Holy Spirit lead us. 🙏
 
 Genesis 17:12
 *Why did babies have to be circumcised on the 8th day?*
-God created the world in 6 days and consecrated it on the 7th day, but the first creation could not achieve its goal because sin entered it and the first Covenant was not renewable. 
+God created the world in 6 days and consecrated it on the 7th day, but the first creation could not achieve its goal because sin entered it and the first Covenant was not renewable.
 
 Therefore, circumcision was a foreshadow of the new creation which started on the 8th day of the first creation (Easter Sunday) when Jesus discarded His mortal flesh (the flesh of the first Adam) and received His own immortal flesh.
 
-Circumcision was also a fore shadow of baptism which makes us new creations because we discard our old sinful selves and enter the new Covenant which started on the 8th day of the first creation.  
+Circumcision was also a fore shadow of baptism which makes us new creations because we discard our old sinful selves and enter the new Covenant which started on the 8th day of the first creation.
 
-In the old Covenant, a circumcised man had an obligation to ensure that all his male descendants were circumcised. 
+In the old Covenant, a circumcised man had an obligation to ensure that all his male descendants were circumcised.
 
-Since baptism replaced circumcision, in the new Covenant, baptized parents have an obligation to ensure that all their descendants are baptized. 
+Since baptism replaced circumcision, in the new Covenant, baptized parents have an obligation to ensure that all their descendants are baptized.
 
 When a child is baptized, he/she receives the family name (surname) of the earthly father and thus becomes a member if his family.  And simultaneously, the child also becomes a member if our heavenly Father’s family.
 
@@ -667,7 +648,7 @@ This is how they both conceived children from their own father.
 
 Lessons to be learned from Lot’s daughters - they thought that there were no more men in the world and they had to have children from their own father- the Bible does not call it out as a sin but “shows it a sin” and a big mistake, as the descendants of the two sons born became the Moabites and the Ammonites. The two big enemies of the Israelites.
 
-We should learn a life lesson from this, never get over anxious and think that our world is upset down, there is no way out, no solution etc - we tend to make big mistakes when we are guided by fear and anxiety. Let us intercede instead and pray for the situation, knowing that God will make a way. 
+We should learn a life lesson from this, never get over anxious and think that our world is upset down, there is no way out, no solution etc - we tend to make big mistakes when we are guided by fear and anxiety. Let us intercede instead and pray for the situation, knowing that God will make a way.
 
 May we trust in the Lord always.
 
@@ -675,11 +656,11 @@ May the Holy Spirit lead us. 🙏
 
 ### Day 9 - Jenita ###
 
-Not every problem that we go through has an answer at the end.. We may wonder why we faced those problems even when we have been good and righteous like Job. 
+Not every problem that we go through has an answer at the end.. We may wonder why we faced those problems even when we have been good and righteous like Job.
 
-But even when such doubts arise it is important to know that the journey is important.. And with whom that journey is made is a little more important. 
+But even when such doubts arise it is important to know that the journey is important.. And with whom that journey is made is a little more important.
 
-God is faithful, he will spare the wicked for the sake of the innocent. 
+God is faithful, he will spare the wicked for the sake of the innocent.
 
 What a merciful God we serve 🙏🏼
 
@@ -729,7 +710,7 @@ May the Holy Spirit lead us. 🙏
 
 11“Abraham replied, “I said to myself, ‘There is surely no fear of God in this place, and they will kill me because of my wife.’
 
-Abraham and Sarah settled in  Gerar on the way to Negeb while, there, Abraham pretended that Sarah was his sister, and King Abimelech of Gerar took Sarah for himself. But God wants Abimelech in a dream that he will die if he approaches Sarah, he must return Sarah to Abraham, who is a prophet and will pray for him. Abimelech did fear God. All it took was a dream and he was immediately to do what was right. 
+Abraham and Sarah settled in  Gerar on the way to Negeb while, there, Abraham pretended that Sarah was his sister, and King Abimelech of Gerar took Sarah for himself. But God wants Abimelech in a dream that he will die if he approaches Sarah, he must return Sarah to Abraham, who is a prophet and will pray for him. Abimelech did fear God. All it took was a dream and he was immediately to do what was right.
 
 The Bible reveals that Job was a man who “feared God “. Job lost his children, wealth, and health but in it all, he never spoke disrespectfully about God. We read that in all this, Job did not sin nor charge God with wrong.
 
@@ -795,7 +776,7 @@ May the Holy Spirit lead us. 🙏
 
 ### Day 11 Anonymous ###
 
-Issac is stronger than his father.  He could overpower his father, but submitted to his father.  
+Issac is stronger than his father.  He could overpower his father, but submitted to his father.
 This is unmistakably a preparation for Christ's Sacrifice.
 Profound trust in God.
 Father and son trusting each other.
@@ -853,7 +834,7 @@ Let's keep trusting in God's providence.
 
 May the Holy Spirit lead us. 🙏
 
-### Day 12 Anonymous ### 
+### Day 12 Anonymous ###
 
 God's providence is always at work.
 How powerfully we rely on God's providence, even when we don't see.
@@ -861,15 +842,15 @@ God is faithful, even when we are unfaithful and He provides.
 
 ### Day 12 - Jenita ###
 
-God sends the right people at the right time and at the right place in our lives. 
+God sends the right people at the right time and at the right place in our lives.
 
-We only need to tell him our hearts desires and he will make wonders according to his will in our lives. 
+We only need to tell him our hearts desires and he will make wonders according to his will in our lives.
 
-He only wants us to trust the e tire process 
+He only wants us to trust the e tire process
 
-"One foot forward" 
- 
-This is all we need to do..  Trust and serve God even on the dark days, know that he is there even when we are in the darkness. 
+"One foot forward"
+
+This is all we need to do..  Trust and serve God even on the dark days, know that he is there even when we are in the darkness.
 
 *Trust the process*
 
@@ -935,10 +916,10 @@ May the Holy Spirit lead us. 🙏
 
 ### Day 13 - Gabriella ###
 
-Dear Lord, 
-Teach us and inspire us to recognize our own brokenness and to avoid repeating what our ancestors have done over and over. Help us recognize our own wrongdoings and take the path you have planned for us. 
+Dear Lord,
+Teach us and inspire us to recognize our own brokenness and to avoid repeating what our ancestors have done over and over. Help us recognize our own wrongdoings and take the path you have planned for us.
 
-In your eyes Lord it must be a precious moment lost in eternity when we abuse your goodness and freewill.  
+In your eyes Lord it must be a precious moment lost in eternity when we abuse your goodness and freewill.
 
 _Have mercy on us O Lord, have mercy on us!_
 
@@ -978,17 +959,17 @@ Once a child of God always a child of God.
 
 We see how Jacob the younger brother tricked Esau to get the birthright and the blessing - a few chapters back. Now Jacob gets tricked by Laban his father-in-law, who promises Rachel the younger daughter if Jocob works for  7 years, he tricks him into marrying Leah. Jacob has to work another 7 years to marry the one he loves Rachel.
 
-As we hear all that went down between the two wives Leah and Rachel trying to win the love of Jacob, we can draw a few conclusions - that 
+As we hear all that went down between the two wives Leah and Rachel trying to win the love of Jacob, we can draw a few conclusions - that
 
-1. it’s such a mess 
+1. it’s such a mess
 
-2. God is always on the side of those who are hated/deprived. 
+2. God is always on the side of those who are hated/deprived.
 
-Leah was tolerated/hated by her husband and the Lord blessed her by opening her womb and Rachel remained barren. However, the Lord did bless Rachel later on and opened her womb(probably after she turned to the Lord). 
+Leah was tolerated/hated by her husband and the Lord blessed her by opening her womb and Rachel remained barren. However, the Lord did bless Rachel later on and opened her womb(probably after she turned to the Lord).
 
 Leah tried very hard to gain her husband's love - naming 3 children (in lines with my husband will Love Me) Many times spouses feel unloved, we need to pray and invite the Lord into the marriage and carry our cross until the Lord blesses our spouse. Let us rest assured that God will make something beautiful out of our mess, just as the twelve tribes of Israel were born amidst all the strife between Jacob and his two wives(the sisters).
 
-We need to also invite the Lord in all our relationships, on our own we will make a mess of our marriage, as humans we are flawed. The Key is to invite the Lord into the relationships. 3 to a good marriage. The two spouses centered on the Lord. God will make something beautiful out of the mess we have created. 
+We need to also invite the Lord in all our relationships, on our own we will make a mess of our marriage, as humans we are flawed. The Key is to invite the Lord into the relationships. 3 to a good marriage. The two spouses centered on the Lord. God will make something beautiful out of the mess we have created.
 
 
 
@@ -1038,19 +1019,19 @@ This is a fundamental question that many ask. In today's reading, we see how the
 
  We need to understand that this feeling of justice comes from the Lord, it's not our own. We long for a world where there is no injustice, and where no one is harmed or deceived. The bad news is that we may never see such a world as every human being has a deceptive heart and we are devouring each other. The only hope is heaven, our desire for justice will be fulfilled in heaven. Heaven will be that perfect place where there is no scorching sun, no pain or tears. Just the presence of the Lord. He will reign in Justice and Peace.
 
-However, we should strive to make Earth like heaven, starting with ourselves. We should mean it when we pray "Thy kingdom come, they will be done on earth as in heaven." 
+However, we should strive to make Earth like heaven, starting with ourselves. We should mean it when we pray "Thy kingdom come, they will be done on earth as in heaven."
 
 May the Holy Spirit lead us 🙏
 
 ### Day 17 Simitra ###
 
-Genesis 33:10 is so profound. Jacob says to Essau, "to see you is to see the face of God". Why? Inspite of the wrong that Jacob did by deceit, yet when Essau forgives him and receives him back, he compares his act to that of God. 
+Genesis 33:10 is so profound. Jacob says to Essau, "to see you is to see the face of God". Why? Inspite of the wrong that Jacob did by deceit, yet when Essau forgives him and receives him back, he compares his act to that of God.
 
 Just as God in Christ Jesus has forgiven us, when we forgive, our face is the reflection of God himself.
 
 ### Day 17 - Gabriella ###
 
-When Jacob meets Esau he forgives him. His heart exuded love and mercy toward his brother Jacob, imitating God’s abyss of unfathomable Love and Mercy. May every soul practice such virtue as that is the Will of God. 
+When Jacob meets Esau he forgives him. His heart exuded love and mercy toward his brother Jacob, imitating God’s abyss of unfathomable Love and Mercy. May every soul practice such virtue as that is the Will of God.
 
 *”_No soul will be justified until it turns with confidence to My mercy,_”* - St. Faustina, Diary 570
 
@@ -1064,25 +1045,25 @@ When Jacob meets Esau he forgives him. His heart exuded love and mercy toward hi
 
 Mk 3:7-12
 
-In the gospel, we see people giving Jesus an enthusiastic reception after hearing about the things He was doing. People converged on Him like a pilgrimage in faith. The hurdles on their way were no longer barriers but stepping stones to have a divine experience. 
+In the gospel, we see people giving Jesus an enthusiastic reception after hearing about the things He was doing. People converged on Him like a pilgrimage in faith. The hurdles on their way were no longer barriers but stepping stones to have a divine experience.
 
-Are you ready to walk an extra mile to meet or encounter Jesus? 
+Are you ready to walk an extra mile to meet or encounter Jesus?
 
-Wake up from your spiritual slumber! Give up the unnecessary luggage. Look up to Jesus. And with every step, build up your relationship with Him and with others 
+Wake up from your spiritual slumber! Give up the unnecessary luggage. Look up to Jesus. And with every step, build up your relationship with Him and with others
 
 "The problem is not in being sinners, the problem is when we don't let ourselves be transformed in love by the encounter with Christ”. Pope Francis
 
 ### Day 18 Simitra ###
 
-God is faithful to his promises. It is impossible that God should prove false. The Bible is full of God's promises and all of them are a “Yes” and “Amen” in Christ Jesus. 
+God is faithful to his promises. It is impossible that God should prove false. The Bible is full of God's promises and all of them are a “Yes” and “Amen” in Christ Jesus.
 
 Proverbs 3:26 says “for the Lord is your confidence” and the measure of our confidence in His promises is to the extent that we grow in the understanding of His love for us.
 
-### Day 18 Anonymous ### 
+### Day 18 Anonymous ###
 
-How often God accomplishes His will, inspite of our brokenness. 
+How often God accomplishes His will, inspite of our brokenness.
 
-He is faithful & He is steadfast. 
+He is faithful & He is steadfast.
 
 All Glory to Jesus
 
@@ -1090,7 +1071,7 @@ All Glory to Jesus
 
 As we read through the readings today. Names, names, and more names. It gets to that point where we can't even focus on the reading with all those names. However, we need just step back and look at how God works His will out. Abraham the man who had no kids till 99 is now becoming the father of the nations. His children, grandchildren and great-grandchildren are being fruitful and multiplying. God gives Jacob a new name "Isreal" and 12 sons who become the 12 tribes of Isreal. The blessing of the Lord is on the family for generations, they prosper and their flock and lands are blessed.
 
-“No one or nothing can change what God intends for us. He is a faithful God, what His hand does no one can stop. Let us feel confident today that God is in control of every situation, we are in His Hands.” - Michael Eltham 
+“No one or nothing can change what God intends for us. He is a faithful God, what His hand does no one can stop. Let us feel confident today that God is in control of every situation, we are in His Hands.” - Michael Eltham
 
 Even though things seem not going right today (like Job), let us not lose hope for we have a Faithful God.
 
@@ -1124,7 +1105,7 @@ May the Holy Spirit lead us. 🙏
 
 ### Day 19 Simitra ###
 
-Genesis 37:11,  "So his brothers were jealous of him". Every action that we take is first perceived in the mind. That's why Romans 12:2 tells us to "be transformed by the renewing of your minds so that you may discern what is the will of God, what is good and acceptable and perfect". 
+Genesis 37:11,  "So his brothers were jealous of him". Every action that we take is first perceived in the mind. That's why Romans 12:2 tells us to "be transformed by the renewing of your minds so that you may discern what is the will of God, what is good and acceptable and perfect".
 
 James 3:16,"For wherever there is jealousy and selfish ambition, there you will find disorder and evil of every kind". The jealousy of Joseph's brothers allowed them to go to the extent of selling their own brother as a slave.
 
@@ -1132,24 +1113,24 @@ Let us ask for God's grace to be vigilant knowing what an evil jealousy is.
 
 ### Day-19 Anonymous ###
 
-Joseph - beloved of Israel.  His brother's are jealous. Because of this distortion,  because of this jealousy, someone else has something that we believe is ours, should be ours.  In this case, it is the father's love.  They are not wrong.  They are wrong in choosing resentment. 
+Joseph - beloved of Israel.  His brother's are jealous. Because of this distortion,  because of this jealousy, someone else has something that we believe is ours, should be ours.  In this case, it is the father's love.  They are not wrong.  They are wrong in choosing resentment.
 Life is a gift.  We can't say it is owed to us. It is merely something that I can receive as a gratitude.
 
 ### Day 19 - Jealousy ###
 
-Everytime a situation arises where all my human weaknesses such as anger, jealousy, vengeance or greed are hightened, the lines of a song *"make me a channel of your peace"* remind me to be humble and calm me down 
+Everytime a situation arises where all my human weaknesses such as anger, jealousy, vengeance or greed are hightened, the lines of a song *"make me a channel of your peace"* remind me to be humble and calm me down
 
 
 " Oh master grant that i may never seek
-So much to be consoled as to console 
+So much to be consoled as to console
 To be understood, as to understand
 To be loved as to love with all my soul"
 
-These lines hold such deep meaning, and is very much in line with today's reading from Genesis as well. The brother's, by putting themselves before the other have led themselves to committng a crime. Had they for a moment, paused and put Joseph Or Israel before them, such a situation would not have come by. 
+These lines hold such deep meaning, and is very much in line with today's reading from Genesis as well. The brother's, by putting themselves before the other have led themselves to committng a crime. Had they for a moment, paused and put Joseph Or Israel before them, such a situation would not have come by.
 
-Selfishness of feeding ones ego and desire lead to evil acts unfavorable to God. 
+Selfishness of feeding ones ego and desire lead to evil acts unfavorable to God.
 
-So.. Each time we want out hearts or our desires to be fulfilled. Each time we feel we need more we don't have enough or are not given enough, we need to remind ourselves of these lines. 
+So.. Each time we want out hearts or our desires to be fulfilled. Each time we feel we need more we don't have enough or are not given enough, we need to remind ourselves of these lines.
 
 
 "For it is in giving that we receive"
@@ -1164,7 +1145,7 @@ So.. Each time we want out hearts or our desires to be fulfilled. Each time we f
 
 Note: Today’s reflections is for mature audience only.
 
-Separating the unitive act from the procreative act is "Onanism". For the very first time, the Bible states this sin - which is very prevalent today with the use of contraceptives and birth control. We decide to be God when we use contraceptives and birth control, instead of letting God be in control, the Bible says that the son who committed this sin made God angry and Onan was slain. 
+Separating the unitive act from the procreative act is "Onanism". For the very first time, the Bible states this sin - which is very prevalent today with the use of contraceptives and birth control. We decide to be God when we use contraceptives and birth control, instead of letting God be in control, the Bible says that the son who committed this sin made God angry and Onan was slain.
 
 But Er, Judah’s firstborn, greatly offended the LORD; so the LORD took his life.
 
@@ -1174,11 +1155,11 @@ Onan, however, knew that the offspring would not be his; so whenever he had inte
 
 10What he did greatly offended the LORD, and the LORD took his life too. Gen 38:7-10
 
-The church recommends married people follow Natural family planning. All married people should be open to life and not commit sins of Onamism, or anything that prevents natural conception. Single people are called to a life of absolute abstinence until married.   
+The church recommends married people follow Natural family planning. All married people should be open to life and not commit sins of Onamism, or anything that prevents natural conception. Single people are called to a life of absolute abstinence until married.
 
  We also look at extreme brokenness and the sad story of Tamar. Judah's double standard is on display today. He does not hesitate to indulge with Harlot's and when he finds out that Tamar his daughter-in-law is pregnant with a child from Harlotry he wants her burnt. Don't we sometimes have double standards - we are hypocrites - we preach one thing and don't follow it.  We condemn those who commit sin even though we secretly do it ourselves. We will need to eat "humble pie" on the day of Judgment - when everything will be brought to the light. Like when Tamar exposed Judah's sin - he said that she is more righteous than I. We need to admit that we are sinful, we need to change on the "inside", for
 
- "the heart is deceitful above all things and beyond cure. Who can understand it?" Jer 17:9. 
+ "the heart is deceitful above all things and beyond cure. Who can understand it?" Jer 17:9.
 
 BUT God can write straight with crooked lines. God can use broken vessels like us to do great things. Let us entrust our broken humanity to Him.
 
@@ -1193,7 +1174,7 @@ In Genesis 12:2, God told Abram, "I will bless you and make your name great, so 
 
 Gal 3:29, "And if you are Christ’s, then you are Abraham’s offspring, heirs according to promise.
 
-Each one of us who believe in Jesus Christ are Abraham's offspring and we receive the blessing, however we are to remember that God has blessed us to be a blessing. 
+Each one of us who believe in Jesus Christ are Abraham's offspring and we receive the blessing, however we are to remember that God has blessed us to be a blessing.
 
 Let us not put aside what we can do for others when it is in our power, for we are just the stewards of the Lord and God is the source of all things.
 
@@ -1217,7 +1198,7 @@ May the Holy Spirit lead us. 🙏
 
 ### Day 21- Jenita ###
 
-Joseph goes through tremendous tribulations..  He is betrayed, backstabbed, sold, falsely accused.. But still through it all.. He is calm because of his trust in the Lord. And that trust is strong because God is always with him. 
+Joseph goes through tremendous tribulations..  He is betrayed, backstabbed, sold, falsely accused.. But still through it all.. He is calm because of his trust in the Lord. And that trust is strong because God is always with him.
 
 Similarly, we too need to realize that.. No matter what happens in life... God is with us.. God constantly is walking with us every single second of our lives. And that is the ultimate comfort and assurance of peace one can ever rely on.
 
@@ -1229,7 +1210,7 @@ Similarly, we too need to realize that.. No matter what happens in life... God i
 
 ### Day 22: “Go to Joseph” - Michael Eltham ###
 
-We read such a beautiful story of Gods providence today. God uses Joseph to provide for his family. Joseph was sold by his brother, falsely accused by his masters wife and eventually thrown in Jail. One would think that it’s the end of the road for him. But our God can bring streams in the desert vegetation in dry land. He does lift up Joseph by giving him the ability to interpret dreams. Now Joseph becomes the one who saves literally the whole world as there was a famine in the whole world. He literally was the defender of bread during the drought. Isn’t he similar to St Joseph who also flees to Egypt with Mary and defended the baby Jesus - the bread of life. One of the titles of Joseph is the worker - he worked hard to provide for Jesus - also the OT Joseph is a great worker as he worked for 7 years to collect grain so much grain that they were not able to measure it. Let us learn from these two great men in the Bible and be defenders of Jesus - the bread of life. Let us be defenders of the faith. 
+We read such a beautiful story of Gods providence today. God uses Joseph to provide for his family. Joseph was sold by his brother, falsely accused by his masters wife and eventually thrown in Jail. One would think that it’s the end of the road for him. But our God can bring streams in the desert vegetation in dry land. He does lift up Joseph by giving him the ability to interpret dreams. Now Joseph becomes the one who saves literally the whole world as there was a famine in the whole world. He literally was the defender of bread during the drought. Isn’t he similar to St Joseph who also flees to Egypt with Mary and defended the baby Jesus - the bread of life. One of the titles of Joseph is the worker - he worked hard to provide for Jesus - also the OT Joseph is a great worker as he worked for 7 years to collect grain so much grain that they were not able to measure it. Let us learn from these two great men in the Bible and be defenders of Jesus - the bread of life. Let us be defenders of the faith.
 
 May the Holy Spirit lead us.🙏
 
@@ -1251,7 +1232,7 @@ For all of us especially those in any ministry, proclaiming the Word of God and
 
 ### Day 23: “Keep hold of instruction, do not let go” - Michael Eltham ###
 
- “Walk in the path of the righteous and you will never stumble” 
+ “Walk in the path of the righteous and you will never stumble”
 
 The proverb we hear today is so true. The only qualification to get to heaven is to be a saint, yes to be a “saint”. We are not born saints, we are born with original sin and the urge to sin is always with us. We read in Romans 7:14-15
 
@@ -1263,13 +1244,13 @@ May the Holy Spirit lead us. 🙏
 
 ### Day 23 - Jenita ###
 
-everyone and everything changes in time. A broken heart, broken relationship, people, situations, everything changes in time with the grace of God. 
+everyone and everything changes in time. A broken heart, broken relationship, people, situations, everything changes in time with the grace of God.
 
-Although Judah indulged in inappropriate activities, knowingly or unknowingly, the stains on his reputation are erased in these chapters from Genesis. We see how he is looked at as one who takes responsibility over his family by pledging his life for them. 
+Although Judah indulged in inappropriate activities, knowingly or unknowingly, the stains on his reputation are erased in these chapters from Genesis. We see how he is looked at as one who takes responsibility over his family by pledging his life for them.
 
-Situations change. 
+Situations change.
 
-Similarly although we may feel that this particular incident in our lives has led to a very unfavorable situation, when it is surrendered to God, everything will work in our favour. 
+Similarly although we may feel that this particular incident in our lives has led to a very unfavorable situation, when it is surrendered to God, everything will work in our favour.
 
 He is the God who restores.
 
@@ -1280,7 +1261,7 @@ He is the God who restores.
 [![Tears of Joy](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day024.jpg)](https://youtu.be/7y5ENYg8NWM "Tears of Joy")
 
 ### Day 24: “Unity in the family” - Michael Eltham ###
-Today’s readings make for such a beautiful scene. Joseph is united to his family, meets his beloved father (remember Joseph was the fav child), his younger brother who he never met before. He is reconciled with all his brothers who sold him. It’s the best feeling ever. No wonder he could not hold back tears, he cried like newborn baby. They all wept and hugged and felt complete as one family again. After all the betrayal, separation, anger, jealousy, loss, sadness… Finally, it’s time to be happy. Oh! what JOY!!! 
+Today’s readings make for such a beautiful scene. Joseph is united to his family, meets his beloved father (remember Joseph was the fav child), his younger brother who he never met before. He is reconciled with all his brothers who sold him. It’s the best feeling ever. No wonder he could not hold back tears, he cried like newborn baby. They all wept and hugged and felt complete as one family again. After all the betrayal, separation, anger, jealousy, loss, sadness… Finally, it’s time to be happy. Oh! what JOY!!!
 
 Ps 133:1  “Behold, how good and pleasant it is when brothers dwell in unity!”
 
@@ -1357,7 +1338,7 @@ Romans 8:28 tells us, ‘…We know that in all things God works for the good of
 
 We can rest assured that we will eventually see the favor of the Lord. Even though we may have to go through many trials and sufferings. Our end will be blessed, and our generations to come will be blessed because of our closeness to the Lord.
 
-The stories of both the great men end with how they are blessed on earth. But those stories also mention that they died. Given that they were just men – I’m sure they have now received a great reward in Heaven. May that be our story as well, may we be called just and may all our paths be righteous. 
+The stories of both the great men end with how they are blessed on earth. But those stories also mention that they died. Given that they were just men – I’m sure they have now received a great reward in Heaven. May that be our story as well, may we be called just and may all our paths be righteous.
 
 May the Holy Spirit lead us 🙏
 
@@ -1403,7 +1384,7 @@ We need to examine ourselves each time we come into God’s presence, whether it
 
  Receiving communion has become such a casual thing and the sacrament of confession has become a yearly affair. Let us examine our hearts and see if any mortal sins needs to be confessed. For we do not encounter just another person but God himself, the great “I AM”. He is the Alpha and the Omega the beginning and the end – there was nothing before Him and nothing comes after Him.
 
-God created us in His image and likeness, but we try to create God in our image and put him in a box – we ask Him his name, we ask what God can do, we ask if God can heal us, provide for us, etc. We seem to doubt God's power or will to do good sometimes. 
+God created us in His image and likeness, but we try to create God in our image and put him in a box – we ask Him his name, we ask what God can do, we ask if God can heal us, provide for us, etc. We seem to doubt God's power or will to do good sometimes.
 
 We cannot comprehend God fully; we can just experience a few aspects of God. If God reveals himself fully to us – we will not be able to look (like Moses)
 
@@ -1423,28 +1404,22 @@ God sets us free.. Not only because we asked for it.. But because he wants to es
 
 ### Day 29: "Finding excuses" - Michael Eltham ###
 
-Moses had an excuse for everything the Lord asked him to do. Some of his questions 
+Moses had an excuse for everything the Lord asked him to do. Some of his questions
 
-•	“ God – What’s your name/ Who are you?”
+•  “ God – What’s your name/ Who are you?”
 
-•	“Who am I?” 
+•  “Who am I?”
 
-•	 “If I go to the Israelites, “What if they won’t believe me? ”
+•  “If I go to the Israelites, “What if they won’t believe me? ”
 
-•	 “I’m not eloquent with words.”
+•  “I’m not eloquent with words.”
 
- Even though the Lord showed him two Miracles – ‘one with the staff turning into a snake’ and ‘the healing of leprosy ‘Moses said – “send someone else” Even though the Great I AM said he would be with Moses – Moses made excuses. The scripture says that God was angry. 
-
+Even though the Lord showed him two Miracles – ‘one with the staff turning into a snake’ and ‘the healing of leprosy ‘Moses said – “send someone else” Even though the Great I AM said he would be with Moses – Moses made excuses. The scripture says that God was angry.
 Ex 4:14 “Then the anger of the Lord was kindled against Moses”
-
 We may have a bunch of excuses, not enough time or not enough resources blah blah blah. Enough of blaming others and making excuses – it’s time to get tough on ourselves. We need to sit down and reflect on the excuses we make when the Lord calls us to do something.
-
 I’m too old, I’m too young, "I’m shy", "I have the wrong background", "If I only was more social", "If I was healthier", "If it wasn’t for the Virus:"….“I’m too busy”
-
 Speaking of “I’m too Busy”. When Pharoah found out that the Israelites wanted to take 3 days off to Worship the Lord, he said they had no work and gave them more work.
-
 Do we have Pharaohs in our lives, or is part of us Pharaoh itself? When our soul yearns for the Lord, we come up with so many chores and tasks – that we neglect "dedicated Worship time "for the Lord. Let us stop making excuses and start worshiping the great I AM.
-
 May the Holy Spirit Lead us 🙏
 
 ## January 30,2024 ##
