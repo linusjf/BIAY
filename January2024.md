@@ -1,5 +1,3 @@
-
-
 <!-- toc -->
 
 - [January 2024](#january-2024)

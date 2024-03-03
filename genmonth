@@ -35,4 +35,5 @@ month="$(monthfromnumber "$((10#${month}))")"
 monthmd="${month}${year}.md"
 ./compact "${month}" >|"${monthmd}" &&
   markdown-toc -i "${monthmd}"
+sed -i '/\S/,$!d' "${monthmd}"
 exit "$?"
