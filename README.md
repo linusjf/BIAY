@@ -22,7 +22,7 @@ A daily youtube video will be sent out.
 We start on Jan 1 and will complete reading the Bible on Dec 31.
 
 1. After listening to the days video, if you feel inspired write down a few points and share it with the group. It could be single word or a whole paragraph.
-1. Send your reflections to the group admins, the group admins will select a few reflections everyday.
+2. Send your reflections to the group admins, the group admins will select a few reflections everyday.
 
 The format for sharing is as below.
 —————————

@@ -200,23 +200,23 @@ We can see the water & Spirit theme from Genesis.
 
 1. At the dawn of creation, we see water and Spirit hovering over the waters and this beautiful world was created.
 
-1. Noah and his family passed through the water(flood) and finally they send out the dove to see if there is dry land. The dove is a symbol of Spirit. They are saved again – we have the theme of water and Spirit.
+2. Noah and his family passed through the water(flood) and finally they send out the dove to see if there is dry land. The dove is a symbol of Spirit. They are saved again – we have the theme of water and Spirit.
 
-1. We see the Israelites crossing the red see(water), led by smoke by day and fire by night.
+3. We see the Israelites crossing the red see(water), led by smoke by day and fire by night.
 
 Smoke and fire are symbols of the Holy Spirit. Again when they are saved we have the theme of water and Spirit.
 
 4. Israelites Crossing the Jordan to the promised Land
 
-1. Jesus was baptized – in the water of Jordan and the Holy Spirit came down like a dove.
+5. Jesus was baptized – in the water of Jordan and the Holy Spirit came down like a dove.
 
-1. So you are being saved by BAPTISIM, really initiated to be saved. (Water baptism)
+6. So you are being saved by BAPTISIM, really initiated to be saved. (Water baptism)
 
-1. Then you are confirmed with the Holy Spirit in the sacrament of confirmation. (Spirit baptism)
+7. Then you are confirmed with the Holy Spirit in the sacrament of confirmation. (Spirit baptism)
 
-1. Then you periodically cleanse yourself in the Sacrament of Confession
+8. Then you periodically cleanse yourself in the Sacrament of Confession
 
-1. You nourish yourself by receiving Jesus Body and Blood in the Sacrament of the Eucharist.
+9. You nourish yourself by receiving Jesus Body and Blood in the Sacrament of the Eucharist.
 
 May the Holy Spirit lead us 🙏
 
@@ -936,7 +936,7 @@ The word obligation can be misunderstood in two ways,
 
 1. can portray the Eucharist as unappealing, as though the people are forced to go to it
 
-1. as a minimum duty as though they will be saved and are going to heaven for sure
+2. as a minimum duty as though they will be saved and are going to heaven for sure
 
 Both those views need to be changed, the Eucharist is the highest form of worship and heaven joins earth – if it feels dull and mundane – it means we are unaware/under-educated on the true presence of Jesus. As we read through the BIAY – it will be slowly unveiled.
 

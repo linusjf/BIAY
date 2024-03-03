@@ -63,18 +63,18 @@ Example:
 Results:
 
 1. Video id is appended to the `videos.txt` file in the root directory.
-1. `Day010.md` is generated in the January subdirectory.
-1. `Day010.jpg` image is generated in the `January/jpgs` directory.
-1. `Day010.md` file name is appended to the `January/compact.txt` file.
-1. `January20XX.md` file is updated (in the root directory) with the `Day010.md` contents.
+2. `Day010.md` is generated in the January subdirectory.
+3. `Day010.jpg` image is generated in the `January/jpgs` directory.
+4. `Day010.md` file name is appended to the `January/compact.txt` file.
+5. `January20XX.md` file is updated (in the root directory) with the `Day010.md` contents.
 
 ## Add today's sharing
 
 1. First, add today's video.
-1. Edit the generated `Dayxxx.md` file for today.
-1. Paste the sharing text into the file adding appropriate markdown headers as needed.
-1. Save the file.
-1. Execute script `genmonth` with the following parameters:
+2. Edit the generated `Dayxxx.md` file for today.
+3. Paste the sharing text into the file adding appropriate markdown headers as needed.
+4. Save the file.
+5. Execute script `genmonth` with the following parameters:
 
 - month index - 1 - 12
 
@@ -119,13 +119,13 @@ Example:
 Results:
 
 1. The markdown is generated on the command line. This can be used to insert video markdown in your markdown files.
-1. The overlaid image file for the video is generated as `January/jpgs/bringingback.jpg`.
+2. The overlaid image file for the video is generated as `January/jpgs/bringingback.jpg`.
 
 ## Merge monthly markdown files into one large README
 
 1. Edit the `stitch.md` file provided to include the markdown files you wish to merge.
 
-1. The file format is as follows:
+2. The file format is as follows:
 
    ```markdown
    # README
@@ -146,7 +146,7 @@ Results:
 
    Include or exclude any files you need or don't need.
 
-3) Execute the `stitch` script.
+3. Execute the `stitch` script.
 
 ```bash
 ./stitch

@@ -179,13 +179,13 @@ Something which struck me was
 
 1. God is our Creator. He made us we are his creation the work of his hands.
 
-1. God is good.  Everything that He has created is good.
+2. God is good.  Everything that He has created is good.
 
-1. He is our source and provider.  He has given us everything even before He made us.
+3. He is our source and provider.  He has given us everything even before He made us.
 
-1. God is our Helper our ever present help in every need.
+4. God is our Helper our ever present help in every need.
 
-1. He is a master planner putting every detail in place.
+5. He is a master planner putting every detail in place.
 
 Our God is an awesome God
 
@@ -241,7 +241,7 @@ May the Holy Spirit lead us. 🙏
 Thoughts on action of Adam and the serpent:
 
 1. After creation, God has given Adam dominion over all animals (Gen 1:28). What Adam should have done when the serpent appeared before Eve was to rebuke it, protected Eve and cast the serpent out with his authority. Because of his inaction, Eve succumbed to temptation.
-1. The serpent is very clever. It did not do a direct onslaught. It just planted doubt in Eve’s mind by asking her a question.
+2. The serpent is very clever. It did not do a direct onslaught. It just planted doubt in Eve’s mind by asking her a question.
 
 As a Christian, we should be aware of our God-given duty. We should always be aware of what our duty and mission is and adhere to it without fail or doubt because our God will not ask us to do things that we are not capable of and He will always be there to guide us along. We should also be aware that temptations, like the serpent will creep up on us without our being aware of it. We should always be vigilant.
 Pray each day for protection and guidance from the Holy Spirit and our Mama Mary.
@@ -277,7 +277,7 @@ If we receive the fruit (Communion) from the tree of Life (the Cross) when we ar
 1. *God the provider, the most loving Father*
    We understand that.. Even though adam and Eve went Against God's word, and completely disobeyed him, God still loved them through his anger and wrath where he curses them, he still holds them. He takes care of them, and helps them get through their life on earth, to be back with him again for eternity in holiness.
 
-1. *The importance of giving the first fruits to God*
+2. *The importance of giving the first fruits to God*
 
 Giving the first hours of your day Or the first fruits of earnings to God shows how much he means to you in your life. We are ever ready to do everything for the person we love, giving the first in everything!! But why should the last few hours or whatever is remaining out of all the abundance God gave us, be given to him back as a sacrifice of love. Love of God is pure and we can only respect God by giving what we love to him.
 
@@ -385,9 +385,9 @@ May the Holy Spirit lead us. 🙏
 
 1. The foundation between God and man is interwoven with reminder of God's gift of human life.  God forbids murder of man.
 
-1. God says you can eat of the animals.  Animals are God 's creatures.  God entrusted animals to the stewardship of human beings.  And it is contrary to human dignity to be cruel to them.  This is an issue which troubled me a lot, when I saw humans attacking animals mercilessly.
+2. God says you can eat of the animals.  Animals are God 's creatures.  God entrusted animals to the stewardship of human beings.  And it is contrary to human dignity to be cruel to them.  This is an issue which troubled me a lot, when I saw humans attacking animals mercilessly.
 
-1. God loves His creation and creatures and we have to be obedient to His commandments. We should never question His ways because He created us and He knows  what is best for us.  I seek pardon for the times I have knowingly or unknowingly questioned.God, why He created animals to suffer at human hands?
+3. God loves His creation and creatures and we have to be obedient to His commandments. We should never question His ways because He created us and He knows  what is best for us.  I seek pardon for the times I have knowingly or unknowingly questioned.God, why He created animals to suffer at human hands?
 
 All Glory  to The Most Holy Trinity!
 
@@ -947,7 +947,7 @@ As we hear all that went down between the two wives Leah and Rachel trying to wi
 
 1. it’s such a mess
 
-1. God is always on the side of those who are hated/deprived.
+2. God is always on the side of those who are hated/deprived.
 
 Leah was tolerated/hated by her husband and the Lord blessed her by opening her womb and Rachel remained barren. However, the Lord did bless Rachel later on and opened her womb(probably after she turned to the Lord).
 
