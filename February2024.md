@@ -134,7 +134,7 @@ Let us join the Psalmist in this prayer for habitual sin.
 
 Ps 19: 13 “Keep back Thy servant also from presumptuous sins; let them not have dominion over me. Then shall I be upright, and I shall be innocent of the great transgression.”
 
-Also, don’t be discouraged even St Paul prayed three times for the thorn in his flesh to be taken away and was given the answer that 
+Also, don’t be discouraged even St Paul prayed three times for the thorn in his flesh to be taken away and was given the answer that
 
 “My grace is sufficient for thee, for My strength is made perfect in weakness.” 2 Cor 12:19
 
@@ -144,9 +144,9 @@ May the Holy Spirit lead us.🙏
 
 ### Day 32 - Gabriella ###
 
-We are so blessed by our heavenly Father to know how merciful and loving He is to each and every soul. I have now gained a clear perspective on Pharaoh’s behaviour and heart. 
+We are so blessed by our heavenly Father to know how merciful and loving He is to each and every soul. I have now gained a clear perspective on Pharaoh’s behaviour and heart.
 
-I have also often pondered why does God harden Pharaoh’s heart? He did not take away his free will. In fact God revealed himself to Pharaoh who knew God was above all gods and in spite of this Pharaoh obstinately refuses to acknowledge God. And God shows His goodness, His power but it was Pharaoah who hardened his heart. 
+I have also often pondered why does God harden Pharaoh’s heart? He did not take away his free will. In fact God revealed himself to Pharaoh who knew God was above all gods and in spite of this Pharaoh obstinately refuses to acknowledge God. And God shows His goodness, His power but it was Pharaoah who hardened his heart.
 
 *Hebrews 3:7–8*
 Therefore the Holy Spirit says, 'Today if you hear his voice, do not harden your hearts as in rebellion. . . “
@@ -249,7 +249,7 @@ But the Lord is with me as a dread warrior; therefore my persecutors will stumbl
 
 May the Holy Spirit lead us. 🙏
 
-### Day 35 Anonymous ### 
+### Day 35 Anonymous ###
 
 Joseph's bones were carried out of Egypt as told by him.  This is an eye-opener to me, as I wondered why remains are preserved even today.
 GOD has revealed Himself in humility,  poverty, allowed us to torture Hiim.
@@ -350,9 +350,9 @@ May the Holy Spirit lead us 🙏
 
 ### Day 39 “God delivered Israelites from slavery, now He will slowly remove slavery from their hearts”  - Michael Eltham ###
 
-Like Fr Mike explained so beautifully, God must deal gently with us broken human beings. If we take the reading out of context, we can tend to say that God likes slavery and hence made rules for the slaves. If God does not stoop down to our level, we will not be able to bare God, just like when God spoke to his people on mount Sanai a few chapters ago it was like thunder and the people requested Moses that God not speak to them, rather Moses be the listener. 
+Like Fr Mike explained so beautifully, God must deal gently with us broken human beings. If we take the reading out of context, we can tend to say that God likes slavery and hence made rules for the slaves. If God does not stoop down to our level, we will not be able to bare God, just like when God spoke to his people on mount Sanai a few chapters ago it was like thunder and the people requested Moses that God not speak to them, rather Moses be the listener.
 
-A nocturnal creature like a rodent – would flee to hide when there is a bright light turned ON. In the same way, if God reveals Himself to us directly, we will die of awe. We will be blinded like Saul(St Paul) we will be consumed by His fire of Love. God is dealing gently with the Israelites who were slaves for generations (400 years), slavery is a way of life for them. It’s just like bringing an abused pet home, we need to first let the pet know that we are not going to hurt it. We need to give it space, and offer it some calm, some care, although we want to go and hug it and tell it that we mean no harm, the pet is not in a state to understand care and love – it will bite us if we approach it with too much of enthusiasm. It took God little time to get the Israelites out of slavery (Egypt) but will take many years to get slavery (Egypt) out of their hearts. Let us journey with them, as the Lord journeys with us to lead us slowly and gently to wholeness as He leads the Israelites to the promised land both physically and mentally. 
+A nocturnal creature like a rodent – would flee to hide when there is a bright light turned ON. In the same way, if God reveals Himself to us directly, we will die of awe. We will be blinded like Saul(St Paul) we will be consumed by His fire of Love. God is dealing gently with the Israelites who were slaves for generations (400 years), slavery is a way of life for them. It’s just like bringing an abused pet home, we need to first let the pet know that we are not going to hurt it. We need to give it space, and offer it some calm, some care, although we want to go and hug it and tell it that we mean no harm, the pet is not in a state to understand care and love – it will bite us if we approach it with too much of enthusiasm. It took God little time to get the Israelites out of slavery (Egypt) but will take many years to get slavery (Egypt) out of their hearts. Let us journey with them, as the Lord journeys with us to lead us slowly and gently to wholeness as He leads the Israelites to the promised land both physically and mentally.
 
 May the Holy Spirit lead us. 🙏
 
@@ -364,7 +364,7 @@ May the Holy Spirit lead us. 🙏
 
 ### Day 40: “Only Mortal sin makes us unworthy of receiving communion, not just bodily discharge” - Michael Eltham ###
 
-We are invited to the great banquet, the lamb’s supper – we receive Jesus’ body and blood. To respond to this invitation, we must prepare ourselves for so great and so holy a moment. 
+We are invited to the great banquet, the lamb’s supper – we receive Jesus’ body and blood. To respond to this invitation, we must prepare ourselves for so great and so holy a moment.
 
 St. Paul urges us to examine our conscience: "Whoever, therefore, eats the bread or drinks the cup of the Lord in an unworthy manner will be guilty of profaning the body and blood of the Lord. Let a man examine himself, and so eat of the bread and drink of the cup. For anyone who eats and drinks without discerning the body eats and drinks judgment upon himself."218 Anyone conscious of a grave sin must receive the sacrament of Reconciliation before coming to communion. CC 1385
 
@@ -423,7 +423,7 @@ May the Holy Spirit lead us. 🙏
 
 ### Day 42: “Moral Law” - Michael Eltham ###
 
-As we hear the laws and detailed instructions, we can’t help but realize how privileged we are, we don’t live in barbarous times. We live in Nations that have laws and regulations. We also have something called the natural and moral law. We have manners and acceptable social behavior. Let’s thank the Lord for He is the source of all good. 
+As we hear the laws and detailed instructions, we can’t help but realize how privileged we are, we don’t live in barbarous times. We live in Nations that have laws and regulations. We also have something called the natural and moral law. We have manners and acceptable social behavior. Let’s thank the Lord for He is the source of all good.
 
 James 1:17 “ Everything good comes from God”.
 
@@ -449,20 +449,20 @@ May the Holy Spirit lead us. 🙏
 
 ### Day 42 - Jenita ###
 
-In these reading we see how God constantly watches and cares for his children. 
+In these reading we see how God constantly watches and cares for his children.
 
-He sees to their every need and ensures they are fit to be in his presence. 
+He sees to their every need and ensures they are fit to be in his presence.
 
-The people show acts of trust, and thats what we need to learn today. 
+The people show acts of trust, and thats what we need to learn today.
 
 
 Trust in God and obey his laws
 
 ### Day 42 Anonymous ###
 
-Despite His wonders they did  not believe. 
+Despite His wonders they did  not believe.
 Their  heart was not steadfast towards Him.
-The temptations to 
+The temptations to
 Forget what U hv done.
 How good You are, and how fickle  we can be.
 3 -laws-  a particular kind of Society,  temple worship and sexual morality - this is an universal, absolute commandment.
@@ -572,7 +572,7 @@ Acts 29: 11, 12 “God did extraordinary miracles through Paul, so that when the
 
 Go on Sprinkle some Holy water 😃
 
-Joke: How do you make holy water? 
+Joke: How do you make holy water?
 
 Boil the hell out of it. 😂
 
@@ -643,11 +643,11 @@ There is something for us to learn from the Israelites, we need to cultivate thi
 “God loves a cheerful giver.” 2 Cor 9:7
 May the Holy Spirit lead us 🙏
 
-### Day 49 Anonymous ### 
+### Day 49 Anonymous ###
 
 There's no greater act that any human can do than the Act of Worship!
-Open our hearts to trust in You, to love You, Lord.  
-Jubilee Year - The year of restoration.  In this year every Israelite slave would be restored to freedom, 
+Open our hearts to trust in You, to love You, Lord.
+Jubilee Year - The year of restoration.  In this year every Israelite slave would be restored to freedom,
 because they are not meant to be slaves.  "I AM THE LORD YOUR GOD, WHO BROUGHT YOU OUT OF EGYPT."
 Thank You Lord, for Your mercies n not letting us be slaves forever!
 
@@ -672,7 +672,7 @@ May the Holy Spirit Lead us. 🙏
 ### Day 51 “Getting worship of God right” "Votive offerings" ###
 Some would argue that God is Omnipresent, and we can worship Him anywhere, there is no need for a structure. Yes, we can worship God anywhere, there is no harm in that. But if we have been paying close attention, we see detailed instructions about the tabernacle, the ark of the covenant, the altars, the screens, the lampstand, and most important the consecration of the place to be dedicated for the worship of the most High God.
 Of course, the Lord is present when you read your bible at home, He is present when you sing praise songs while driving, He is present in your family prayer and person prayer. However, He calls us to go to Church, the place dedicated to His worship, community worship. We see in the reading how the cloud of smoke engulfed the tabernacle, the presence of the Lord was so strong that the Levites could not even go in. We need to be sensitive to the presence of God when we go to church, bow down and adore Him in the tabernacle. And as we will read later – how Jesus will teach us "how to worship", and we will read how the apostles were dedicated to the breaking of bread and if we like we can go deeper and learn how the early Christians and the church fathers worshiped God (not part of the Bible, but can be found in early historic records and writings) it’s amazing how the Eucharist is the fulfillment of the earlier sacrifices and the one method of worship that was instituted by Jesus and practice and preserved through the generations in its original state. We will learn more as we read through the BIAY. But for now, let us remember that we need to Get worship right, not how we want to, but how God prescribes it.
-Votive Offering – Many people were so moved by the Lord that they wanted to give more than what is asked. That’s why we see the value of work(wages) of different people men, women of diff ages had a different Shekel value. It was for those who could not offer sacrifice because there were not Levites, yet wanted to offer more than what was asked of them. Hence they gave their value of wages in the votive offering. 
+Votive Offering – Many people were so moved by the Lord that they wanted to give more than what is asked. That’s why we see the value of work(wages) of different people men, women of diff ages had a different Shekel value. It was for those who could not offer sacrifice because there were not Levites, yet wanted to offer more than what was asked of them. Hence they gave their value of wages in the votive offering.
 We need to ask ourselves – what is my votive offering. Am I just doing the minimum required or am I moved by the Lord to do more than I am asked?
 How about going beyond the Sunday obligation and going to church on a few weekdays.
 If we have an attitude of “If I wake up I’ll go” we need to change it and be more precise like the Levites, measure out what we can do and what we want to do for the Lord, dedicated it to the Lord and He will make sure all hurdles are removed for us to do what we intend to do.
@@ -697,7 +697,7 @@ However the Lord cares for everyone, he loves each one of us so intimately that
 He chose us
 “You did not choose me, but I chose you and appointed you” John 15
 “Before I formed you in the womb I knew you, before you were born I set you apart; I appointed you as a prophet to the nations.” Jer 1:5
-This knowledge is too much for us to understand, that our creator can love each one in such a personal way. We cannot even imagine how the Lord can love billions and billions and zillions of people across centuries. That he can care about every little thing about each person that ever existed. Even the most complex network of computer servers cannot come close to the knowledge of God. We are truly blessed to be God's chosen children. 
+This knowledge is too much for us to understand, that our creator can love each one in such a personal way. We cannot even imagine how the Lord can love billions and billions and zillions of people across centuries. That he can care about every little thing about each person that ever existed. Even the most complex network of computer servers cannot come close to the knowledge of God. We are truly blessed to be God's chosen children.
 My favorite part of today’s psalm - 84:
 Better is one day in your courts
   than a thousand elsewhere;
@@ -705,7 +705,7 @@ Better is one day in your courts
   than dwell in the tents of the wicked.
 I have never come out of prayer sad or hopeless. Every time we pray – we encounter God and no one leaves the presence of God sad and hopeless.
 “Prayer is the best weapon we possess. It is the key that opens the heart of God.”
-St Padre Pio. 
+St Padre Pio.
 May the Holy Spirit lead us 🙏
 
 ## February 22,2024 ##
@@ -822,14 +822,14 @@ May the Holy Spirit lead us. 🙏
 
 ### Day 57 *“Lent – The Nazirite vow – time set apart for the Lord” “Psalm 91 – WOW!!!”* ###
 
- We read about the Nazirite vow and how one would dedicate a certain time totally to God. They would not have any wine or strong drink; they would let the hair grow and not tend to their grooming needs. Isn’t this what one does when they decide to give up something for Lent. 
+ We read about the Nazirite vow and how one would dedicate a certain time totally to God. They would not have any wine or strong drink; they would let the hair grow and not tend to their grooming needs. Isn’t this what one does when they decide to give up something for Lent.
 We are dedicating ourselves to prayer, reading the bible, attending mass, fasting and almsgiving.
- Every Lent is a special time of grace for me, I feel spiritually renewed through the 40 days of prayer, fasting and almsgiving. 
+ Every Lent is a special time of grace for me, I feel spiritually renewed through the 40 days of prayer, fasting and almsgiving.
 We dedicate ourselves to the Lord at the start of Lent when we put ashes on our forehead, reminding us of our nothingness. We need to offer up sacrifices and give up certain things to remind us that we are in lent. Some examples: I plan to give us meat and wine and the kids plan to give up candy for lent. Some people fast a meal and some don’t add sugar to their coffee. All of these are great reminders to the real purpose of Lent. The real purpose is to remind us what we read in the reading in Deut6 – the great Shema – “ Hear, O Israel: The LORD is our God, the LORD alone. You shall love the LORD your God with all your heart, and with all your soul, and with all your might”
-Throughout lent we need to refocus on the Lord everyday. Our focus should not be on what we give up or our fasting or almsgiving. The focus should be on the Lord. Making Him the Lord of our life, we should strive to love up with everything we have with our heart, mind and soul with all our might. 
-Let’s not forget that every step we take towards God he takes 10 steps towards us. Like we read in Psalm 91 today First verse is what we should need to do and the remaining verses tell us what the Lord will do. 
-We need to make Him our God and live in Him. 
-   
+Throughout lent we need to refocus on the Lord everyday. Our focus should not be on what we give up or our fasting or almsgiving. The focus should be on the Lord. Making Him the Lord of our life, we should strive to love up with everything we have with our heart, mind and soul with all our might.
+Let’s not forget that every step we take towards God he takes 10 steps towards us. Like we read in Psalm 91 today First verse is what we should need to do and the remaining verses tell us what the Lord will do.
+We need to make Him our God and live in Him.
+
 “You who live in the shelter of the Most High,
   who abide in the shadow of the Almighty”
 
@@ -848,23 +848,23 @@ No evil shall befall you
 No scourge will come near your home
 Angles will guard us in all our ways
 We will trample the lion and the serpent
-He will deliver us, protect us 
+He will deliver us, protect us
 He will hear us when we call
 He will be with us in trouble
 He will rescue us and honor us
 With long life He will satisfy us
-He will show us salvation 
+He will show us salvation
 
 Wow!! Wow!!! Thank you Lord
-Ready Ps 91 everyday – make Him the Lord and He will take care of us. 
+Ready Ps 91 everyday – make Him the Lord and He will take care of us.
 
 May the Holy Spirit lead us.
 
 ### Day 57 : Jenita ###
 
-Today's readings speaks volumes of God's blessings and protection for the people who are faithful to him. 
+Today's readings speaks volumes of God's blessings and protection for the people who are faithful to him.
 
-Simple acts of love shown to God leads us to receive innumerable blessings from God. 
+Simple acts of love shown to God leads us to receive innumerable blessings from God.
 
 Trust in God and stay loyal to worshipping and praising God always
 
@@ -872,12 +872,12 @@ Trust in God and stay loyal to worshipping and praising God always
 
 Lord, help us never forget what You have done for us!
 
-Aaronic Blessing - every Parent ought to give this blessing to their children. 
+Aaronic Blessing - every Parent ought to give this blessing to their children.
 
 We need to remind our children about how The Lord our God  brought us out from slavery in Egypt.   So we have to obey God's commandments, especially not to defile ourselves,  but honour n worship The One True God.
 
 One new revelation about the Sign of The  Cross on our forehead, our lips n our heart. - before The Gospel..
-"May The Word of The Lord  be on our minds, our lips and our hearts. 
+"May The Word of The Lord  be on our minds, our lips and our hearts.
 
 All Glory to Jesus!
 
@@ -919,7 +919,7 @@ We see the strict instruction on how every Israelite was required to keep the Pa
 
 But for now, let us learn how important keeping the Passover or attending Mass is, we will be cut off from the flock if we don’t go to Mass as prescribed by the church.
 
-The Catholic Church makes it very clear “Sunday is to be observed as the foremost holy day of obligation.” (cf. Canon 1246.1) There are no excuses – no holidays or sports qualify – we need to go to Mass at least on Sunday or Saturday eve. There are a few exceptions like – if you are sick or caring for someone who is sick or if you are elderly or too young. 
+The Catholic Church makes it very clear “Sunday is to be observed as the foremost holy day of obligation.” (cf. Canon 1246.1) There are no excuses – no holidays or sports qualify – we need to go to Mass at least on Sunday or Saturday eve. There are a few exceptions like – if you are sick or caring for someone who is sick or if you are elderly or too young.
 
 The other days of obligation (as per the USCCB):
 
