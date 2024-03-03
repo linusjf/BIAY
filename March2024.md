@@ -1,14 +1,14 @@
 <!-- toc -->
 
 - [March 2024](#march-2024)
-  - [March 01,2024](#march-012024)
-    - [Complaining in the Desert](#complaining-in-the-desert)
-    - [Day 61: “Complaint of rebellion”](#day-61-complaint-of-rebellion)
-  - [March 02,2024](#march-022024)
-    - [Spies Sent to Canaan](#spies-sent-to-canaan)
-    - [Day 62: “Family Feud”](#day-62-family-feud)
-  - [March 03,2024](#march-032024)
-    - [Israel's Rebellion](#israels-rebellion)
+  * [March 01,2024](#march-012024)
+    + [Complaining in the Desert](#complaining-in-the-desert)
+    + [Day 61: “Complaint of rebellion”](#day-61-complaint-of-rebellion)
+  * [March 02,2024](#march-022024)
+    + [Spies Sent to Canaan](#spies-sent-to-canaan)
+    + [Day 62: “Family Feud”](#day-62-family-feud)
+  * [March 03,2024](#march-032024)
+    + [Israel's Rebellion](#israels-rebellion)
 
 <!-- tocstop -->
 
