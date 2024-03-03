@@ -1,0 +1,7 @@
+#!/usr/bin/env bash
+require() {
+  hash "$@" || exit
+}
+require mdl
+mdl -- **/*.md
+exit $?
