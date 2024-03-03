@@ -61,7 +61,6 @@
     + [Day 12: *Dedication to daily devotion and work.* - Michael Eltham](#day-12-dedication-to-daily-devotion-and-work---michael-eltham)
     + [Day 12 Anonymous](#day-12-anonymous)
     + [Day 12 - Jenita](#day-12---jenita)
-    + [Day 12 Anonymous](#day-12-anonymous-1)
   * [January 13,2024](#january-132024)
     + [Esau Sells His Birthright](#esau-sells-his-birthright)
     + [Day 13 Selling our inheritance for temporal pleasure](#day-13-selling-our-inheritance-for-temporal-pleasure)
@@ -307,11 +306,7 @@ God must have been so close to Enoch that he let him live a long life of 365 yea
 
 Some evidence can be found in Sirach and Hebrews.
 
-
-
 ENOCH walked with the LORD and was taken, that succeeding generations might learn by his example. Sirach 44:16
-
-
 
 Few on earth have been created like ENOCH; he also was taken up bodily. Sirach 49:14
 
@@ -326,7 +321,6 @@ Let us be the salt of the world and the light of the world.
 May we not just do as the world does but live as God wants us to live, in the world but not of the world.
 
 May the Holy Spirit lead us. 🙏
-
 
 ### Day 3 Name: Anonymous ###
 
@@ -395,6 +389,7 @@ May the Holy Spirit lead us. 🙏
 2. God says you can eat of the animals.  Animals are God 's creatures.  God entrusted animals to the stewardship of human beings.  And it is contrary to human dignity to be cruel to them.  This is an issue which troubled me a lot, when I saw humans attacking animals mercilessly.
 
 3. God loves His creation and creatures and we have to be obedient to His commandments. We should never question His ways because He created us and He knows  what is best for us.  I seek pardon for the times I have knowingly or unknowingly questioned.God, why He created animals to suffer at human hands?
+
 All Glory  to The Most Holy Trinity!
 
 ### Day 4 Cynthia D'Silva ###
@@ -444,7 +439,7 @@ Help us to use our gifts for Your glory O Lord!
 
 ### Day 5 - Jenita ###
 
-*"Choosing excellence over power, pride and fame"*
+\*"Choosing excellence over power, pride and fame"*\
 
 ### Day-5 Anonymous ###
 
@@ -470,11 +465,7 @@ God permits satan to take Job’s possessions, his livestock, property and child
 
 Then Satan answered the Lord, “Does Job fear God for nothing? 10 Have you not put a fence around him and his house and all that he has, on every side? You have blessed the work of his hands, and his possessions have increased in the land. 11 But stretch out your hand now, and touch all that he has, and he will curse you to your face.” 12 The Lord said to Satan, “Very well, all that he has is in your power; only do not stretch out your hand against him!” So Satan went out from the presence of the Lord. Job 1:9-12.
 
-
-
 On seeing the statue of Mother Mary in my home the HVAC contractor struck up a conversation with me about religion, he stopped going to church after he lost his wife to cancer. His wife was a devout catholic and did nothing wrong her whole life, he asked “why would God want to give such a good person cancer?”. Well, we may never know the reason why we are given so many sufferings in life, but we need to rely on the fact that God is in control and we face sufferings for our spiritual growth. Most people would curse God and stop praying if they lost their job, property and kids. But this caused Job to worship God.
-
-
 
 20 Then Job arose, tore his robe, shaved his head, and fell on the ground and worshiped. 21 He said, “Naked I came from my mother’s womb, and naked shall I return there; the Lord gave, and the Lord has taken away; blessed be the name of the Lord.”Job 1:20-21
 
@@ -852,13 +843,7 @@ He only wants us to trust the e tire process
 
 This is all we need to do..  Trust and serve God even on the dark days, know that he is there even when we are in the darkness.
 
-*Trust the process*
-
-### Day 12 Anonymous ###
-
-God's providence is always at work.
-How powerfully we rely on God's providence, even when we don't see.
-God is faithful, even when we are unfaithful and He provides.
+\*Trust the process\*
 
 ## January 13,2024 ##
 
@@ -970,8 +955,6 @@ Leah was tolerated/hated by her husband and the Lord blessed her by opening her 
 Leah tried very hard to gain her husband's love - naming 3 children (in lines with my husband will Love Me) Many times spouses feel unloved, we need to pray and invite the Lord into the marriage and carry our cross until the Lord blesses our spouse. Let us rest assured that God will make something beautiful out of our mess, just as the twelve tribes of Israel were born amidst all the strife between Jacob and his two wives(the sisters).
 
 We need to also invite the Lord in all our relationships, on our own we will make a mess of our marriage, as humans we are flawed. The Key is to invite the Lord into the relationships. 3 to a good marriage. The two spouses centered on the Lord. God will make something beautiful out of the mess we have created.
-
-
 
 May the Holy Spirit lead us. 🙏
 
@@ -1120,7 +1103,6 @@ Life is a gift.  We can't say it is owed to us. It is merely something that I ca
 
 Everytime a situation arises where all my human weaknesses such as anger, jealousy, vengeance or greed are hightened, the lines of a song *"make me a channel of your peace"* remind me to be humble and calm me down
 
-
 " Oh master grant that i may never seek
 So much to be consoled as to console
 To be understood, as to understand
@@ -1131,7 +1113,6 @@ These lines hold such deep meaning, and is very much in line with today's readin
 Selfishness of feeding ones ego and desire lead to evil acts unfavorable to God.
 
 So.. Each time we want out hearts or our desires to be fulfilled. Each time we feel we need more we don't have enough or are not given enough, we need to remind ourselves of these lines.
-
 
 "For it is in giving that we receive"
 
@@ -1261,6 +1242,7 @@ He is the God who restores.
 [![Tears of Joy](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/Day024.jpg)](https://youtu.be/7y5ENYg8NWM "Tears of Joy")
 
 ### Day 24: “Unity in the family” - Michael Eltham ###
+
 Today’s readings make for such a beautiful scene. Joseph is united to his family, meets his beloved father (remember Joseph was the fav child), his younger brother who he never met before. He is reconciled with all his brothers who sold him. It’s the best feeling ever. No wonder he could not hold back tears, he cried like newborn baby. They all wept and hugged and felt complete as one family again. After all the betrayal, separation, anger, jealousy, loss, sadness… Finally, it’s time to be happy. Oh! what JOY!!!
 
 Ps 133:1  “Behold, how good and pleasant it is when brothers dwell in unity!”
