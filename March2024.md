@@ -9,6 +9,8 @@
   * [March 02,2024](#march-022024)
     + [Spies Sent to Canaan](#spies-sent-to-canaan)
     + [Day 62: “Family Feud”](#day-62-family-feud)
+  * [March 03,2024](#march-032024)
+    + [Israel's Rebellion](#israels-rebellion)
 
 <!-- tocstop -->
 
@@ -49,3 +51,9 @@ We see Aaron and Miriam, speaking ill of Moses’ wife. They seem to be upset th
 However the Lord knows how to unite families, as soon as Miriam got sick – the differences disappeared the brothers united – Aaron asks Moses to pray, and Moses prays from his heart, let's see what happens next.
 Let's take some time to pray for our family and in-laws.
 May the Holy Spirit Lead us. 🙏
+
+## March 03,2024 ##
+
+### Israel's Rebellion ###
+
+[![Israel's Rebellion](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day063.jpg)](https://youtu.be/0TIAYr9W5pw "Israel's Rebellion")
