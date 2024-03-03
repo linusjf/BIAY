@@ -1,121 +1,121 @@
 <!-- toc -->
 
 - [February 2024](#february-2024)
-  * [February 01,2024](#february-012024)
-    + [Cattle, Boils, and Hail](#cattle-boils-and-hail)
-    + [Day 32: “Habitual sins” - Michael Eltham](#day-32-habitual-sins---michael-eltham)
-    + [Day 32 - Gabriella](#day-32---gabriella)
-  * [February 02,2024](#february-022024)
-    + [Locusts, Darkness, and Death of the First Born](#locusts-darkness-and-death-of-the-first-born)
-    + [Day 33: “Idols and false gods”](#day-33-idols-and-false-gods)
-  * [February 03,2024](#february-032024)
-    + [The Passover Instituted](#the-passover-instituted)
-    + [Day 34: “Who is worthy” - Michael Eltham](#day-34-who-is-worthy---michael-eltham)
-  * [February 04,2024](#february-042024)
-    + [Crossing the Red Sea](#crossing-the-red-sea)
-    + [Day 35: “The Lord is fighting for us” - Michael Eltham](#day-35-the-lord-is-fighting-for-us---michael-eltham)
-    + [Day 35 Anonymous](#day-35-anonymous)
-  * [February 05,2024](#february-052024)
-    + [Manna From Heaven](#manna-from-heaven)
-    + [Day 36: “Murmuring for Manna to Murmuring about the True presence of Jesus in the Eucharist.” - Michael Eltham](#day-36-murmuring-for-manna-to-murmuring-about-the-true-presence-of-jesus-in-the-eucharist---michael-eltham)
-    + [Day 36 Simitra](#day-36-simitra)
-    + [Day 36 Anonymous](#day-36-anonymous)
-  * [February 06,2024](#february-062024)
-    + [The Mystical Works of God](#the-mystical-works-of-god)
-    + [Day 37: “Water from the Rock - Jesus” - Michael Eltham](#day-37-water-from-the-rock---jesus---michael-eltham)
-  * [February 07,2024](#february-072024)
-    + [The Ten Commandments](#the-ten-commandments)
-    + [Day 38 “Relationship and Rules” - Michael Eltham](#day-38-relationship-and-rules---michael-eltham)
-  * [February 08,2024](#february-082024)
-    + [Slavery in the Old Testament](#slavery-in-the-old-testament)
-    + [Day 39 “God delivered Israelites from slavery, now He will slowly remove slavery from their hearts” - Michael Eltham](#day-39-god-delivered-israelites-from-slavery-now-he-will-slowly-remove-slavery-from-their-hearts----michael-eltham)
-  * [February 09,2024](#february-092024)
-    + [Laws of Justice](#laws-of-justice)
-    + [Day 40: “Only Mortal sin makes us unworthy of receiving communion, not just bodily discharge” - Michael Eltham](#day-40-only-mortal-sin-makes-us-unworthy-of-receiving-communion-not-just-bodily-discharge---michael-eltham)
-  * [February 10,2024](#february-102024)
-    + [The Day of Atonement](#the-day-of-atonement)
-    + [Day 41: “Atonement for sins – Confession & Eucharist”](#day-41-atonement-for-sins-%E2%80%93-confession--eucharist)
-  * [February 11,2024](#february-112024)
-    + [Moral Laws](#moral-laws)
-    + [Day 42: “Moral Law” - Michael Eltham](#day-42-moral-law---michael-eltham)
-    + [Day 42 - Jenita](#day-42---jenita)
-    + [Day 42 Anonymous](#day-42-anonymous)
-  * [February 12,2024](#february-122024)
-    + [The Ark of the Covenant](#the-ark-of-the-covenant)
-    + [Day 43: “The Tabernacle, His presence” - Michael Eltham](#day-43-the-tabernacle-his-presence---michael-eltham)
-    + [Day 43 Simitra](#day-43-simitra)
-  * [February 13,2024](#february-132024)
-    + [Priestly Garments](#priestly-garments)
-    + [Day 44: “Priests' clothes during Worship aren’t Jeans and T-shirt” - Michael Eltham](#day-44-priests-clothes-during-worship-arent-jeans-and-t-shirt---michael-eltham)
-    + [Golden Garments of the Kohen Gadol Shemot](#golden-garments-of-the-kohen-gadol-shemot)
-    + [Bishop's Garments](#bishops-garments)
-  * [February 14,2024](#february-142024)
-    + [Pray for Priests](#pray-for-priests)
-    + [Day 45: “Holy Priests and celibacy”](#day-45-holy-priests-and-celibacy)
-  * [February 15,2024](#february-152024)
-    + [Set Apart for God](#set-apart-for-god)
-    + [Day 46: “Holy Oil, Holy water, Holy stuff, Sacramentals”](#day-46-holy-oil-holy-water-holy-stuff-sacramentals)
-  * [February 16,2024](#february-162024)
-    + [The Golden Calf](#the-golden-calf)
-    + [Day 47: “Man-O-Man what a man - Moses” “We the stiff-necked people want to make God in our own image” “Be a Levite – on the Lord’s Side”](#day-47-man-o-man-what-a-man---moses-we-the-stiff-necked-people-want-to-make-god-in-our-own-image-be-a-levite-%E2%80%93-on-the-lords-side)
-  * [February 17,2024](#february-172024)
-    + [God's Presence](#gods-presence)
-    + [Day 48: “Personal relationship with God” “Eucharistic Adoration - Our tent of the presence”](#day-48-personal-relationship-with-god-eucharistic-adoration---our-tent-of-the-presence)
-  * [February 18,2024](#february-182024)
-    + [The Year of Jubilee](#the-year-of-jubilee)
-    + [Day 49: “A willing and cheerful giver”](#day-49-a-willing-and-cheerful-giver)
-    + [Day 49 Anonymous](#day-49-anonymous)
-  * [February 19,2024](#february-192024)
-    + [Sacrificial Offerings](#sacrificial-offerings)
-    + [Day 50 “Obedience” - Michael Eltham](#day-50-obedience---michael-eltham)
-  * [February 20,2024](#february-202024)
-    + [Israel's Worship of God](#israels-worship-of-god)
-    + [Day 51 “Getting worship of God right” "Votive offerings"](#day-51-getting-worship-of-god-right-votive-offerings)
-  * [February 21,2024](#february-212024)
-    + [Introduction to Desert Wanderings (with Jeff Cavins)](#introduction-to-desert-wanderings-with-jeff-cavins)
-    + [Israel Continues to Journey](#israel-continues-to-journey)
-    + [Day 52 “Names, names, names – God was serious when he said I have called you by name” - Michael Eltham](#day-52-names-names-names-%E2%80%93-god-was-serious-when-he-said-i-have-called-you-by-name---michael-eltham)
-  * [February 22,2024](#february-222024)
-    + [The Twelve Tribes of Israel](#the-twelve-tribes-of-israel)
-    + [Day 53 “Following the guidance of the Lord” - Michael Eltham](#day-53-following-the-guidance-of-the-lord---michael--eltham)
-  * [February 23,2024](#february-232024)
-    + [The Tribe of Levi](#the-tribe-of-levi)
-    + [Day 54: “Don’t take your faith for granted, work out your salvation”](#day-54-dont-take-your-faith-for-granted-work-out-your-salvation)
-  * [February 24,2024](#february-242024)
-    + [Obedience to God](#obedience-to-god)
-    + [Day 55 “Teach my words to your children”](#day-55-teach-my-words-to-your-children)
-    + [Day 55 Anonymous](#day-55-anonymous)
-  * [February 25,2024](#february-252024)
-    + [Jealous Husbands](#jealous-husbands)
-    + [Day 56 Jealousy between Spouses](#day-56-jealousy-between-spouses)
-  * [February 26,2024](#february-262024)
-    + [Hear, O Israel](#hear-o-israel)
-    + [Day 57 *“Lent – The Nazirite vow – time set apart for the Lord” “Psalm 91 – WOW!!!”*](#day-57-lent-%E2%80%93-the-nazirite-vow-%E2%80%93-time-set-apart-for-the-lord-psalm-91-%E2%80%93-wow)
-    + [Day 57 : Jenita](#day-57--jenita)
-    + [Day 57 Anonymous](#day-57-anonymous)
-  * [February 27,2024](#february-272024)
-    + [A Chosen People](#a-chosen-people)
-    + [Day 58: “Do not have strong ties with the world” -Michael Eltham](#day-58-do-not-have-strong-ties-with-the-world--michael-eltham)
-  * [February 28,2024](#february-282024)
-    + [Obligations to God](#obligations-to-god)
-    + [Day 59 “No exemption for not keeping the Passover/Eucharist”](#day-59-no-exemption-for-not-keeping-the-passovereucharist)
-  * [February 29,2024](#february-292024)
-    + [Intercessory Prayer](#intercessory-prayer)
-    + [Day 60: “Stubborn people – Intercesssory prayer - 40 days 40 nights X TWO ”](#day-60-stubborn-people-%E2%80%93-intercesssory-prayer---40-days-40-nights-x-two-)
+  - [February 01,2024](#february-012024)
+    - [Cattle, Boils, and Hail](#cattle-boils-and-hail)
+    - [Day 32: “Habitual sins” - Michael Eltham](#day-32-habitual-sins---michael-eltham)
+    - [Day 32 - Gabriella](#day-32---gabriella)
+  - [February 02,2024](#february-022024)
+    - [Locusts, Darkness, and Death of the First Born](#locusts-darkness-and-death-of-the-first-born)
+    - [Day 33: “Idols and false gods”](#day-33-idols-and-false-gods)
+  - [February 03,2024](#february-032024)
+    - [The Passover Instituted](#the-passover-instituted)
+    - [Day 34: “Who is worthy” - Michael Eltham](#day-34-who-is-worthy---michael-eltham)
+  - [February 04,2024](#february-042024)
+    - [Crossing the Red Sea](#crossing-the-red-sea)
+    - [Day 35: “The Lord is fighting for us” - Michael Eltham](#day-35-the-lord-is-fighting-for-us---michael-eltham)
+    - [Day 35 Anonymous](#day-35-anonymous)
+  - [February 05,2024](#february-052024)
+    - [Manna From Heaven](#manna-from-heaven)
+    - [Day 36: “Murmuring for Manna to Murmuring about the True presence of Jesus in the Eucharist.” - Michael Eltham](#day-36-murmuring-for-manna-to-murmuring-about-the-true-presence-of-jesus-in-the-eucharist---michael-eltham)
+    - [Day 36 Simitra](#day-36-simitra)
+    - [Day 36 Anonymous](#day-36-anonymous)
+  - [February 06,2024](#february-062024)
+    - [The Mystical Works of God](#the-mystical-works-of-god)
+    - [Day 37: “Water from the Rock - Jesus” - Michael Eltham](#day-37-water-from-the-rock---jesus---michael-eltham)
+  - [February 07,2024](#february-072024)
+    - [The Ten Commandments](#the-ten-commandments)
+    - [Day 38 “Relationship and Rules” - Michael Eltham](#day-38-relationship-and-rules---michael-eltham)
+  - [February 08,2024](#february-082024)
+    - [Slavery in the Old Testament](#slavery-in-the-old-testament)
+    - [Day 39 “God delivered Israelites from slavery, now He will slowly remove slavery from their hearts” - Michael Eltham](#day-39-god-delivered-israelites-from-slavery-now-he-will-slowly-remove-slavery-from-their-hearts----michael-eltham)
+  - [February 09,2024](#february-092024)
+    - [Laws of Justice](#laws-of-justice)
+    - [Day 40: “Only Mortal sin makes us unworthy of receiving communion, not just bodily discharge” - Michael Eltham](#day-40-only-mortal-sin-makes-us-unworthy-of-receiving-communion-not-just-bodily-discharge---michael-eltham)
+  - [February 10,2024](#february-102024)
+    - [The Day of Atonement](#the-day-of-atonement)
+    - [Day 41: “Atonement for sins – Confession & Eucharist”](#day-41-atonement-for-sins-%E2%80%93-confession--eucharist)
+  - [February 11,2024](#february-112024)
+    - [Moral Laws](#moral-laws)
+    - [Day 42: “Moral Law” - Michael Eltham](#day-42-moral-law---michael-eltham)
+    - [Day 42 - Jenita](#day-42---jenita)
+    - [Day 42 Anonymous](#day-42-anonymous)
+  - [February 12,2024](#february-122024)
+    - [The Ark of the Covenant](#the-ark-of-the-covenant)
+    - [Day 43: “The Tabernacle, His presence” - Michael Eltham](#day-43-the-tabernacle-his-presence---michael-eltham)
+    - [Day 43 Simitra](#day-43-simitra)
+  - [February 13,2024](#february-132024)
+    - [Priestly Garments](#priestly-garments)
+    - [Day 44: “Priests' clothes during Worship aren’t Jeans and T-shirt” - Michael Eltham](#day-44-priests-clothes-during-worship-arent-jeans-and-t-shirt---michael-eltham)
+    - [Golden Garments of the Kohen Gadol Shemot](#golden-garments-of-the-kohen-gadol-shemot)
+    - [Bishop's Garments](#bishops-garments)
+  - [February 14,2024](#february-142024)
+    - [Pray for Priests](#pray-for-priests)
+    - [Day 45: “Holy Priests and celibacy”](#day-45-holy-priests-and-celibacy)
+  - [February 15,2024](#february-152024)
+    - [Set Apart for God](#set-apart-for-god)
+    - [Day 46: “Holy Oil, Holy water, Holy stuff, Sacramentals”](#day-46-holy-oil-holy-water-holy-stuff-sacramentals)
+  - [February 16,2024](#february-162024)
+    - [The Golden Calf](#the-golden-calf)
+    - [Day 47: “Man-O-Man what a man - Moses” “We the stiff-necked people want to make God in our own image” “Be a Levite – on the Lord’s Side”](#day-47-man-o-man-what-a-man---moses-we-the-stiff-necked-people-want-to-make-god-in-our-own-image-be-a-levite-%E2%80%93-on-the-lords-side)
+  - [February 17,2024](#february-172024)
+    - [God's Presence](#gods-presence)
+    - [Day 48: “Personal relationship with God” “Eucharistic Adoration - Our tent of the presence”](#day-48-personal-relationship-with-god-eucharistic-adoration---our-tent-of-the-presence)
+  - [February 18,2024](#february-182024)
+    - [The Year of Jubilee](#the-year-of-jubilee)
+    - [Day 49: “A willing and cheerful giver”](#day-49-a-willing-and-cheerful-giver)
+    - [Day 49 Anonymous](#day-49-anonymous)
+  - [February 19,2024](#february-192024)
+    - [Sacrificial Offerings](#sacrificial-offerings)
+    - [Day 50 “Obedience” - Michael Eltham](#day-50-obedience---michael-eltham)
+  - [February 20,2024](#february-202024)
+    - [Israel's Worship of God](#israels-worship-of-god)
+    - [Day 51 “Getting worship of God right” "Votive offerings"](#day-51-getting-worship-of-god-right-votive-offerings)
+  - [February 21,2024](#february-212024)
+    - [Introduction to Desert Wanderings (with Jeff Cavins)](#introduction-to-desert-wanderings-with-jeff-cavins)
+    - [Israel Continues to Journey](#israel-continues-to-journey)
+    - [Day 52 “Names, names, names – God was serious when he said I have called you by name” - Michael Eltham](#day-52-names-names-names-%E2%80%93-god-was-serious-when-he-said-i-have-called-you-by-name---michael-eltham)
+  - [February 22,2024](#february-222024)
+    - [The Twelve Tribes of Israel](#the-twelve-tribes-of-israel)
+    - [Day 53 “Following the guidance of the Lord” - Michael Eltham](#day-53-following-the-guidance-of-the-lord---michael--eltham)
+  - [February 23,2024](#february-232024)
+    - [The Tribe of Levi](#the-tribe-of-levi)
+    - [Day 54: “Don’t take your faith for granted, work out your salvation”](#day-54-dont-take-your-faith-for-granted-work-out-your-salvation)
+  - [February 24,2024](#february-242024)
+    - [Obedience to God](#obedience-to-god)
+    - [Day 55 “Teach my words to your children”](#day-55-teach-my-words-to-your-children)
+    - [Day 55 Anonymous](#day-55-anonymous)
+  - [February 25,2024](#february-252024)
+    - [Jealous Husbands](#jealous-husbands)
+    - [Day 56 Jealousy between Spouses](#day-56-jealousy-between-spouses)
+  - [February 26,2024](#february-262024)
+    - [Hear, O Israel](#hear-o-israel)
+    - [Day 57 *“Lent – The Nazirite vow – time set apart for the Lord” “Psalm 91 – WOW!!!”*](#day-57-lent-%E2%80%93-the-nazirite-vow-%E2%80%93-time-set-apart-for-the-lord-psalm-91-%E2%80%93-wow)
+    - [Day 57 : Jenita](#day-57--jenita)
+    - [Day 57 Anonymous](#day-57-anonymous)
+  - [February 27,2024](#february-272024)
+    - [A Chosen People](#a-chosen-people)
+    - [Day 58: “Do not have strong ties with the world” -Michael Eltham](#day-58-do-not-have-strong-ties-with-the-world--michael-eltham)
+  - [February 28,2024](#february-282024)
+    - [Obligations to God](#obligations-to-god)
+    - [Day 59 “No exemption for not keeping the Passover/Eucharist”](#day-59-no-exemption-for-not-keeping-the-passovereucharist)
+  - [February 29,2024](#february-292024)
+    - [Intercessory Prayer](#intercessory-prayer)
+    - [Day 60: “Stubborn people – Intercesssory prayer - 40 days 40 nights X TWO ”](#day-60-stubborn-people-%E2%80%93-intercesssory-prayer---40-days-40-nights-x-two-)
 
 <!-- tocstop -->
 
-# February 2024 #
+# February 2024
 
 BIAY February 2024
 
-## February 01,2024 ##
+## February 01,2024
 
-### Cattle, Boils, and Hail ###
+### Cattle, Boils, and Hail
 
 [![Cattle, Boils, and Hail](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day032.jpg)](https://youtu.be/SvEX0iOA8xU "Cattle, Boils, and Hail")
 
-### Day 32: “Habitual sins” - Michael Eltham ###
+### Day 32: “Habitual sins” - Michael Eltham
 
 We see Pharoah doing it again. He asks for the plague to be taken away and promises to send God’s people to worship – but when the plague is taken away – he goes back to hardening his heart again.
 
@@ -141,7 +141,7 @@ May all our bondages to habitual sin be broken in Jesus' name.
 
 May the Holy Spirit lead us.🙏
 
-### Day 32 - Gabriella ###
+### Day 32 - Gabriella
 
 We are so blessed by our heavenly Father to know how merciful and loving He is to each and every soul. I have now gained a clear perspective on Pharaoh’s behaviour and heart.
 
@@ -150,13 +150,13 @@ I have also often pondered why does God harden Pharaoh’s heart? He did not tak
 *Hebrews 3:7–8*
 Therefore the Holy Spirit says, 'Today if you hear his voice, do not harden your hearts as in rebellion. . . “
 
-## February 02,2024 ##
+## February 02,2024
 
-### Locusts, Darkness, and Death of the First Born ###
+### Locusts, Darkness, and Death of the First Born
 
 [![Locusts, Darkness, and Death of the First Born](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day033.jpg)](https://youtu.be/YqYQ4HePEOE "Locusts, Darkness, and Death of the First Born")
 
-### Day 33: “Idols and false gods” ###
+### Day 33: “Idols and false gods”
 
 We see the 10 plagues and would wonder why 10; Fr Mike explains it so beautifully about the 10 gods that the Egyptians had and Pharoah would not be content until he saw all those gods defeated. Our God, “God Almighty”, “the great I AM - Yahweh”, “the First and the Last”, “the source of all good” destroyed every false Egyptian god with each plague.
 
@@ -176,13 +176,13 @@ We need to be honest as we journey through the BIAY and see what unfolds, how do
 
 May the Holy Spirit lead us. 🙏
 
-## February 03,2024 ##
+## February 03,2024
 
-### The Passover Instituted ###
+### The Passover Instituted
 
 [![The Passover Instituted](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day034.jpg)](https://youtu.be/7sPdLnUkhRE "The Passover Instituted")
 
-### Day 34: “Who is worthy” - Michael Eltham ###
+### Day 34: “Who is worthy” - Michael Eltham
 
 We all are familiar with what went down in the Passover. The explanation today in the podcast is remarkable, so many items to talk about. However, will stick to one. The uncircumcised shall not eat of the lamb.
 
@@ -200,33 +200,33 @@ We can see the water & Spirit theme from Genesis.
 
 1. At the dawn of creation, we see water and Spirit hovering over the waters and this beautiful world was created.
 
-2. Noah and his family passed through the water(flood) and finally they send out the dove to see if there is dry land. The dove is a symbol of Spirit. They are saved again – we have the theme of water and Spirit.
+1. Noah and his family passed through the water(flood) and finally they send out the dove to see if there is dry land. The dove is a symbol of Spirit. They are saved again – we have the theme of water and Spirit.
 
-3. We see the Israelites crossing the red see(water), led by smoke by day and fire by night.
+1. We see the Israelites crossing the red see(water), led by smoke by day and fire by night.
 
 Smoke and fire are symbols of the Holy Spirit. Again when they are saved we have the theme of water and Spirit.
 
 4. Israelites Crossing the Jordan to the promised Land
 
-5. Jesus was baptized – in the water of Jordan and the Holy Spirit came down like a dove.
+1. Jesus was baptized – in the water of Jordan and the Holy Spirit came down like a dove.
 
-6. So you are being saved by BAPTISIM, really initiated to be saved. (Water baptism)
+1. So you are being saved by BAPTISIM, really initiated to be saved. (Water baptism)
 
-7. Then you are confirmed with the Holy Spirit in the sacrament of confirmation. (Spirit baptism)
+1. Then you are confirmed with the Holy Spirit in the sacrament of confirmation. (Spirit baptism)
 
-8. Then you periodically cleanse yourself in the Sacrament of Confession
+1. Then you periodically cleanse yourself in the Sacrament of Confession
 
-9. You nourish yourself by receiving Jesus Body and Blood in the Sacrament of the Eucharist.
+1. You nourish yourself by receiving Jesus Body and Blood in the Sacrament of the Eucharist.
 
 May the Holy Spirit lead us 🙏
 
-## February 04,2024 ##
+## February 04,2024
 
-### Crossing the Red Sea ###
+### Crossing the Red Sea
 
 [![Crossing the Red Sea](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day035.jpg)](https://youtu.be/ckv9Lc74htE "Crossing the Red Sea")
 
-### Day 35: “The Lord is fighting for us” - Michael Eltham ###
+### Day 35: “The Lord is fighting for us” - Michael Eltham
 
 We see how the Israelites get impatient and start complaining, that they were better off in Egypt.
 
@@ -248,19 +248,19 @@ But the Lord is with me as a dread warrior; therefore my persecutors will stumbl
 
 May the Holy Spirit lead us. 🙏
 
-### Day 35 Anonymous ###
+### Day 35 Anonymous
 
 Joseph's bones were carried out of Egypt as told by him.  This is an eye-opener to me, as I wondered why remains are preserved even today.
 GOD has revealed Himself in humility,  poverty, allowed us to torture Hiim.
 The Lord fights for you, you have to only keep still.
 
-## February 05,2024 ##
+## February 05,2024
 
-### Manna From Heaven ###
+### Manna From Heaven
 
 [![Manna From Heaven](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day036.jpg)](https://youtu.be/1WTXCYU6f7U "Manna From Heaven")
 
-### Day 36: “Murmuring for Manna to Murmuring about the True presence of Jesus in the Eucharist.” - Michael Eltham ###
+### Day 36: “Murmuring for Manna to Murmuring about the True presence of Jesus in the Eucharist.” - Michael Eltham
 
 A few weeks after the great Miracle of the Red Sea parting, the Israelites start their murmuring.
 
@@ -280,7 +280,7 @@ Are we murmuring about the true presence of Jesus in the Eucharist? The Eucharis
 
 May the Holy Spirit lead us. 🙏
 
-### Day 36 Simitra ###
+### Day 36 Simitra
 
 Exodus 16:17-18, "And the people of Israel did so. They gathered, some more, some less. But when they measured it with an omer, whoever gathered much had nothing left over, and whoever gathered little had no lack. Each of them gathered as much as he could eat".
 
@@ -290,18 +290,18 @@ This is so profound. If only we can look at this and know that no matter how muc
 
 So let us live to worship God. We are given six days to work and keep one day -the Sabbath Holy as it is the day that we are to praise and worship God for his goodness. One day to praise and thank God, so that we remember that we have His grace with us on the six days that we work.
 
-### Day 36 Anonymous ###
+### Day 36 Anonymous
 
 God is training them. Trying to teach His people who He is and the degree to which they can trust Him.  He is faithful.   We have to be obedient to Him, His commandments.   He told the people of Israel not to keep food He gave them for the next day.  Yet some disobeyed and kept, but next day it was spoilt.  God shows how truthful He is.  But when God commanded them to gather on the sixth day for 2 days as it was Sabbath, Holy to The Lord, the food never spoilt.  Such is the Power of God Almighty.  What He says He does.
 All Glory to HIM!
 
-## February 06,2024 ##
+## February 06,2024
 
-### The Mystical Works of God ###
+### The Mystical Works of God
 
 [![The Mystical Works of God](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day037.jpg)](https://youtu.be/E1KpvQIdeco "The Mystical Works of God")
 
-### Day 37: “Water from the Rock - Jesus” - Michael Eltham ###
+### Day 37: “Water from the Rock - Jesus” - Michael Eltham
 
 Before we get into the water from the rock, there is a moving image of the power of intercessory prayer. We see when Moses held up his hands the Israelites prevailed and when he put his hand down the Amaleks prevailed. When his hands grew weary Arron and Hur helped lift them up.
 
@@ -321,13 +321,13 @@ Jesus fulfils this promise on Pentecost, He send the Holy Spirit the Living wate
 
 May the Holy Spirit lead us 🙏
 
-## February 07,2024 ##
+## February 07,2024
 
-### The Ten Commandments ###
+### The Ten Commandments
 
 [![The Ten Commandments](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day038.jpg)](https://youtu.be/vAZYQXQl-zI "The Ten Commandments")
 
-### Day 38 “Relationship and Rules” - Michael Eltham ###
+### Day 38 “Relationship and Rules” - Michael Eltham
 
 No relationship will flourish without rules. There is no sport without rules, no school without school rules, imagine driving on a road without any traffic rules, would you put your money in a bank with no rules and anyone could withdraw your money. Rules are for the common good of all.
 
@@ -341,13 +341,13 @@ Let us rise up and go to the Father who is waiting for us. Try again to follow H
 
 May the Holy Spirit lead us 🙏
 
-## February 08,2024 ##
+## February 08,2024
 
-### Slavery in the Old Testament ###
+### Slavery in the Old Testament
 
 [![Slavery in the Old Testament](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day039.jpg)](https://youtu.be/otX2IGrq7wI "Slavery in the Old Testament")
 
-### Day 39 “God delivered Israelites from slavery, now He will slowly remove slavery from their hearts”  - Michael Eltham ###
+### Day 39 “God delivered Israelites from slavery, now He will slowly remove slavery from their hearts”  - Michael Eltham
 
 Like Fr Mike explained so beautifully, God must deal gently with us broken human beings. If we take the reading out of context, we can tend to say that God likes slavery and hence made rules for the slaves. If God does not stoop down to our level, we will not be able to bare God, just like when God spoke to his people on mount Sanai a few chapters ago it was like thunder and the people requested Moses that God not speak to them, rather Moses be the listener.
 
@@ -355,13 +355,13 @@ A nocturnal creature like a rodent – would flee to hide when there is a bright
 
 May the Holy Spirit lead us. 🙏
 
-## February 09,2024 ##
+## February 09,2024
 
-### Laws of Justice ###
+### Laws of Justice
 
 [![Laws of Justice](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day040.jpg)](https://youtu.be/zDgMhpvzoFU "Laws of Justice")
 
-### Day 40: “Only Mortal sin makes us unworthy of receiving communion, not just bodily discharge” - Michael Eltham ###
+### Day 40: “Only Mortal sin makes us unworthy of receiving communion, not just bodily discharge” - Michael Eltham
 
 We are invited to the great banquet, the lamb’s supper – we receive Jesus’ body and blood. To respond to this invitation, we must prepare ourselves for so great and so holy a moment.
 
@@ -372,11 +372,11 @@ The reason I bring it up is for us not to get too worried about instructions in 
 The only thing that makes us unworthy of receiving communion is Mortal sin. If the bodily discharge is due to a mortal sin then you are unworthy due to the mortal sin, not the bodily discharge alone.
 
 “But what comes out of the man, that is what defiles him.
- From within the man, from his heart,
- come evil thoughts, unchastity, theft, murder,
- adultery, greed, malice, deceit,
- licentiousness, envy, blasphemy, arrogance, folly.
- All these evils come from within and they defile.”Mk 7:21-23
+From within the man, from his heart,
+come evil thoughts, unchastity, theft, murder,
+adultery, greed, malice, deceit,
+licentiousness, envy, blasphemy, arrogance, folly.
+All these evils come from within and they defile.”Mk 7:21-23
 
 Jesus is making it very clear that we should not pay too much attention to outward things but focus on the heart, for from the heart comes sin and it is sin that defiles us.
 
@@ -384,13 +384,13 @@ Congratulations on making it to day 40, the number 40 means a long time in the b
 
 May the Holy Spirit Lead us. 🙏
 
-## February 10,2024 ##
+## February 10,2024
 
-### The Day of Atonement ###
+### The Day of Atonement
 
 [![The Day of Atonement](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day041.jpg)](https://youtu.be/7HQsLHrXcw4 "The Day of Atonement")
 
-### Day 41: “Atonement for sins – Confession & Eucharist” ###
+### Day 41: “Atonement for sins – Confession & Eucharist”
 
 Instructions given for atonement of sins are so detailed and clear, two lambs were needed – one for the priests and one for the people, placing the sins on the lamb and sacrificing one and sending the other one out to the wilderness to die.
 
@@ -414,13 +414,13 @@ If our sins are Venial then a Confession is not Mandatory as the truly repented 
 
 May the Holy Spirit lead us. 🙏
 
-## February 11,2024 ##
+## February 11,2024
 
-### Moral Laws ###
+### Moral Laws
 
 [![Moral Laws](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day042.jpg)](https://youtu.be/IdnEHXWyjaI "Moral Laws")
 
-### Day 42: “Moral Law” - Michael Eltham ###
+### Day 42: “Moral Law” - Michael Eltham
 
 As we hear the laws and detailed instructions, we can’t help but realize how privileged we are, we don’t live in barbarous times. We live in Nations that have laws and regulations. We also have something called the natural and moral law. We have manners and acceptable social behavior. Let’s thank the Lord for He is the source of all good.
 
@@ -446,7 +446,7 @@ They made the land filthy. Now the land is sick of those things, and it will vom
 
 May the Holy Spirit lead us. 🙏
 
-### Day 42 - Jenita ###
+### Day 42 - Jenita
 
 In these reading we see how God constantly watches and cares for his children.
 
@@ -456,7 +456,7 @@ The people show acts of trust, and thats what we need to learn today.
 
 Trust in God and obey his laws
 
-### Day 42 Anonymous ###
+### Day 42 Anonymous
 
 Despite His wonders they did  not believe.
 Their  heart was not steadfast towards Him.
@@ -465,13 +465,13 @@ Forget what U hv done.
 How good You are, and how fickle  we can be.
 3 -laws-  a particular kind of Society,  temple worship and sexual morality - this is an universal, absolute commandment.
 
-## February 12,2024 ##
+## February 12,2024
 
-### The Ark of the Covenant ###
+### The Ark of the Covenant
 
 [![The Ark of the Covenant](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day043.jpg)](https://youtu.be/8BrRBQ4GKGo "The Ark of the Covenant")
 
-### Day 43: “The Tabernacle, His presence” - Michael Eltham ###
+### Day 43: “The Tabernacle, His presence” - Michael Eltham
 
 We could get lost in the details as we read today's reading about the “blueprint” of the Tabernacle. Whenever I see a lot of detail documented the stance I take is that the thing is of great importance. The more the details the greater the importance. “If we have no plan we are planning to fail” A few things that struck home when I was hearing the readings was the close similarity of the worship in the Catholic Church thousands of years later. The concept of the bread of the presence – where bread is always present with a lampstand near it, every catholic church has one and this makes the church holy.
 
@@ -481,7 +481,7 @@ And let us not forget that the mercy seat was built on top of the ark of the cov
 
 May the Holy Spirit Lead us. 🙏
 
-### Day 43 Simitra ###
+### Day 43 Simitra
 
 Exodus 25:30
 And you shall set the bread of the Presence on the table before me always.
@@ -490,13 +490,13 @@ The bread of the presence was placed in the Holy Place for which there was no di
 
 However today Jesus the bread of Life is not only placed in the Tabernacle daily but is also willingly entering into our hearts. How blessed we are as Roman Catholics to receive the presence of God through the Holy Eucharist DAILY. Thank you Jesus for nourishing us with your body, the bread of life daily.
 
-## February 13,2024 ##
+## February 13,2024
 
-### Priestly Garments ###
+### Priestly Garments
 
 [![Priestly Garments](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day044.jpg)](https://youtu.be/D125Rck-CmQ "Priestly Garments")
 
-### Day 44: “Priests' clothes during Worship aren’t Jeans and T-shirt” - Michael Eltham ###
+### Day 44: “Priests' clothes during Worship aren’t Jeans and T-shirt” - Michael Eltham
 
 The detailed description of the vestments in today's reading can get to you. Hope this pictures, I found on the internet will help.
 
@@ -508,21 +508,21 @@ The priest like in the OT had 12 stones on his breastplate to represent the 12 t
 
 May the Holy Spirit lead us.
 
-### Golden Garments of the Kohen Gadol Shemot ###
+### Golden Garments of the Kohen Gadol Shemot
 
 ![Golden Garments of the Kohen Gadol Shemot](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/IMG-20240213-WA0001.jpg)
 
-### Bishop's Garments ###
+### Bishop's Garments
 
 ![Bishop's Garments](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/IMG-20240213-WA0002.jpg)
 
-## February 14,2024 ##
+## February 14,2024
 
-### Pray for Priests ###
+### Pray for Priests
 
 [![Pray for Priests](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day045.jpg)](https://youtu.be/GWWc17LJngM "Pray for Priests")
 
-### Day 45: “Holy Priests and celibacy” ###
+### Day 45: “Holy Priests and celibacy”
 
 When major clergy scandals come up, we can very easily blame the priests and the bishops. However, we need to remember that priests come from families and from the community. There is a lot of sin and corruption in this world that has influenced everyone laity and priests alike. We need to pray and support our brother priests to lead a holy life. And we need to also bring to justice those who have violated the innocence of others.
 
@@ -542,13 +542,13 @@ Let us pray for our priest today.
 
 May the Holy Spirit lead us 🙏
 
-## February 15,2024 ##
+## February 15,2024
 
-### Set Apart for God ###
+### Set Apart for God
 
 [![Set Apart for God](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day046.jpg)](https://youtu.be/UYClL-9IDGo "Set Apart for God")
 
-### Day 46: “Holy Oil, Holy water, Holy stuff, Sacramentals” ###
+### Day 46: “Holy Oil, Holy water, Holy stuff, Sacramentals”
 
 It’s fascinating to see how many of the practices in the catholic church stem from OT instructions from the Lord. The sabbath law, the consecrating of cups, temples, altars, and priests.
 
@@ -576,13 +576,13 @@ Boil the hell out of it. 😂
 
 May the Holy Spirit lead us. 🙏
 
-## February 16,2024 ##
+## February 16,2024
 
-### The Golden Calf ###
+### The Golden Calf
 
 [![The Golden Calf](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day047.jpg)](https://youtu.be/rCAaZjEWy34 "The Golden Calf")
 
-### Day 47: “Man-O-Man what a man - Moses” “We the stiff-necked people want to make God in our own image” “Be a Levite – on the Lord’s Side” ###
+### Day 47: “Man-O-Man what a man - Moses” “We the stiff-necked people want to make God in our own image” “Be a Levite – on the Lord’s Side”
 
 There is a lot going on in this one Chapter on the Golden calf. Moses goes up for a time of awesome experience with God, receives tablets that were written by God’s own finger.
 
@@ -604,13 +604,13 @@ We need to proclaim the Word of God and give every soul an opportunity to be sav
 
 May the Holy Spirit Lead us.🙏
 
-## February 17,2024 ##
+## February 17,2024
 
-### God's Presence ###
+### God's Presence
 
 [![God's Presence](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day048.jpg)](https://youtu.be/-LqhdCd_rjo "God's Presence")
 
-### Day 48: “Personal relationship with God” “Eucharistic Adoration - Our tent of the presence” ###
+### Day 48: “Personal relationship with God” “Eucharistic Adoration - Our tent of the presence”
 
 We see this beautiful relationship that Moses had with God. He goes up into the Tent of the Presence regularly and spends time with God. When he came out his face was transformed glowing and radiant. Although he did not see God’s face (no one can live after seeing God's face) when Moses went into the tent the pillar of cloud would descend and stand at the entrance of the tent, and the Lord would speak with Moses. Even though Moses wanted to see God in all His glory the Lord spared Moses and told him that no one could live if they saw God in all His glory. He did see God's back.
 
@@ -626,13 +626,13 @@ If it’s not for God's presence, we cannot move forward. Like Moses we need to 
 
 May the Holy Spirit lead us 🙏
 
-## February 18,2024 ##
+## February 18,2024
 
-### The Year of Jubilee ###
+### The Year of Jubilee
 
 [![The Year of Jubilee](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day049.jpg)](https://youtu.be/rG1InQh9tjg "The Year of Jubilee")
 
-### Day 49: “A willing and cheerful giver” ###
+### Day 49: “A willing and cheerful giver”
 
 As we read the blueprint that God gives the Israelites, the details are so many. If I was given these instructions, I would say let’s just make a square box for the tablets and get done with it. I would think why all this fuss about the hooks, the poles, the mercy seat, the curtains, the jewelry, the altars, the utensils, the lamps.
 But the Israelites responded with great willingness, they came everyone whose heart stirred him, everyone whose spirit moved him, men and women, with different skills weaving, constructing, etc. The people started looking for stuff in their houses, they brought jewelry, fine cloth, anything of value, they brought stuff every day.
@@ -641,7 +641,7 @@ There is something for us to learn from the Israelites, we need to cultivate thi
 “God loves a cheerful giver.” 2 Cor 9:7
 May the Holy Spirit lead us 🙏
 
-### Day 49 Anonymous ###
+### Day 49 Anonymous
 
 There's no greater act that any human can do than the Act of Worship!
 Open our hearts to trust in You, to love You, Lord.
@@ -649,26 +649,26 @@ Jubilee Year - The year of restoration.  In this year every Israelite slave woul
 because they are not meant to be slaves.  "I AM THE LORD YOUR GOD, WHO BROUGHT YOU OUT OF EGYPT."
 Thank You Lord, for Your mercies n not letting us be slaves forever!
 
-## February 19,2024 ##
+## February 19,2024
 
-### Sacrificial Offerings ###
+### Sacrificial Offerings
 
 [![Sacrificial Offerings](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day050.jpg)](https://youtu.be/RsiztOG3g-E "Sacrificial Offerings")
 
-### Day 50 “Obedience” - Michael Eltham ###
+### Day 50 “Obedience” - Michael Eltham
 
 In Leviticus 26 we see detailed explanations on what happens to those who are obedient and those who disobey.
 The promise of the Lord for the obedient are many, the most important is “I will walk with you, I will be your God”. I think this is important as we recall the story of creation, where God walked with Adam and Eve in the cool of the evening. It’s reminding me of that story where a prince of a kingdom wanted to give gifts to a few dedicated people, others picked land and gold but one maiden picked the prince himself. She said, “If I have the prince, I have everything else”. That is the best choice that we need to make as well.
 We also see the detail of wrath, looks like those who disobey the Lord, get more and more punishment. Like a good Father, God does not want to punish us but cause us to choose him over things of the world, we need to be obedient to be restored to what our first parents lost. If we are obedient the promise is great, “I will walk with you, I am you, God”. We will walk with the Lord in the cool of the evening. We will experience His presence in our daily lives.
 May the Holy Spirit Lead us. 🙏
 
-## February 20,2024 ##
+## February 20,2024
 
-### Israel's Worship of God ###
+### Israel's Worship of God
 
 [![Israel's Worship of God](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day051.jpg)](https://youtu.be/waXS43o9qa0 "Israel's Worship of God")
 
-### Day 51 “Getting worship of God right” "Votive offerings" ###
+### Day 51 “Getting worship of God right” "Votive offerings"
 
 Some would argue that God is Omnipresent, and we can worship Him anywhere, there is no need for a structure. Yes, we can worship God anywhere, there is no harm in that. But if we have been paying close attention, we see detailed instructions about the tabernacle, the ark of the covenant, the altars, the screens, the lampstand, and most important the consecration of the place to be dedicated for the worship of the most High God.
 Of course, the Lord is present when you read your bible at home, He is present when you sing praise songs while driving, He is present in your family prayer and person prayer. However, He calls us to go to Church, the place dedicated to His worship, community worship. We see in the reading how the cloud of smoke engulfed the tabernacle, the presence of the Lord was so strong that the Levites could not even go in. We need to be sensitive to the presence of God when we go to church, bow down and adore Him in the tabernacle. And as we will read later – how Jesus will teach us "how to worship", and we will read how the apostles were dedicated to the breaking of bread and if we like we can go deeper and learn how the early Christians and the church fathers worshiped God (not part of the Bible, but can be found in early historic records and writings) it’s amazing how the Eucharist is the fulfillment of the earlier sacrifices and the one method of worship that was instituted by Jesus and practice and preserved through the generations in its original state. We will learn more as we read through the BIAY. But for now, let us remember that we need to Get worship right, not how we want to, but how God prescribes it.
@@ -679,17 +679,17 @@ If we have an attitude of “If I wake up I’ll go” we need to change it and 
 Congratulations on completing Exodus and Leviticus!!!
 May the Holy Spirit lead us. 🙏
 
-## February 21,2024 ##
+## February 21,2024
 
-### Introduction to Desert Wanderings (with Jeff Cavins) ###
+### Introduction to Desert Wanderings (with Jeff Cavins)
 
 [![Introduction to Desert Wanderings (with Jeff Cavins)](https://raw.githubusercontent.com/linusjf/BIAY/main/February/desertwanderings.jpg)](https://youtu.be/vobPC8MPi0Y "Introduction to Desert Wanderings (with Jeff Cavins)")
 
-### Israel Continues to Journey ###
+### Israel Continues to Journey
 
 [![Israel Continues to Journey](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day052.jpg)](https://youtu.be/mgdtG9DM-wQ "Israel Continues to Journey")
 
-### Day 52 “Names, names, names – God was serious when he said I have called you by name” - Michael Eltham ###
+### Day 52 “Names, names, names – God was serious when he said I have called you by name” - Michael Eltham
 
 As we hear the names and the numbers we tend to tune out, it’s totally normal for us. Our capacity as human beings is limited, we can only care for ourselves, our family, and our friends.
 However the Lord cares for everyone, he loves each one of us so intimately that
@@ -701,21 +701,21 @@ He chose us
 This knowledge is too much for us to understand, that our creator can love each one in such a personal way. We cannot even imagine how the Lord can love billions and billions and zillions of people across centuries. That he can care about every little thing about each person that ever existed. Even the most complex network of computer servers cannot come close to the knowledge of God. We are truly blessed to be God's chosen children.
 My favorite part of today’s psalm - 84:
 Better is one day in your courts
-  than a thousand elsewhere;
- I would rather be a doorkeeper in the house of my God
-  than dwell in the tents of the wicked.
+than a thousand elsewhere;
+I would rather be a doorkeeper in the house of my God
+than dwell in the tents of the wicked.
 I have never come out of prayer sad or hopeless. Every time we pray – we encounter God and no one leaves the presence of God sad and hopeless.
 “Prayer is the best weapon we possess. It is the key that opens the heart of God.”
 St Padre Pio.
 May the Holy Spirit lead us 🙏
 
-## February 22,2024 ##
+## February 22,2024
 
-### The Twelve Tribes of Israel ###
+### The Twelve Tribes of Israel
 
 [![The Twelve Tribes of Israel](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day053.jpg)](https://youtu.be/AYnxI_XyO00 "The Twelve Tribes of Israel")
 
-### Day 53 “Following the guidance of the Lord” - Michael  Eltham ###
+### Day 53 “Following the guidance of the Lord” - Michael  Eltham
 
 We see how the Lord gives them detailed instruction on how to deal with the different cities/tribes that they come across. He said that he should not fight some people (Esau’s descendants) but buy food and water from them, and then fight with those who do not let them pass. God has a plan for them, he knows the future and will guide them according to His path.
 
@@ -736,17 +736,17 @@ And always remember just as the tribe of Judah always marched first. Our praise 
 May this Psalm be our song, may praise always be on our lips.
 
 Ps 34: “I will bless the Lord at all times;
-  his praise shall continually be in my mouth.”
+his praise shall continually be in my mouth.”
 
 May the Holy Spirit Lead us 🙏
 
-## February 23,2024 ##
+## February 23,2024
 
-### The Tribe of Levi ###
+### The Tribe of Levi
 
 [![The Tribe of Levi](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day054.jpg)](https://youtu.be/17Q3BIbfO8U "The Tribe of Levi")
 
-### Day 54: “Don’t take your faith for granted, work out your salvation” ###
+### Day 54: “Don’t take your faith for granted, work out your salvation”
 
 One statement that Fr Mike made really stood out.  “All priests have to be Levites, but not all Levites are priests.”
 
@@ -772,13 +772,13 @@ St Paul sets a good example – he tried really hard all his live and was able t
 
 May the Holy Spirit lead us 🙏
 
-## February 24,2024 ##
+## February 24,2024
 
-### Obedience to God ###
+### Obedience to God
 
 [![Obedience to God](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day055.jpg)](https://youtu.be/j7rpQ4Z9Yzw "Obedience to God")
 
-### Day 55 “Teach my words to your children” ###
+### Day 55 “Teach my words to your children”
 
 The statutes, ordinances, commands, commandments, and law of the Lord are good for us. They are the best, no other law is as good as the law of the Lord. Some states have laws that forbid the sale of cigarettes or alcohol to anyone under the age of 21, however, the same state allows teens to have abortions (commit murder).
 “What other great nation has statutes and ordinances as just as this entire law that I am setting before you today?” Deuteronomy 4:5
@@ -787,7 +787,7 @@ We need to remember his Law and his Word and teach it to our children and their 
 We are responsible for tomorrow's generation. Let us teach and kids and grandkids about God and His word.
 May the Holy Spirit Lead us. 🙏
 
-### Day 55 Anonymous ###
+### Day 55 Anonymous
 
 One Psalm, Ps 88 ends in darkness.
 
@@ -796,13 +796,13 @@ Other families had a different task.
 Lord, You have created me for a definite task because of that  I can lift up my head.  Your life matters.
 Thank You Lord!
 
-## February 25,2024 ##
+## February 25,2024
 
-### Jealous Husbands ###
+### Jealous Husbands
 
 [![Jealous Husbands](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day056.jpg)](https://youtu.be/oZsJMk7lmh8 "Jealous Husbands")
 
-### Day 56 Jealousy between Spouses ###
+### Day 56 Jealousy between Spouses
 
 We live in a society where there is a lot of cheating, betrayal, infidelity, and divorce. The main reason is that spouses are trying to make a marriage work on their own. We have two human beings – who are both broken, trying to find fulfillment in each other.
 
@@ -816,24 +816,24 @@ It takes 3 to make marriage work, Husband, Wife, and God. Modeled like the Holy 
 
 May the Holy Spirit lead us. 🙏
 
-## February 26,2024 ##
+## February 26,2024
 
-### Hear, O Israel ###
+### Hear, O Israel
 
 [![Hear, O Israel](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day057.jpg)](https://youtu.be/XmcXTuH0W4M "Hear, O Israel")
 
-### Day 57 *“Lent – The Nazirite vow – time set apart for the Lord” “Psalm 91 – WOW!!!”* ###
+### Day 57 *“Lent – The Nazirite vow – time set apart for the Lord” “Psalm 91 – WOW!!!”*
 
- We read about the Nazirite vow and how one would dedicate a certain time totally to God. They would not have any wine or strong drink; they would let the hair grow and not tend to their grooming needs. Isn’t this what one does when they decide to give up something for Lent.
+We read about the Nazirite vow and how one would dedicate a certain time totally to God. They would not have any wine or strong drink; they would let the hair grow and not tend to their grooming needs. Isn’t this what one does when they decide to give up something for Lent.
 We are dedicating ourselves to prayer, reading the bible, attending mass, fasting and almsgiving.
- Every Lent is a special time of grace for me, I feel spiritually renewed through the 40 days of prayer, fasting and almsgiving.
+Every Lent is a special time of grace for me, I feel spiritually renewed through the 40 days of prayer, fasting and almsgiving.
 We dedicate ourselves to the Lord at the start of Lent when we put ashes on our forehead, reminding us of our nothingness. We need to offer up sacrifices and give up certain things to remind us that we are in lent. Some examples: I plan to give us meat and wine and the kids plan to give up candy for lent. Some people fast a meal and some don’t add sugar to their coffee. All of these are great reminders to the real purpose of Lent. The real purpose is to remind us what we read in the reading in Deut6 – the great Shema – “ Hear, O Israel: The LORD is our God, the LORD alone. You shall love the LORD your God with all your heart, and with all your soul, and with all your might”
 Throughout lent we need to refocus on the Lord everyday. Our focus should not be on what we give up or our fasting or almsgiving. The focus should be on the Lord. Making Him the Lord of our life, we should strive to love up with everything we have with our heart, mind and soul with all our might.
 Let’s not forget that every step we take towards God he takes 10 steps towards us. Like we read in Psalm 91 today First verse is what we should need to do and the remaining verses tell us what the Lord will do.
 We need to make Him our God and live in Him.
 
 “You who live in the shelter of the Most High,
-  who abide in the shadow of the Almighty”
+who abide in the shadow of the Almighty”
 
 Once we make him our God the blessing will flow:
 
@@ -862,7 +862,7 @@ Ready Ps 91 everyday – make Him the Lord and He will take care of us.
 
 May the Holy Spirit lead us.
 
-### Day 57 : Jenita ###
+### Day 57 : Jenita
 
 Today's readings speaks volumes of God's blessings and protection for the people who are faithful to him.
 
@@ -870,7 +870,7 @@ Simple acts of love shown to God leads us to receive innumerable blessings from 
 
 Trust in God and stay loyal to worshipping and praising God always
 
-### Day 57 Anonymous ###
+### Day 57 Anonymous
 
 Lord, help us never forget what You have done for us!
 
@@ -883,13 +883,13 @@ One new revelation about the Sign of The  Cross on our forehead, our lips n our 
 
 All Glory to Jesus!
 
-## February 27,2024 ##
+## February 27,2024
 
-### A Chosen People ###
+### A Chosen People
 
 [![A Chosen People](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day058.jpg)](https://youtu.be/y6fknWuyLQU "A Chosen People")
 
-### Day 58: “Do not have strong ties with the world” -Michael Eltham ###
+### Day 58: “Do not have strong ties with the world” -Michael Eltham
 
 As we journeyed with the Israelites we noticed that the nations that the Lord handed over to the Israelites were much stronger and greater than the Israelites. The Lord with a “Mighty hand and outstretched arm” won every battle for the Israelites.
 
@@ -903,19 +903,19 @@ Jesus calls us to this, he sends us into the world to be a light to the world, w
 
 Jesus prayed for us in John 17:14-18
 
-“I have given them your word, and the world has hated them because they do not belong to the world, just as I do not belong to the world. 15 I am not asking you to take them out of the world, but I ask you to protect them from the evil one.[e] 16 They do not belong to the world, just as I do not belong to the world. 17 Sanctify them in the truth; your word is truth. 18 As you have sent me into the world, so I have sent them into the world.”
+“I have given them your word, and the world has hated them because they do not belong to the world, just as I do not belong to the world. 15 I am not asking you to take them out of the world, but I ask you to protect them from the evil one.\[e\] 16 They do not belong to the world, just as I do not belong to the world. 17 Sanctify them in the truth; your word is truth. 18 As you have sent me into the world, so I have sent them into the world.”
 
 Let us not be worldly people but a people set apart, a chosen generation for the Lord. Let us not defile ourselves with the things of the world. Let us not overly focus on this life but on the next.
 
 May the Holy Spirit lead us. 🙏
 
-## February 28,2024 ##
+## February 28,2024
 
-### Obligations to God ###
+### Obligations to God
 
 [![Obligations to God](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day059.jpg)](https://youtu.be/5e8Tw2TL6CY "Obligations to God")
 
-### Day 59 “No exemption for not keeping the Passover/Eucharist” ###
+### Day 59 “No exemption for not keeping the Passover/Eucharist”
 
 We see the strict instruction on how every Israelite was required to keep the Passover. Even if the person was unclean or traveling, there is no excuse. This is a mandatory command of the Lord because it’s “that” important. If anyone who is able to keep the Passover chooses not to, he/she will be cut off from the flock. The Passover is the pre-figuration of the Mass. Jesus instituted the Eucharist as the new Passover, we will get to that when we read the New Testament.
 
@@ -926,17 +926,17 @@ The Catholic Church makes it very clear “Sunday is to be observed as the forem
 The other days of obligation (as per the USCCB):
 
 January 1, the solemnity of Mary, Mother of God
- Thursday of the Sixth Week of Easter, the solemnity of the Ascension
- August 15, the solemnity of the Assumption of the Blessed Virgin Mary
- November 1, the solemnity of All Saints
- December 8, the solemnity of the Immaculate Conception
- December 25, the solemnity of the Nativity of Our Lord Jesus Christ.
+Thursday of the Sixth Week of Easter, the solemnity of the Ascension
+August 15, the solemnity of the Assumption of the Blessed Virgin Mary
+November 1, the solemnity of All Saints
+December 8, the solemnity of the Immaculate Conception
+December 25, the solemnity of the Nativity of Our Lord Jesus Christ.
 
 The word obligation can be misunderstood in two ways,
 
 1. can portray the Eucharist as unappealing, as though the people are forced to go to it
 
-2. as a minimum duty as though they will be saved and are going to heaven for sure
+1. as a minimum duty as though they will be saved and are going to heaven for sure
 
 Both those views need to be changed, the Eucharist is the highest form of worship and heaven joins earth – if it feels dull and mundane – it means we are unaware/under-educated on the true presence of Jesus. As we read through the BIAY – it will be slowly unveiled.
 
@@ -946,13 +946,13 @@ One is not saved just by showing up for Mass, sorry that’s the truth. We need 
 
 May the Holy Spirit lead us 🙏
 
-## February 29,2024 ##
+## February 29,2024
 
-### Intercessory Prayer ###
+### Intercessory Prayer
 
 [![Intercessory Prayer](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day060.jpg)](https://youtu.be/jnTpnBCISCU "Intercessory Prayer")
 
-### Day 60: “Stubborn people – Intercesssory prayer - 40 days 40 nights X TWO ” ###
+### Day 60: “Stubborn people – Intercesssory prayer - 40 days 40 nights X TWO ”
 
 As we read through the journey of the Israelites, we see how the Lord was guiding them so closely. The Lord tells them when to move when to stop – they were led by the fire of smoke.
 

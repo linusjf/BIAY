@@ -1,1 +1,1 @@
-1) Refactor compact to use stitch
+1. Refactor compact to use stitch
