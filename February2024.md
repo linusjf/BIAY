@@ -44,7 +44,7 @@
     + [Day 42 Anonymous](#day-42-anonymous)
   * [February 12,2024](#february-122024)
     + [The Ark of the Covenant](#the-ark-of-the-covenant)
-    + [Day 43: “The Tabernacle, His presence” - Michael Eltham.](#day-43-the-tabernacle-his-presence---michael-eltham)
+    + [Day 43: “The Tabernacle, His presence” - Michael Eltham](#day-43-the-tabernacle-his-presence---michael-eltham)
     + [Day 43 Simitra](#day-43-simitra)
   * [February 13,2024](#february-132024)
     + [Priestly Garments](#priestly-garments)
@@ -455,7 +455,6 @@ He sees to their every need and ensures they are fit to be in his presence.
 
 The people show acts of trust, and thats what we need to learn today.
 
-
 Trust in God and obey his laws
 
 ### Day 42 Anonymous ###
@@ -473,7 +472,7 @@ How good You are, and how fickle  we can be.
 
 [![The Ark of the Covenant](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day043.jpg)](https://youtu.be/8BrRBQ4GKGo "The Ark of the Covenant")
 
-### Day 43: “The Tabernacle, His presence” - Michael Eltham. ###
+### Day 43: “The Tabernacle, His presence” - Michael Eltham ###
 
 We could get lost in the details as we read today's reading about the “blueprint” of the Tabernacle. Whenever I see a lot of detail documented the stance I take is that the thing is of great importance. The more the details the greater the importance. “If we have no plan we are planning to fail” A few things that struck home when I was hearing the readings was the close similarity of the worship in the Catholic Church thousands of years later. The concept of the bread of the presence – where bread is always present with a lampstand near it, every catholic church has one and this makes the church holy.
 
@@ -538,7 +537,7 @@ Our Lord presented celibacy as a legitimate lifestyle not only by His very life 
 
 Nevertheless, in the early Church, clerical celibacy was not mandated. St. Paul in his first letter to St. Timothy wrote, “A bishop must be irreproachable, married only once, of even temper, self-controlled, modest, and hospitable” (3:2) and “Deacons may be married but once and must be good managers of their children and their households” (3:12). However, one should not erroneously construe this teaching to mean that a bishop, priest, or deacon had to be married; St. Paul admitted that he himself was not married (I Corinthians 7:8).
 
-Read more https://catholicstraightanswers.com/why-does-the-church-mandate-that-priests-be-celibate/
+Read more at [Why does the Church mandate that priests be celibate?](https://catholicstraightanswers.com/why-does-the-church-mandate-that-priests-be-celibate/)
 
 Let us pray for our priest today.
 
@@ -658,6 +657,7 @@ Thank You Lord, for Your mercies n not letting us be slaves forever!
 [![Sacrificial Offerings](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day050.jpg)](https://youtu.be/RsiztOG3g-E "Sacrificial Offerings")
 
 ### Day 50 “Obedience” - Michael Eltham ###
+
 In Leviticus 26 we see detailed explanations on what happens to those who are obedient and those who disobey.
 The promise of the Lord for the obedient are many, the most important is “I will walk with you, I will be your God”. I think this is important as we recall the story of creation, where God walked with Adam and Eve in the cool of the evening. It’s reminding me of that story where a prince of a kingdom wanted to give gifts to a few dedicated people, others picked land and gold but one maiden picked the prince himself. She said, “If I have the prince, I have everything else”. That is the best choice that we need to make as well.
 We also see the detail of wrath, looks like those who disobey the Lord, get more and more punishment. Like a good Father, God does not want to punish us but cause us to choose him over things of the world, we need to be obedient to be restored to what our first parents lost. If we are obedient the promise is great, “I will walk with you, I am you, God”. We will walk with the Lord in the cool of the evening. We will experience His presence in our daily lives.
@@ -670,6 +670,7 @@ May the Holy Spirit Lead us. 🙏
 [![Israel's Worship of God](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day051.jpg)](https://youtu.be/waXS43o9qa0 "Israel's Worship of God")
 
 ### Day 51 “Getting worship of God right” "Votive offerings" ###
+
 Some would argue that God is Omnipresent, and we can worship Him anywhere, there is no need for a structure. Yes, we can worship God anywhere, there is no harm in that. But if we have been paying close attention, we see detailed instructions about the tabernacle, the ark of the covenant, the altars, the screens, the lampstand, and most important the consecration of the place to be dedicated for the worship of the most High God.
 Of course, the Lord is present when you read your bible at home, He is present when you sing praise songs while driving, He is present in your family prayer and person prayer. However, He calls us to go to Church, the place dedicated to His worship, community worship. We see in the reading how the cloud of smoke engulfed the tabernacle, the presence of the Lord was so strong that the Levites could not even go in. We need to be sensitive to the presence of God when we go to church, bow down and adore Him in the tabernacle. And as we will read later – how Jesus will teach us "how to worship", and we will read how the apostles were dedicated to the breaking of bread and if we like we can go deeper and learn how the early Christians and the church fathers worshiped God (not part of the Bible, but can be found in early historic records and writings) it’s amazing how the Eucharist is the fulfillment of the earlier sacrifices and the one method of worship that was instituted by Jesus and practice and preserved through the generations in its original state. We will learn more as we read through the BIAY. But for now, let us remember that we need to Get worship right, not how we want to, but how God prescribes it.
 Votive Offering – Many people were so moved by the Lord that they wanted to give more than what is asked. That’s why we see the value of work(wages) of different people men, women of diff ages had a different Shekel value. It was for those who could not offer sacrifice because there were not Levites, yet wanted to offer more than what was asked of them. Hence they gave their value of wages in the votive offering.
@@ -690,6 +691,7 @@ May the Holy Spirit lead us. 🙏
 [![Israel Continues to Journey](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day052.jpg)](https://youtu.be/mgdtG9DM-wQ "Israel Continues to Journey")
 
 ### Day 52 “Names, names, names – God was serious when he said I have called you by name” - Michael Eltham ###
+
 As we hear the names and the numbers we tend to tune out, it’s totally normal for us. Our capacity as human beings is limited, we can only care for ourselves, our family, and our friends.
 However the Lord cares for everyone, he loves each one of us so intimately that
 “He knows when we sit down and when we raise up, when we go out and when we come in. Even before a word is on our lips He already knows it.” Ps 139.
@@ -778,6 +780,7 @@ May the Holy Spirit lead us 🙏
 [![Obedience to God](https://raw.githubusercontent.com/linusjf/BIAY/main/February/jpgs/Day055.jpg)](https://youtu.be/j7rpQ4Z9Yzw "Obedience to God")
 
 ### Day 55 “Teach my words to your children” ###
+
 The statutes, ordinances, commands, commandments, and law of the Lord are good for us. They are the best, no other law is as good as the law of the Lord. Some states have laws that forbid the sale of cigarettes or alcohol to anyone under the age of 21, however, the same state allows teens to have abortions (commit murder).
 “What other great nation has statutes and ordinances as just as this entire law that I am setting before you today?” Deuteronomy 4:5
 We need to remember his Law and his Word and teach it to our children and their children.

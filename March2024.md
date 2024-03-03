@@ -44,6 +44,7 @@ May the Holy Spirt Lead us 🙏
 [![Spies Sent to Canaan](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day062.jpg)](https://youtu.be/UmoB_TfaWWo "Spies Sent to Canaan")
 
 ### Day 62: “Family Feud” ###
+
 JOKE ALERT: WHAT’S THE DIFFERENCE BETWEEN IN-LAWS AND OUTLAWS.
 THE OUTLAWS ARE WANTED, AND THE IN-LAWS ARE ___ 😁
 We see this played out over and over again, families fighting over petty things. We see sibling rivalry, fights with the in-laws, jealousy, quarrels, disagreement, enmity, family members not talking to each other. We should realize all of us have weaknesses and shortcomings, no one is perfect, and some people are harder to love. We can pick our friends but family is given to us. (well we can pick our spouse and in-laws I guess)
