@@ -2,6 +2,7 @@
 require() {
   hash "$@" || exit
 }
-require mdl
+require mdl mdformat
+mdformat -- **/*.md
 mdl -- **/*.md
 exit $?
