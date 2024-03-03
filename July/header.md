@@ -1,4 +1,5 @@
 <!-- toc -->
-# July 2024 #
+
+# July 2024
 
 BIAY July 2024
