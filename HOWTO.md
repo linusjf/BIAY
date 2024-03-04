@@ -2,11 +2,11 @@
 
 <!-- vim-markdown-toc GFM -->
 
-- [Prerequisites](#prerequisites)
-- [Add today's Youtube video](#add-todays-youtube-video)
-- [Add today's sharing](#add-todays-sharing)
-- [Generate markdown for Youtube video](#generate-markdown-for-youtube-video)
-- [Merge monthly markdown files into one large README](#merge-monthly-markdown-files-into-one-large-readme)
+* [Prerequisites](#prerequisites)
+* [Add today's Youtube video](#add-todays-youtube-video)
+* [Add today's sharing](#add-todays-sharing)
+* [Generate markdown for Youtube video](#generate-markdown-for-youtube-video)
+* [Merge monthly markdown files into one large README](#merge-monthly-markdown-files-into-one-large-readme)
 
 <!-- vim-markdown-toc -->
 
@@ -36,7 +36,7 @@ for the monthly markdown (in this case, `January2024.md`).
 You can replace the top-level markdown header
 
 ```markdown
-# January 2024 #
+# January 2024
 
 BIAY January 2024
 ```
@@ -88,7 +88,7 @@ Results:
 
   Results:
 
-  - The `January2024.md` file is updated with the sharing text added to the `Day010.md` file.
+  The `January2024.md` file is updated with the sharing text added to the `Day010.md` file.
 
 You can add sharing to other days as well in a similar fashion.
 Don't forget to execute `genmonth` with the appropriate month index for that day.
@@ -129,6 +129,7 @@ Results:
 
    ```markdown
    # README
+
    - [BIAY](redme.md)
    - [January 2024](January2024.md)
    - [February 2024](February2024.md)
