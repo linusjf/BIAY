@@ -10,6 +10,7 @@
   * [March 03,2024](#march-032024)
     + [Israel's Rebellion](#israels-rebellion)
     + [Day 63: “Slow to anger and abounding in mercy”](#day-63-slow-to-anger-and-abounding-in-mercy)
+    + [Day 63 Maryanne C.M.](#day-63-maryanne-cm)
   * [March 04,2024](#march-042024)
     + [Consequences of Sin](#consequences-of-sin)
 
@@ -61,7 +62,7 @@ May the Holy Spirit Lead us. 🙏
 
 [![Israel's Rebellion](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day063.jpg)](https://youtu.be/0TIAYr9W5pw "Israel's Rebellion")
 
-### Day 63: “Slow to anger and abounding in mercy” ###
+### Day 63: “Slow to anger and abounding in mercy”
 
 The Israelites are a rebellious people, they were delivered from the strongest army – the Egyptians. God almighty the great ‘I AM’ is with them, He delivered them from Egypt – with supernatural events – the plagues, the parting of the Dead Sea, feeding in the desert, and water from the rock. Even though the Lord led them with a mighty hand and an outreached arm, even though the Lord was fighting for them. The Israelites were rebelling over and over again, they were a rebellious people. They even decided to go back to Egypt, they said let us appoint a captain and go back.
 
@@ -81,8 +82,21 @@ We have to listen to the Lord and wait on Him, not take things into our own hand
 
 May the Holy Spirit Lead us 🙏
 
-## March 04,2024 ##
+### Day 63 Maryanne C.M.
 
-### Consequences of Sin ###
++God Hears every murmur against him, n there is a consequence for the same. Let us not murmur even in our hearts.
++The spies took 40 days and for each day they hd to spend a year in wilderness. Hence the 40years in wanderings.
++Those who hd to return with a strategy to proceed, returned with fear n defeat in their words. Acting on the reports of fear, the Israelites make plans to return to slavery!! Let us not be bogged down by the arrows of fear that the enemy strikes at us, but remain in confident faith like Caleb and Joshua.
++"...they were driven by fear and paralysed by distrust that marked their hearts..." Let us not be driven by fear in our lives, in Jesus' Name.
++"... bcoz they were unwilling to battle their children hd to do the battle..."
++"...let us take up arms against whatever enslaves us..."
+\+ There is One Place for Worship.
++"...be careful if you r close to d Tabernacle or temple, you may not just eat whatever kind of meat that u wud like to..." This also pertains to other consumptions too, like what we listen to or watch!
++Deut 12 is more connected to worship than just abt eating.
+Amen.🙏
+
+## March 04,2024
+
+### Consequences of Sin
 
 [![Consequences of Sin](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day064.jpg)](https://youtu.be/iPGFWwtLLv0 "Consequences of Sin")
