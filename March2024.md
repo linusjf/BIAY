@@ -9,6 +9,9 @@
     + [Day 62: “Family Feud”](#day-62-family-feud)
   * [March 03,2024](#march-032024)
     + [Israel's Rebellion](#israels-rebellion)
+    + [Day 63: “Slow to anger and abounding in mercy”](#day-63-slow-to-anger-and-abounding-in-mercy)
+  * [March 04,2024](#march-042024)
+    + [Consequences of Sin](#consequences-of-sin)
 
 <!-- tocstop -->
 
@@ -57,3 +60,29 @@ May the Holy Spirit Lead us. 🙏
 ### Israel's Rebellion
 
 [![Israel's Rebellion](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day063.jpg)](https://youtu.be/0TIAYr9W5pw "Israel's Rebellion")
+
+### Day 63: “Slow to anger and abounding in mercy” ###
+
+The Israelites are a rebellious people, they were delivered from the strongest army – the Egyptians. God almighty the great ‘I AM’ is with them, He delivered them from Egypt – with supernatural events – the plagues, the parting of the Dead Sea, feeding in the desert, and water from the rock. Even though the Lord led them with a mighty hand and an outreached arm, even though the Lord was fighting for them. The Israelites were rebelling over and over again, they were a rebellious people. They even decided to go back to Egypt, they said let us appoint a captain and go back.
+
+Is this not our story, do we not keep drifting away from the Lord. The Lord has done great things in our lives, he has provided us with a good life – and if you can read this today – you are more fortunate than half the people in the world or maybe even more, as they are so poor that they do not have internet access. We should stop complaining and remember all the sins the Lord delivered us from, this will help us realize how unworthy we are. We should not think of backsliding or the temporary pleasure we had when we committed sins in the past.
+
+Even though we are so fickle-minded and rebellious, and we continuously fall back into our old sins. The Lord is patient – He is slow to anger and abounding in mercy.
+
+We cannot mix the old and the new clothes – we cannot carry on with old sins and try to pretend that we are holy. The old has gone and the new has come.
+
+“No one puts a piece from a new garment on an old one; otherwise the new makes a tear, and also the piece that was taken out of the new does not match the old" Luke 5:36
+
+Remember that the Lord is patient and is waiting for us to change, He has not left us even though we are not worthy, even though we keep going back to the old sins. May the Lord strengthen us and liberate us from our sinful past.
+
+Also want to call out that we see some Israelites not listening to instructions, getting impatience, and wanting to take on the Amalekites and Canaanites on their own intuition – they decided to go out on their own strength without taking the Ark of the covenant or without the guidance of the Lord(the pillar smoke and fire) – they FAILED – the Amalekites and Canaanites came down and defeated them.
+
+We have to listen to the Lord and wait on Him, not take things into our own hands. Just follow the instructions the Lord gives us and it will be good with us.
+
+May the Holy Spirit Lead us 🙏
+
+## March 04,2024 ##
+
+### Consequences of Sin ###
+
+[![Consequences of Sin](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day064.jpg)](https://youtu.be/iPGFWwtLLv0 "Consequences of Sin")

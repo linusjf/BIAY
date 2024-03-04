@@ -40,7 +40,7 @@ if ./genoverlay "$vid" "$doy"; then
   monthmd="${month}${year}.md"
   ./compact "$month" >|"$monthmd" &&
     markdown-toc -i "$monthmd"
-  sed '/\S/,$!d' "$monthmd"
+  sed -i '/\S/,$!d' "$monthmd"
   echo "$vid" >>videos.txt
 else
   echo "Unable to find or generate video thumbnail. Video may not exist."
