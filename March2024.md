@@ -17,6 +17,9 @@
   * [March 05,2024](#march-052024)
     + [Revolt Against Moses](#revolt-against-moses)
     + [Day 65 “Why are there no women priests in the Catholic Church”](#day-65-why-are-there-no-women-priests-in-the-catholic-church)
+  * [March 06,2024](#march-062024)
+    + [Forbidden Forms of Worship](#forbidden-forms-of-worship)
+    + [Day 66: Forbidden forms of worship – Magic, horoscopes, fortune-telling](#day-66-forbidden-forms-of-worship-%E2%80%93-magic-horoscopes-fortune-telling)
 
 <!-- tocstop -->
 
@@ -168,3 +171,41 @@ Hope my reflection was clear and to the point. We are called to worship God as H
 If you have other opinions, I respect them and we are still brothers and sisters in Christ.
 
 May the Holy Spirit lead us. 🙏
+
+## March 06,2024 ##
+
+### Forbidden Forms of Worship ###
+
+[![Forbidden Forms of Worship](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day066.jpg)](https://youtu.be/Rn4UHDqh0F0 "Forbidden Forms of Worship")
+
+### Day 66: Forbidden forms of worship – Magic, horoscopes, fortune-telling ###
+
+We see the stern warning of the Lord that is given to the Israelites – preparing them for entry into the promised land.
+
+“When you come into the land that the Lord your God is giving you, you must not learn to imitate the abhorrent practices of those nations. 10 No one shall be found among you who makes a son or daughter pass through fire, or who practices divination, or is a soothsayer, or an augur, or a sorcerer, 11 or one who casts spells, or who consults ghosts or spirits, or who seeks oracles from the dead.” Deuteronomy 18
+
+There are some practices that have crept into our daily lives without us discerning properly?
+
+One common thing is reading the daily horoscope prediction – or following sun signs.
+
+For example – Aries is a passionate, motivated, and confident leader who builds community with their cheerful disposition and relentless determination. I got a kick out of this description as I am supposedly Aries ;) but It’s BS 😀 There are so many Aries who are just the opposite. Hehe.
+
+People read their fortune in the horoscope columns and believe it, or go to a Psychic, tarot card reader, or palm reader. It’s just like having a sun, moon, or star god, or believing that the stars and creation rule our lives instead of the creator.
+
+Some people use spirit mediums to get solutions or to conjure the dead. There is an increase in satanism and occult practices. Witchcraft, voodoo dolls, and black magic are common in some cultures. They are allowing after-school Satanist clubs now, remember they threw out the 10 commandments and now allow this.
+
+There are also new age practices each person is their own divinity – I’m my own god.
+
+Many people follow superstations as well like – black cat crossing your path, touch wood, a horseshoe for good luck, sports superstitions.
+
+All of these are placing our trust in the created things or practices, it's literally telling God that we trust in things of the world rather than in Almighty God.
+
+We are breaking the first commandment the great Shema –
+
+“Hear, O Israel: The Lord is our God, the Lord alone. You shall love the Lord your God with all your heart, and with all your soul, and with all your might”" Deut 6
+
+“Some trust in chariots and some in horses, but we trust in the name of the LORD our God.” Ps 20:7
+
+Let us not put our lives and trust in created things, we owe that to the creator.
+
+May the Holy Spirit lead us.🙏
