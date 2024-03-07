@@ -16,12 +16,13 @@
     + [Consequences of Sin](#consequences-of-sin)
   * [March 05,2024](#march-052024)
     + [Revolt Against Moses](#revolt-against-moses)
-    + [Day 65 “Why are there no women priests in the Catholic Church”](#day-65-why-are-there-no-women-priests-in-the-catholic-church)
   * [March 06,2024](#march-062024)
     + [Forbidden Forms of Worship](#forbidden-forms-of-worship)
     + [Day 66: Forbidden forms of worship – Magic, horoscopes, fortune-telling](#day-66-forbidden-forms-of-worship-%E2%80%93-magic-horoscopes-fortune-telling)
   * [March 07,2024](#march-072024)
     + [God's Justice and Refuge](#gods-justice-and-refuge)
+  * [March 05,2024](#march-052024-1)
+    + [Revolt Against Moses](#revolt-against-moses-1)
 
 <!-- tocstop -->
 
@@ -126,53 +127,11 @@ Amen.🙏
 
 [![Consequences of Sin](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day064.jpg)](https://youtu.be/iPGFWwtLLv0 "Consequences of Sin")
 
-## March 05,2024
+## March 05,2024 ##
 
-### Revolt Against Moses
+### Revolt Against Moses ###
 
 [![Revolt Against Moses](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day065.jpg)](https://youtu.be/_ZxhfZw4644 "Revolt Against Moses")
-
-### Day 65 “Why are there no women priests in the Catholic Church”
-
-We see that Moses faced a lot of resistance. We have seen this come up over and over again, people revolt against Moses (actually revolt against the Lord – Moses is just following the Lord’s instructions).
-
-1. We see Aaron and Miriam having an issue with Moses' wife
-
-2. the spies have a problem and refuse to take on the tall people (even though the Lord defeated Egypt -the strongest nation for them)
-
-3. we see a revolt among those who are non-Levites – as they want to become priests. (Only Levites were priests -as the Levites ordained themselves by taking a stand for the Lord by destroying the Baal worshipers – The Lord commanded that only Levites should be priests)
-
-4. We see that Korah, Dothan, and Abiram accuse Moses of making up the rules and becoming a Price over them.
-
-Moses fell on his face – meaning – he prayed – Moses was genuine – he was just doing what the Lord commanded. We see how they insisted, and the Lord answered directly – the earth opened and swallowed them up.
-
-We see an increasing demand that Women should be allowed to be Catholic priests. There are a lot of merits to it – all of us have mothers and know how caring they are, they would make for a very caring priest. This would also demonstrate equality and help solve the vocation crisis or would have potentially prevented a lot of the sex abuse scandals. The list could go on, but are we not thinking like “Korah, Dothan and Abiram” – let us not think humanly (although it makes a lot of sense and is practical for women to become priests)
-
-There could be many reasons for male priests but would state two.
-
-1. JESUS APPOINTED ONLY MEN AS APOSTLES.
-
-Jesus picked 12 apostles all of whom were men.
-
-Some would say that Jesus was restricted to an era of a male-dominated society – I choose to differ – Jesus was never influenced by the society - he ate with sinners - tax collectors, prostitutes, pagans, -his disciples did not follow washing of the hands and fasting.
-
-Jesus healed on the sabbath, healed leapers and women with the hemorrhoids touched his cloak. He never bothered about becoming unclean -because He was holiness Himself.
-
-Jesus’ ministry was supported by many women and they were His best followers (even to the cross). Jesus was very caring towards women in the gospel -ex: Mary and Martha. He approached the Samaritan women at the well. He had nothing against women.
-
-Mary his mother would have been a perfect priest – as she could literally say this is my body (as Jesus took his human body from her) when she lifted the hosts in consecration. But Jesus chose 12 men – it’s not men who decided that priests should be men. He washed the feet of the apostles in the upper room as we will read later in BIAY – washing the feet was a ceremony for anointing.
-
-2. THE PRIEST REPRESENTS CHRIST
-
-The priests are called to embody Christ (Persona Christi) He is the bridegroom, and the church is the bride, we cannot have a female bridegroom (no disrespect to anyone who feels otherwise – it’s the biblical definition of the bridegroom). The Eucharist is a wedding banquet – Jesus is the bridegroom, and the church is the bride. Jesus came to this world as a man and the priest needs to embody that. Also by nature/biology, the man provides the seed and the women nurture it and care for it to fulfillment as a baby. In the same way, the priests (Persona Christi) initiate Spiritual children through the sacraments of the church like Baptism, that's why we call the priests fathers as they are spiritual fathers. The church (laity – both women and men)like women nurture spiritual children until they reach heaven.
-
-Although like St John Paul II says we need to celebrate the “genius of women” in the church – without women, no parish will last a week. Just look at the many talents and services women do for the functioning of the parish. Their maternal care and love for the priests and the congregation is commendable. Jesus first appeared to a woman and not to a man after He rose from the dead, the first evangelist was a woman. Women are called to greatness and to do great things for the Lord and for the church, to be evangelists, leaders of ministries, heads of councils, proclaimers of the word of God, Eucharistic Ministers, Lectors, counselors, prayer group leaders and even lead communion service(No consecration of bread) and many more ministries to complement the priests in their ministry. Men are priests not because they are better than women but because of the nature of Christ.
-
-Hope my reflection was clear and to the point. We are called to worship God as He wants us to not how we want to.
-
-If you have other opinions, I respect them and we are still brothers and sisters in Christ.
-
-May the Holy Spirit lead us. 🙏
 
 ## March 06,2024
 
@@ -212,8 +171,14 @@ Let us not put our lives and trust in created things, we owe that to the creator
 
 May the Holy Spirit lead us.🙏
 
-## March 07,2024 ##
+## March 07,2024
 
-### God's Justice and Refuge ###
+### God's Justice and Refuge
 
 [![God's Justice and Refuge](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day067.jpg)](https://youtu.be/W3v2a1gQl0Q "God's Justice and Refuge")
+
+## March 05,2024 ##
+
+### Revolt Against Moses ###
+
+[![Revolt Against Moses](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day065.jpg)](https://youtu.be/_ZxhfZw4644 "Revolt Against Moses")
