@@ -20,6 +20,8 @@
   * [March 06,2024](#march-062024)
     + [Forbidden Forms of Worship](#forbidden-forms-of-worship)
     + [Day 66: Forbidden forms of worship – Magic, horoscopes, fortune-telling](#day-66-forbidden-forms-of-worship-%E2%80%93-magic-horoscopes-fortune-telling)
+  * [March 07,2024](#march-072024)
+    + [God's Justice and Refuge](#gods-justice-and-refuge)
 
 <!-- tocstop -->
 
@@ -172,13 +174,13 @@ If you have other opinions, I respect them and we are still brothers and sisters
 
 May the Holy Spirit lead us. 🙏
 
-## March 06,2024 ##
+## March 06,2024
 
-### Forbidden Forms of Worship ###
+### Forbidden Forms of Worship
 
 [![Forbidden Forms of Worship](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day066.jpg)](https://youtu.be/Rn4UHDqh0F0 "Forbidden Forms of Worship")
 
-### Day 66: Forbidden forms of worship – Magic, horoscopes, fortune-telling ###
+### Day 66: Forbidden forms of worship – Magic, horoscopes, fortune-telling
 
 We see the stern warning of the Lord that is given to the Israelites – preparing them for entry into the promised land.
 
@@ -209,3 +211,9 @@ We are breaking the first commandment the great Shema –
 Let us not put our lives and trust in created things, we owe that to the creator.
 
 May the Holy Spirit lead us.🙏
+
+## March 07,2024 ##
+
+### God's Justice and Refuge ###
+
+[![God's Justice and Refuge](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day067.jpg)](https://youtu.be/W3v2a1gQl0Q "God's Justice and Refuge")
