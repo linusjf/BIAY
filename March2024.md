@@ -22,6 +22,8 @@
     + [Day 66: Forbidden forms of worship – Magic, horoscopes, fortune-telling](#day-66-forbidden-forms-of-worship-%E2%80%93-magic-horoscopes-fortune-telling)
   * [March 07,2024](#march-072024)
     + [God's Justice and Refuge](#gods-justice-and-refuge)
+  * [March 08,2024](#march-082024)
+    + [The Waters of Meribah](#the-waters-of-meribah)
 
 <!-- tocstop -->
 
@@ -126,9 +128,9 @@ Amen.🙏
 
 [![Consequences of Sin](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day064.jpg)](https://youtu.be/iPGFWwtLLv0 "Consequences of Sin")
 
-## March 05,2024 ##
+## March 05,2024
 
-### Revolt Against Moses ###
+### Revolt Against Moses
 
 [![Revolt Against Moses](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day065.jpg)](https://youtu.be/_ZxhfZw4644 "Revolt Against Moses")
 
@@ -217,3 +219,9 @@ May the Holy Spirit lead us.🙏
 ### God's Justice and Refuge
 
 [![God's Justice and Refuge](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day067.jpg)](https://youtu.be/W3v2a1gQl0Q "God's Justice and Refuge")
+
+## March 08,2024 ##
+
+### The Waters of Meribah ###
+
+[![The Waters of Meribah](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day068.jpg)](https://youtu.be/39lC9SgaHJg "The Waters of Meribah")
