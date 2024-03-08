@@ -22,8 +22,12 @@
     + [Day 66: Forbidden forms of worship – Magic, horoscopes, fortune-telling](#day-66-forbidden-forms-of-worship-%E2%80%93-magic-horoscopes-fortune-telling)
   * [March 07,2024](#march-072024)
     + [God's Justice and Refuge](#gods-justice-and-refuge)
+    + [Day 67 Anonymous](#day-67-anonymous)
   * [March 08,2024](#march-082024)
     + [The Waters of Meribah](#the-waters-of-meribah)
+  * [March 09,2024](#march-092024)
+    + [The Bronze Serpent](#the-bronze-serpent)
+    + [Day 69 Why do Catholic churches have a Crucifix and holy statues](#day-69-why-do-catholic-churches-have-a-crucifix-and-holy-statues)
 
 <!-- tocstop -->
 
@@ -220,8 +224,44 @@ May the Holy Spirit lead us.🙏
 
 [![God's Justice and Refuge](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day067.jpg)](https://youtu.be/W3v2a1gQl0Q "God's Justice and Refuge")
 
+### Day 67 Anonymous
+
+You care for justice, You care for us. Thank You Lord!
+
+All the tribes of Israel were given land, property, etc. as their inheritance. But Levites were not given any inheritance, because The Lord Himself was their inheritance. The tithes would be given to them for their support and food.
+Levites also have to give a tenth of their tithes from what they are receiving as tithes.
+Wars of judgement
+People of Cannan were living violent lives. God is using people of Israel to exact justice
+You need to be faithful because thru you I am going to bless the people. God gives commandment knowing they wouldn't keep them.
+
 ## March 08,2024 ##
 
 ### The Waters of Meribah ###
 
 [![The Waters of Meribah](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day068.jpg)](https://youtu.be/39lC9SgaHJg "The Waters of Meribah")
+
+## March 09,2024 ##
+
+### The Bronze Serpent ###
+
+[![The Bronze Serpent](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day069.jpg)](https://youtu.be/IhUneF7QUKk "The Bronze Serpent")
+
+### Day 69 Why do Catholic churches have a Crucifix and holy statues
+
+The Catholics get a lot of flak for worshiping the crucifix or statues. We see the Israelites speak against God and against Moses again saying
+
+“Why have you brought us up out of Egypt to die in the wilderness? For there is no food and no water, and we detest this miserable food.” 6 Then the Lord sent poisonous serpents among the people, and they bit the people, so that many Israelites died. 7 The people came to Moses and said, “We have sinned by speaking against the Lord and against you; pray to the Lord to take away the serpents from us.” So Moses prayed for the people. 8 And the Lord said to Moses, “Make a poisonous serpent, and set it on a pole; and everyone who is bitten shall look at it and live.” 9 So Moses made a serpent of bronze, and put it upon a pole; and whenever a serpent bit someone, that person would look at the serpent of bronze and live.
+
+We see that those who sin and repented had to go and look at the pole and the serpent. Is God commanding idol worship here. No really “the pole and serpent” is just an icon for the people to pray to God, it was a place where people gathered to pray.
+
+In the New Testament, Jesus brings this up again John 3.
+
+And just as Moses lifted up the serpent in the wilderness, so must the Son of Man be lifted up, 15 that whoever believes in him may have eternal life.
+
+The Crucifix in the catholic church reminds us that Jesus became sin for us – he was cursed for our inequities – Jesus hangs on the cross with all our sin on Him – that’s why He looked so distressed and humiliated – when we look at the crucifix we need to be reminded of our sin – just as the Israelites looked at the bronze serpent and remembered their rebellion and their complaining – when they looked up to the bronze serpent they were healed. They are not healed by the pole and the serpent – but it serves as a reminder to ask God for healing.
+
+In the same way, when Catholics pray at a crucifix or statue they are not praying or worshiping it – it is just an Icon to remember our sin and to ask God to heal us and give us eternal life.
+
+The Holy statues are just icons of holy men and women whose example we ought to follow. I haven't met any catholic who worships a statue. 😀 Maybe you have, please introduce them to me. 😂
+
+May the Holy Spirit lead us 🙏
