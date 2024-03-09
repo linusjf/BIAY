@@ -23,6 +23,7 @@
   * [March 07,2024](#march-072024)
     + [God's Justice and Refuge](#gods-justice-and-refuge)
     + [Day 67 Anonymous](#day-67-anonymous)
+    + [Reflection - Cathy Aggarao](#reflection---cathy-aggarao)
   * [March 08,2024](#march-082024)
     + [The Waters of Meribah](#the-waters-of-meribah)
   * [March 09,2024](#march-092024)
@@ -234,15 +235,20 @@ Wars of judgement
 People of Cannan were living violent lives. God is using people of Israel to exact justice
 You need to be faithful because thru you I am going to bless the people. God gives commandment knowing they wouldn't keep them.
 
-## March 08,2024 ##
+### Reflection - Cathy Aggarao ###
 
-### The Waters of Meribah ###
+This makes me reflect how priests come from a family, first. And the importance of making our family a domestic church. The active participation of families in parish and sacramental life leads to more young ones entering religious life or faithful professionals. I like how we are called to be sensitive to the needs of the religious and priesthood since we benefit from their works.
+🙏Mother Mary, please pray for more youth to be open to religious and priestly life. Amen.
+
+## March 08,2024
+
+### The Waters of Meribah
 
 [![The Waters of Meribah](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day068.jpg)](https://youtu.be/39lC9SgaHJg "The Waters of Meribah")
 
-## March 09,2024 ##
+## March 09,2024
 
-### The Bronze Serpent ###
+### The Bronze Serpent
 
 [![The Bronze Serpent](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day069.jpg)](https://youtu.be/IhUneF7QUKk "The Bronze Serpent")
 
