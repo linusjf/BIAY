@@ -29,6 +29,9 @@
   * [March 09,2024](#march-092024)
     + [The Bronze Serpent](#the-bronze-serpent)
     + [Day 69 Why do Catholic churches have a Crucifix and holy statues](#day-69-why-do-catholic-churches-have-a-crucifix-and-holy-statues)
+  * [March 10,2024](#march-102024)
+    + [The Offense of Balaam](#the-offense-of-balaam)
+    + [Day 70 “God’s perfect will and permissive will”, “Talking donkey and angels - what? ”](#day-70-gods-perfect-will-and-permissive-will-talking-donkey-and-angels---what-)
 
 <!-- tocstop -->
 
@@ -235,7 +238,7 @@ Wars of judgement
 People of Cannan were living violent lives. God is using people of Israel to exact justice
 You need to be faithful because thru you I am going to bless the people. God gives commandment knowing they wouldn't keep them.
 
-### Reflection - Cathy Aggarao ###
+### Reflection - Cathy Aggarao
 
 This makes me reflect how priests come from a family, first. And the importance of making our family a domestic church. The active participation of families in parish and sacramental life leads to more young ones entering religious life or faithful professionals. I like how we are called to be sensitive to the needs of the religious and priesthood since we benefit from their works.
 🙏Mother Mary, please pray for more youth to be open to religious and priestly life. Amen.
@@ -271,3 +274,31 @@ In the same way, when Catholics pray at a crucifix or statue they are not prayin
 The Holy statues are just icons of holy men and women whose example we ought to follow. I haven't met any catholic who worships a statue. 😀 Maybe you have, please introduce them to me. 😂
 
 May the Holy Spirit lead us 🙏
+
+## March 10,2024 ##
+
+### The Offense of Balaam ###
+
+[![The Offense of Balaam](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day070.jpg)](https://youtu.be/YTiFAPUE15A "The Offense of Balaam")
+
+### Day 70 “God’s perfect will and permissive will”, “Talking donkey and angels - what? ”
+
+We read about Balaam the soothsayer/prophet, going against the Lord’s command. Balaam initially accepted the Lord’s instruction about not cursing God’s chosen (this was God’s perfect will) and when Balaam was influenced with more money and influential people, he gave in. The Lord said OKAY you can go but you will say what I tell you (God’s permissive will).
+
+We encounter this every day in our lives, we know what God wants of us – but we get influenced by this world – money and famous people tell us what to do. Even in the big decisions in life we tend to avoid God’s call – someone called to the religious life avoids it and regrets it later – the Lord is faithful even if we are not – he never leaves us and gives us the freedom to choose. Let us periodically spend time to listen to the promptings of the Holy Spirit to discern God’s will and let’s pray for the grace to accept His perfect will in our lives.
+
+Like Jonah, the Lord will eventually take us on the path He predestined for us. The only difference is – if we listen to God’s voice we will have less resistance - less time in the fish's belly. 
+
+We see this incredible miracle of a talking donkey – the common knowledge is that donkeys are dumb animals. However we see that the dumb one was the human being, in this case, the donkey's eyes were opened to see the angel – with the drawn sword – the donkey was so good – trying to save Balaam’s life and its own I guess. We so often forget the spiritual realm. There are angels around us – our guardian angel and other angels that protect us.
+
+For he will command his angels concerning you
+  to guard you in all your ways;
+ 12 they will lift you up in their hands,
+  so that you will not strike your foot against a stone. Ps 91
+
+The angel of the Lord encamps around those who fear him,
+  and he delivers them. Ps 34
+
+Let us be aware of the lovely angels around us and don’t forget to pet your dog/cat. 😀
+
+May the Holy Spirit lead us. 🙏
