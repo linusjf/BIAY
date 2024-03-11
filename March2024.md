@@ -32,6 +32,9 @@
   * [March 10,2024](#march-102024)
     + [The Offense of Balaam](#the-offense-of-balaam)
     + [Day 70 “God’s perfect will and permissive will”, “Talking donkey and angels - what? ”](#day-70-gods-perfect-will-and-permissive-will-talking-donkey-and-angels---what-)
+  * [March 11,2024](#march-112024)
+    + [The Source of the Law](#the-source-of-the-law)
+    + [Day 71 “If the Lord opens a door no one can close it”](#day-71-if-the-lord-opens-a-door-no-one-can-close-it)
 
 <!-- tocstop -->
 
@@ -275,9 +278,9 @@ The Holy statues are just icons of holy men and women whose example we ought to 
 
 May the Holy Spirit lead us 🙏
 
-## March 10,2024 ##
+## March 10,2024
 
-### The Offense of Balaam ###
+### The Offense of Balaam
 
 [![The Offense of Balaam](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day070.jpg)](https://youtu.be/YTiFAPUE15A "The Offense of Balaam")
 
@@ -287,18 +290,50 @@ We read about Balaam the soothsayer/prophet, going against the Lord’s command.
 
 We encounter this every day in our lives, we know what God wants of us – but we get influenced by this world – money and famous people tell us what to do. Even in the big decisions in life we tend to avoid God’s call – someone called to the religious life avoids it and regrets it later – the Lord is faithful even if we are not – he never leaves us and gives us the freedom to choose. Let us periodically spend time to listen to the promptings of the Holy Spirit to discern God’s will and let’s pray for the grace to accept His perfect will in our lives.
 
-Like Jonah, the Lord will eventually take us on the path He predestined for us. The only difference is – if we listen to God’s voice we will have less resistance - less time in the fish's belly. 
+Like Jonah, the Lord will eventually take us on the path He predestined for us. The only difference is – if we listen to God’s voice we will have less resistance - less time in the fish's belly.
 
 We see this incredible miracle of a talking donkey – the common knowledge is that donkeys are dumb animals. However we see that the dumb one was the human being, in this case, the donkey's eyes were opened to see the angel – with the drawn sword – the donkey was so good – trying to save Balaam’s life and its own I guess. We so often forget the spiritual realm. There are angels around us – our guardian angel and other angels that protect us.
 
 For he will command his angels concerning you
-  to guard you in all your ways;
- 12 they will lift you up in their hands,
-  so that you will not strike your foot against a stone. Ps 91
+to guard you in all your ways;
+12 they will lift you up in their hands,
+so that you will not strike your foot against a stone. Ps 91
 
 The angel of the Lord encamps around those who fear him,
-  and he delivers them. Ps 34
+and he delivers them. Ps 34
 
 Let us be aware of the lovely angels around us and don’t forget to pet your dog/cat. 😀
+
+May the Holy Spirit lead us. 🙏
+
+## March 11,2024 ##
+
+### The Source of the Law ###
+
+[![The Source of the Law](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day071.jpg)](https://youtu.be/9baaLM4owkY "The Source of the Law")
+
+### Day 71 “If the Lord opens a door no one can close it” ###
+
+We see Balak just won’t give up, he makes Balaam try again and again. Even though they build multiple alters and offer bulls and rams – the Lord will not change, what is man that he can attempt to change God’s mind/will.
+
+As we live our Christian lives – we will have a lot of resistance, pushback, and even opposition. Do not worry the Lord is on our side, God is fighting for us.
+
+Like Balak and Balaam, anyone against us (God’s chosen people) will have to say.
+
+“He can I curse who God has not cursed” v8
+
+“ Behold I receive a command to bless; he has blessed and I cannot revoke it ”v20 Numbers 23
+
+Remember that nothing will happen to us that the Lord does not allow.
+
+“No weapon formed against you shall prosper, and every tongue which rises against you in judgment You shall condemn. This is the heritage of the servants of the Lord, and their righteousness is from Me,” Says the Lord” (Isaiah 54:17).
+
+Our God is for us and on our side, what can man do.
+
+31 What then are we to say about these things? If God is for us, who is against us? 32 He who did not withhold his own Son, but gave him up for all of us, will he not with him also give us everything else? Rom 8
+
+Just how – no nation could stop God’s people from entering the promised land. No one can close the door the Lord has opened in your life.
+
+“Brave Soldier - Be positive, look up, and move on. He is with us. “
 
 May the Holy Spirit lead us. 🙏
