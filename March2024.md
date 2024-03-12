@@ -310,13 +310,13 @@ Let us be aware of the lovely angels around us and don’t forget to pet your do
 
 May the Holy Spirit lead us. 🙏
 
-## March 11,2024 ##
+## March 11,2024
 
-### The Source of the Law ###
+### The Source of the Law
 
 [![The Source of the Law](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day071.jpg)](https://youtu.be/9baaLM4owkY "The Source of the Law")
 
-### Day 71 “If the Lord opens a door no one can close it” ###
+### Day 71 “If the Lord opens a door no one can close it”
 
 We see Balak just won’t give up, he makes Balaam try again and again. Even though they build multiple alters and offer bulls and rams – the Lord will not change, what is man that he can attempt to change God’s mind/will.
 
@@ -342,19 +342,19 @@ Just how – no nation could stop God’s people from entering the promised land
 
 May the Holy Spirit lead us. 🙏
 
-### Day 71 - Jenita ###
+### Day 71 - Jenita
 
-Living life as a Christian is challenging. Because always seem to be in a battle between our conscience and our desires. Even though we are rooted in God's words we waver from the plan God has for us. 
+Living life as a Christian is challenging. Because always seem to be in a battle between our conscience and our desires. Even though we are rooted in God's words we waver from the plan God has for us.
 
 But nothing can stop God's protection over us. So we just need to trust in God and move forward.
 
-## March 12,2024 ##
+## March 12,2024
 
-### The Plains of Moab ###
+### The Plains of Moab
 
 [![The Plains of Moab](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day072.jpg)](https://youtu.be/86QY0R3QZ9c "The Plains of Moab")
 
-### Day 72 “Rid yourself, family, and society of sin” ###
+### Day 72 “Rid yourself, family, and society of sin”
 
 We see how faithful God is to the Israelites. We see the Lord is preventing Balaam from cursing the Israelites, he is unable to curse despite the pressure Balak put on him. The Lord has been leading the Israelites through the wilderness – feeding them and defeating many nations along the way – they are about to enter the promised land, a land flowing with milk and honey. The Israelites should be praising God and worshiping Him, however, they are doing awful things to displease the Lord. They are doing shameful things with the Moabite women. Apart from going to the neighboring town one of the sons of Israel even brought a Midianite woman – walked past weeping Moses and Levites – and defiled the inner room of the tent. This would be like performing sexual acts on the altar of a catholic church. Phinehas a priest got up and put them to death and this stopped the plague.
 
