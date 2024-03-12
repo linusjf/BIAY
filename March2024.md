@@ -35,6 +35,10 @@
   * [March 11,2024](#march-112024)
     + [The Source of the Law](#the-source-of-the-law)
     + [Day 71 “If the Lord opens a door no one can close it”](#day-71-if-the-lord-opens-a-door-no-one-can-close-it)
+    + [Day 71 - Jenita](#day-71---jenita)
+  * [March 12,2024](#march-122024)
+    + [The Plains of Moab](#the-plains-of-moab)
+    + [Day 72 “Rid yourself, family, and society of sin”](#day-72-rid-yourself-family-and-society-of-sin)
 
 <!-- tocstop -->
 
@@ -337,3 +341,35 @@ Just how – no nation could stop God’s people from entering the promised land
 “Brave Soldier - Be positive, look up, and move on. He is with us. “
 
 May the Holy Spirit lead us. 🙏
+
+### Day 71 - Jenita ###
+
+Living life as a Christian is challenging. Because always seem to be in a battle between our conscience and our desires. Even though we are rooted in God's words we waver from the plan God has for us. 
+
+But nothing can stop God's protection over us. So we just need to trust in God and move forward.
+
+## March 12,2024 ##
+
+### The Plains of Moab ###
+
+[![The Plains of Moab](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day072.jpg)](https://youtu.be/86QY0R3QZ9c "The Plains of Moab")
+
+### Day 72 “Rid yourself, family, and society of sin” ###
+
+We see how faithful God is to the Israelites. We see the Lord is preventing Balaam from cursing the Israelites, he is unable to curse despite the pressure Balak put on him. The Lord has been leading the Israelites through the wilderness – feeding them and defeating many nations along the way – they are about to enter the promised land, a land flowing with milk and honey. The Israelites should be praising God and worshiping Him, however, they are doing awful things to displease the Lord. They are doing shameful things with the Moabite women. Apart from going to the neighboring town one of the sons of Israel even brought a Midianite woman – walked past weeping Moses and Levites – and defiled the inner room of the tent. This would be like performing sexual acts on the altar of a catholic church. Phinehas a priest got up and put them to death and this stopped the plague.
+
+I think the problem today is we have become comfortable with sin. We do not deal with sin as we should, we accept bad behavior and do not correct it. For example – earlier it was shameful for anyone to have sex before marriage or for anyone to live together before marriage. But today – everyone is very casual about the idea of living together before marriage just so that you can know the person and see if they are compatible. I don’t think this is working – look at the divorce rate it is through the roof.
+
+We have become cowardly – if we see our kids doing this, we are afraid to correct them lest they stop talking to us. We are answerable to God; we have failed to correct our children and grandchildren.
+
+Whoever spares the rod hates their children, but the one who loves their children is careful to discipline them. Prob 13:24
+
+Also, we tend to be timid with sin in our own lives. Sin can be imagined as a baby serpent – we should be running away from it; however, we keep it in our pocket - and bring it out every little while. One day this small serpent will become a huge anaconda and swallow us up.
+
+Be aware!! Be aware!! of sin.
+
+8 Discipline yourselves, keep alert. Like a roaring lion your adversary the devil prowls around, looking for someone to devour.1 Pet 5:8
+
+Let us first discipline ourselves, then our children/family and then the society. This will stop the plague of the culture of death.
+
+May the Holy Spirit lead us 🙏
