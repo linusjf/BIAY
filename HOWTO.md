@@ -3,7 +3,7 @@
 <!-- vim-markdown-toc GFM -->
 
 * [Prerequisites](#prerequisites)
-* [Add today's Youtube video](#add-todays-youtube-video)
+* [Add the daily Youtube video](#add-the-daily-youtube-video)
 * [Add today's sharing](#add-todays-sharing)
 * [Generate markdown for Youtube video](#generate-markdown-for-youtube-video)
 * [Merge monthly markdown files into one large README](#merge-monthly-markdown-files-into-one-large-readme)
@@ -46,27 +46,28 @@ with your own if you wish.
 Add a `compact.txt` file with the first line as `header.md` under each monthly directory.
 This ensures that the header is present for each month's markdown.
 
-## Add today's Youtube video
+## Add the daily Youtube video
 
 Execute the script `addvideo` with the following parameters:
 
 - video id - the id of the youtube video
-- day of year - 1 - 365/366
 - caption or title (in double quotes)
 
 Example:
 
 ```bash
-./addvideo 5I2BbalTOPo 10 "Hagar and Ishmael"
+./addvideo 5I2BbalTOPo "Hagar and Ishmael"
 ```
 
 Results:
 
-1. Video id is appended to the `videos.txt` file in the root directory.
-2. `Day010.md` is generated in the January subdirectory.
-3. `Day010.jpg` image is generated in the `January/jpgs` directory.
-4. `Day010.md` file name is appended to the `January/compact.txt` file.
-5. `January20XX.md` file is updated (in the root directory) with the `Day010.md` contents.
+1. The day is generated from the length of the videos.txt file. The day is the number of lines in the file + 1.
+   In this case, 10.
+2. Video id is appended to the `videos.txt` file in the root directory.
+3. `Day010.md` is generated in the January subdirectory.
+4. `Day010.jpg` image is generated in the `January/jpgs` directory.
+5. `Day010.md` file name is appended to the `January/compact.txt` file.
+6. `January20XX.md` file is updated (in the root directory) with the `Day010.md` contents.
 
 ## Add today's sharing
 

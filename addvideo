@@ -5,10 +5,10 @@ require() {
 usage() {
   echo "$0 vid doy caption"
   echo "vid - video id"
-  echo "doy - day of year"
   echo "caption - video title"
   exit 1
 }
+set -e
 require sed basename date markdown-toc
 if test $# -ne 3; then
   usage
@@ -19,9 +19,9 @@ if ! isnumeric "$2"; then
   usage
 fi
 vid="$1"
-doy="$2"
+doy=$(("$(wc -l <videos.txt)" + 1))
 videourl="https://youtu.be/${vid}"
-caption="$3"
+caption="$2"
 year="2024"
 if ./genoverlay "$vid" "$doy"; then
   md="$(./genvidthmd "$vid" "$videourl" "$caption" "$doy")"
