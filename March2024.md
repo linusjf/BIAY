@@ -39,6 +39,8 @@
   * [March 12,2024](#march-122024)
     + [The Plains of Moab](#the-plains-of-moab)
     + [Day 72 “Rid yourself, family, and society of sin”](#day-72-rid-yourself-family-and-society-of-sin)
+  * [March 13,2024](#march-132024)
+    + [Inheritance of Land](#inheritance-of-land)
 
 <!-- tocstop -->
 
@@ -373,3 +375,9 @@ Be aware!! Be aware!! of sin.
 Let us first discipline ourselves, then our children/family and then the society. This will stop the plague of the culture of death.
 
 May the Holy Spirit lead us 🙏
+
+## March 13,2024 ##
+
+### Inheritance of Land ###
+
+[![Inheritance of Land](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day073.jpg)](https://youtu.be/FTEbxtb93Nk "Inheritance of Land")
