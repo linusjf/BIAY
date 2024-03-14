@@ -45,6 +45,8 @@
   * [March 14,2024](#march-142024)
     + [Joshua Appointed](#joshua-appointed)
     + [Day 74 “Men and women are equal – both created in God’s image”](#day-74-men-and-women-are-equal-%E2%80%93-both-created-in-gods-image)
+  * [March 15,2024](#march-152024)
+    + [The Keeping of Vows](#the-keeping-of-vows)
 
 <!-- tocstop -->
 
@@ -386,7 +388,7 @@ May the Holy Spirit lead us 🙏
 
 [![Inheritance of Land](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day073.jpg)](https://youtu.be/FTEbxtb93Nk "Inheritance of Land")
 
-### Day 73 “Catholic guilt” ###
+### Day 73 “Catholic guilt”
 
 We read in today’s Psalm about the fear of the Lord.
 
@@ -412,13 +414,13 @@ In conclusion, the Catholics are very cognizant of their state of grace – thei
 
 May the Holy Spirit lead us. 🙏
 
-## March 14,2024 ##
+## March 14,2024
 
-### Joshua Appointed ###
+### Joshua Appointed
 
 [![Joshua Appointed](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day074.jpg)](https://youtu.be/E2xL_CqTPZM "Joshua Appointed")
 
-### Day 74 “Men and women are equal – both created in God’s image” ###
+### Day 74 “Men and women are equal – both created in God’s image”
 
 We see in today’s reading the daughters of Zelophehad - 5 of them came forward to demand equality for inheritance. Mahlah, Noah, Hoglah, Milcah, and Tirzah come up before Moses, Eleazar the priest, the leaders, and all the congregation, at the entrance of the tent of meeting.
 
@@ -443,3 +445,9 @@ Our God created everyone equal, men and women, black, white and brown, short, ta
 Let us stop hate or discrimination – we are called to love as God loves. Love everyone equally.
 
 May the Holy Spirit lead us. 🙏
+
+## March 15,2024 ##
+
+### The Keeping of Vows ###
+
+[![The Keeping of Vows](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day075.jpg)](https://youtu.be/mk2jOHxEPhI "The Keeping of Vows")
