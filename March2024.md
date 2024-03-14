@@ -41,6 +41,10 @@
     + [Day 72 “Rid yourself, family, and society of sin”](#day-72-rid-yourself-family-and-society-of-sin)
   * [March 13,2024](#march-132024)
     + [Inheritance of Land](#inheritance-of-land)
+    + [Day 73 “Catholic guilt”](#day-73-catholic-guilt)
+  * [March 14,2024](#march-142024)
+    + [Joshua Appointed](#joshua-appointed)
+    + [Day 74 “Men and women are equal – both created in God’s image”](#day-74-men-and-women-are-equal-%E2%80%93-both-created-in-gods-image)
 
 <!-- tocstop -->
 
@@ -376,8 +380,66 @@ Let us first discipline ourselves, then our children/family and then the society
 
 May the Holy Spirit lead us 🙏
 
-## March 13,2024 ##
+## March 13,2024
 
-### Inheritance of Land ###
+### Inheritance of Land
 
 [![Inheritance of Land](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day073.jpg)](https://youtu.be/FTEbxtb93Nk "Inheritance of Land")
+
+### Day 73 “Catholic guilt” ###
+
+We read in today’s Psalm about the fear of the Lord.
+
+“The fear of the Lord is the beginning of wisdom; all those who practice it have a good understanding.” Ps111:10
+
+The fear of the Lord is indeed the beginning of wisdom, but what is the fear of the Lord. Am I supposed to be afraid of God, or am I supposed to be afraid of His wrath? Not true, we are not called to fear God, He is a loving and caring God – a God who sent His only son to die for us, the Father who knit us together in our mother’s womb, the Lord who does not slumber but watches over us, the one who knows when we come in and go out when we sit down and raise up, even before a word is on our lips – He knows it. We cannot be afraid of God – His nature is love itself.
+
+What does the “fear of the Lord” mean – it means we should be afraid not to hurt Him who loves us much. We should be fearful to not offend Him, Him who loves us so deeply. We should be fearful to not let Him down, not to betray Him, when we have an opportunity to talk about Him.
+
+The word “Catholics guilt” gets tossed around a lot. Folks tend to say that “Catholics are not even sure of their salvation” – “That they have an over-emphasis on their sin” – and “That they are running to confession all the time” --- All of those are NOT true – absolutely not true.
+
+Catholics are very discerning and reverend people – we are not "a free for all – anything goes" type of people. We are serious about sin we define it very well, the catechism lists out all types of sin – venial and mortal, the deadly sins, the modern terms of sin (for example we have good definitions of sin like abortion, pornography, homosexuality, masturbation, rape, etc ) We are conscious of our sins, we carefully examine our hearts and go to confession. Once we make a confession – we know for a fact that our sins are forgiven – no doubt at all.
+
+“whoever's sins you forgive are forgiven them” Jh 20”23
+
+We come out rejoicing and celebrating – also heaven rejoices over one repented person than over 99 who don't need to.
+
+Usually what people are referring to when they say Catholic guilt is a heresy called “Jansenism” from the 17th and 18th centuries.
+
+Jansenism was an early modern theological movement within Catholicism, primarily active in the Kingdom of France, that emphasized original sin, human depravity, the necessity of divine grace, and predestination. It was declared a heresy by the Catholic Church.
+
+In conclusion, the Catholics are very cognizant of their state of grace – their sin, once confessed it's forgiven and it’s out of the mind and we are a celebrating, rejoicing, and happy people.
+
+May the Holy Spirit lead us. 🙏
+
+## March 14,2024 ##
+
+### Joshua Appointed ###
+
+[![Joshua Appointed](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day074.jpg)](https://youtu.be/E2xL_CqTPZM "Joshua Appointed")
+
+### Day 74 “Men and women are equal – both created in God’s image” ###
+
+We see in today’s reading the daughters of Zelophehad - 5 of them came forward to demand equality for inheritance. Mahlah, Noah, Hoglah, Milcah, and Tirzah come up before Moses, Eleazar the priest, the leaders, and all the congregation, at the entrance of the tent of meeting.
+
+What courage they must have had – to take a stand before the congregation.
+
+“Our father died in the wilderness; he was not among the company of those who gathered themselves together against the Lord in the company of Korah, but died for his own sin; and he had no sons. 4 Why should the name of our father be taken away from his clan because he had no son? Give to us a possession among our father’s brothers.” Numbers 27:3,4
+
+Moses needed to seek God’s guidance on this and sure enough the Lord said – yes Men and women are equal – the daughters should be given their due.
+
+Moses brought their case before the Lord. 6 And the Lord spoke to Moses, saying: 7 The daughters of Zelophehad are right in what they are saying; you shall indeed let them possess an inheritance among their father’s brothers and pass the inheritance of their father on to them. Numbers 27:5-8
+
+When God created man and women – He made no difference between the two. He created them both in His image.
+
+So God created humankind in his image, in the image of God he created them; male and female he created them. Gen 1:27
+
+In Jesus’ earthly life he always took up for women the widows the orphans. Many women were his followers and supporters. Two of his good friends were Mary and Martha – and their brother Lazarus. Scripture scholars believed that Lazarus was physically challenged or very sick. The Greek word "asthenes" can be translated as "sick," "without strength," "feeble" or "insignificant."
+
+Due to his condition, Lazarus was unable to care for the family and his sisters were not married because they had to care for Lazarus. Jesus loved them so dearly and cared for them – even brought back Lazarus to life.
+
+Our God created everyone equal, men and women, black, white and brown, short, tall, weak, strong, smart, simple, special, normal. Jesus loves us all the same.
+
+Let us stop hate or discrimination – we are called to love as God loves. Love everyone equally.
+
+May the Holy Spirit lead us. 🙏

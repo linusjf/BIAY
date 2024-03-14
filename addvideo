@@ -10,14 +10,11 @@ usage() {
 }
 set -e
 require sed basename date markdown-toc
-if test $# -ne 3; then
+if test $# -ne 2; then
   usage
 fi
 #shellcheck disable=SC1091
 source ./vidmd.sh
-if ! isnumeric "$2"; then
-  usage
-fi
 vid="$1"
 doy=$(("$(wc -l <videos.txt)" + 1))
 videourl="https://youtu.be/${vid}"
