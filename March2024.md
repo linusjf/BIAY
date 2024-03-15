@@ -42,11 +42,13 @@
   * [March 13,2024](#march-132024)
     + [Inheritance of Land](#inheritance-of-land)
     + [Day 73 “Catholic guilt”](#day-73-catholic-guilt)
+    + [Day 73 - Jenita](#day-73---jenita)
   * [March 14,2024](#march-142024)
     + [Joshua Appointed](#joshua-appointed)
     + [Day 74 “Men and women are equal – both created in God’s image”](#day-74-men-and-women-are-equal-%E2%80%93-both-created-in-gods-image)
   * [March 15,2024](#march-152024)
     + [The Keeping of Vows](#the-keeping-of-vows)
+    + [Day 75 “Find your rest in the Lord”](#day-75-find-your-rest-in-the-lord)
 
 <!-- tocstop -->
 
@@ -414,6 +416,14 @@ In conclusion, the Catholics are very cognizant of their state of grace – thei
 
 May the Holy Spirit lead us. 🙏
 
+### Day 73 - Jenita ###
+
+The census of the people again takes place before they enter the promised land after 40 long years. People who stayed faithful are blessed to enter the promised land. 
+
+This is a similar sign for us..
+
+As we journey through the years on earth, may we remember that this journey will lead us to our savior, our final destination only by holding on to God. Let us remain faithful through the journey so that we too will be blessed to reach our promised land
+
 ## March 14,2024
 
 ### Joshua Appointed
@@ -446,8 +456,28 @@ Let us stop hate or discrimination – we are called to love as God loves. Love 
 
 May the Holy Spirit lead us. 🙏
 
-## March 15,2024 ##
+## March 15,2024
 
-### The Keeping of Vows ###
+### The Keeping of Vows
 
 [![The Keeping of Vows](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day075.jpg)](https://youtu.be/mk2jOHxEPhI "The Keeping of Vows")
+
+### Day 75 “Find your rest in the Lord”
+
+We see the command to do no laborious work on the various feasts, the feast of the trumpets, the feast of booths, the feast of weeks… We read in the creation story that even God rested on the 7th day.
+
+When something is repeated over and over again, that means it is very important. God wants us to be very clear about finding rest on Sunday. We work a lot all week long, from office work to household chores to running errands, all of which are mostly aimed at the earthly necessities – our calendars are full of that. God does not want us to be like Robots – working 24X7. We need to stop all this craziness at least on Sunday, turn our focus from business and work and other activities to nourish our souls.
+
+Our focus on Sunday should be to go to church, not just show up – but prepare for it – study the Sunday scriptures in advance, examine our conscience may be on Saturday, and go to confession (prepare ourselves – have a day of atonement). Pick out the proper attire and keep it ready for Sunday Mass – remember it’s a wedding banquet that we are going to.
+
+Also, "rest" meant that the Israelites would just stay in their tents and be with family. We should make use of Sunday for that – just stay home and delight in the family. Talk to each other/play board games or just cook out in the backyard.
+
+In the gospel when Martha brought a complaint against Mary, Jesus said that the rest that Mary found listening to Him will not be taken away.
+
+But Martha was distracted by her many tasks; so she came to him and asked, “Lord, do you not care that my sister has left me to do all the work by myself? Tell her then to help me.” 41 But the Lord answered her, “Martha, Martha, you are worried and distracted by many things; 42 there is need of only one thing. Mary has chosen the better part, which will not be taken away from her.” Luke 10:40-42
+
+I hope we can be true to ourselves – not be distracted by many tasks but like Mary choose to sit at the feet of the Lord, as we enjoy our Sunday Mass and family time. If we pick this better part, it will not be taken away from us.
+
+28 “Come to me, all you that are weary and are carrying heavy burdens, and I will give you rest. 29 Take my yoke upon you, and learn from me; for I am gentle and humble in heart, and you will find rest for your souls. 30 For my yoke is easy, and my burden is light.” Matt 11:28-30
+
+May the Holy Spirit lead us 🙏
