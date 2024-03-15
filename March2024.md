@@ -49,6 +49,8 @@
   * [March 15,2024](#march-152024)
     + [The Keeping of Vows](#the-keeping-of-vows)
     + [Day 75 “Find your rest in the Lord”](#day-75-find-your-rest-in-the-lord)
+  * [March 16,2024](#march-162024)
+    + [War Against Midian](#war-against-midian)
 
 <!-- tocstop -->
 
@@ -416,9 +418,9 @@ In conclusion, the Catholics are very cognizant of their state of grace – thei
 
 May the Holy Spirit lead us. 🙏
 
-### Day 73 - Jenita ###
+### Day 73 - Jenita
 
-The census of the people again takes place before they enter the promised land after 40 long years. People who stayed faithful are blessed to enter the promised land. 
+The census of the people again takes place before they enter the promised land after 40 long years. People who stayed faithful are blessed to enter the promised land.
 
 This is a similar sign for us..
 
@@ -481,3 +483,9 @@ I hope we can be true to ourselves – not be distracted by many tasks but like 
 28 “Come to me, all you that are weary and are carrying heavy burdens, and I will give you rest. 29 Take my yoke upon you, and learn from me; for I am gentle and humble in heart, and you will find rest for your souls. 30 For my yoke is easy, and my burden is light.” Matt 11:28-30
 
 May the Holy Spirit lead us 🙏
+
+## March 16,2024 ##
+
+### War Against Midian ###
+
+[![War Against Midian](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day076.jpg)](https://youtu.be/lFFqQFmWLmY "War Against Midian")
