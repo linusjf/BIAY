@@ -484,8 +484,8 @@ I hope we can be true to ourselves – not be distracted by many tasks but like 
 
 May the Holy Spirit lead us 🙏
 
-## March 16,2024 ##
+## March 16,2024
 
-### War Against Midian ###
+### War Against Midian
 
 [![War Against Midian](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day076.jpg)](https://youtu.be/lFFqQFmWLmY "War Against Midian")
