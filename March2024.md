@@ -492,8 +492,8 @@ May the Holy Spirit lead us 🙏
 
 [![War Against Midian](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day076.jpg)](https://youtu.be/lFFqQFmWLmY "War Against Midian")
 
-## March 17,2024 ##
+## March 17,2024
 
-### God is Faithful ###
+### God is Faithful
 
 [![God is Faithful](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day077.jpg)](https://youtu.be/LknGGOf2Ge4 "God is Faithful")
