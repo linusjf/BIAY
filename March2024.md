@@ -51,6 +51,8 @@
     + [Day 75 “Find your rest in the Lord”](#day-75-find-your-rest-in-the-lord)
   * [March 16,2024](#march-162024)
     + [War Against Midian](#war-against-midian)
+  * [March 17,2024](#march-172024)
+    + [God is Faithful](#god-is-faithful)
 
 <!-- tocstop -->
 
@@ -489,3 +491,9 @@ May the Holy Spirit lead us 🙏
 ### War Against Midian
 
 [![War Against Midian](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day076.jpg)](https://youtu.be/lFFqQFmWLmY "War Against Midian")
+
+## March 17,2024 ##
+
+### God is Faithful ###
+
+[![God is Faithful](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day077.jpg)](https://youtu.be/LknGGOf2Ge4 "God is Faithful")
