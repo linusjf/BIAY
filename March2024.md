@@ -58,6 +58,8 @@
   * [March 18,2024](#march-182024)
     + [The Song of Moses](#the-song-of-moses)
     + [Day 78 “Listen to the right music – it impacts us” “The one who sings prays twice"](#day-78-listen-to-the-right-music-%E2%80%93-it-impacts-us-the-one-who-sings-prays-twice)
+  * [March 19,2024](#march-192024)
+    + [Psalms of Ascent](#psalms-of-ascent)
 
 <!-- tocstop -->
 
@@ -590,3 +592,9 @@ St. Augustine had this very famous saying
 “The one who sings prays twice”.
 
 May the Holy Spirit lead us. 🙏
+
+## March 19,2024 ##
+
+### Psalms of Ascent ###
+
+[![Psalms of Ascent](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day079.jpg)](https://youtu.be/VHkF-YokdRE "Psalms of Ascent")
