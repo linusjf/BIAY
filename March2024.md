@@ -51,8 +51,12 @@
     + [Day 75 “Find your rest in the Lord”](#day-75-find-your-rest-in-the-lord)
   * [March 16,2024](#march-162024)
     + [War Against Midian](#war-against-midian)
+    + [Day 76 “The freedom to choose – Choose life”](#day-76-the-freedom-to-choose-%E2%80%93-choose-life)
   * [March 17,2024](#march-172024)
     + [God is Faithful](#god-is-faithful)
+    + [Day 77 “Be strong and of good courage – the Lord goes with you, He will not fail you or forsake you”](#day-77-be-strong-and-of-good-courage-%E2%80%93-the-lord-goes-with-you-he-will-not-fail-you-or-forsake-you)
+  * [March 18,2024](#march-182024)
+    + [The Song of Moses](#the-song-of-moses)
 
 <!-- tocstop -->
 
@@ -492,8 +496,66 @@ May the Holy Spirit lead us 🙏
 
 [![War Against Midian](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day076.jpg)](https://youtu.be/lFFqQFmWLmY "War Against Midian")
 
+### Day 76 “The freedom to choose – Choose life”
+
+We read in today’s reading about choice, God gives us a choice, He could have just created us like rocks, trees, or wild animals that only have instinct. We have a rationale or reason and a choice, a choice to do good or bad to pick God or Evil.
+
+The Catechism teaches
+
+CCC 1730 God created man a rational being, conferring on him the dignity of a person who can initiate and control his own actions. "God willed that man should be 'left in the hand of his own counsel,' so that he might of his own accord seek his Creator and freely attain his full and blessed perfection by cleaving to him."26
+
+I call heaven and earth to witness against you today that I have set before you life and death, blessings and curses. Choose life so that you and your descendants may live, 20 loving the Lord your God, obeying him, and holding fast to him; for that means life to you and length of days, so that you may live in the land that the Lord swore to give to your ancestors, to Abraham, to Isaac, and to Jacob. Deuteronomy 30:19-20
+
+In today’s scripture reading, we see God laying it out very clearly – He says that we need to pick either good or bad, life or death, blessing or curses. The choices we make allow God to save us. We are saved by Jesus' sacrifice on the cross and resurrection – but we need to choose Jesus over sin. God will empower us to live a holy life and make good choices. Choices that bring blessings and a future in heaven. We need to make choices in life – choices that are pro-life and not pro-death, pro-choice at every stage from conception to natural death.
+
+Our first parents Adam and Eve had a choice – but they messed up they picked evil over good – they listened to what the devil said over what God said. Even though they messed up – God gave us many more changes – which the Israelites kept messing up. Eventually, God gave us a new Eve – Mary who said “Yes” to God, and a new Adam – Jesus who said Yes to the will of the Father.
+
+If we find ourselves in a place where we have made bad choices, let’s not fret – we need to return to God.
+
+return to the Lord your God, and you and your children obey him with all your heart and with all your soul, just as I am commanding you today, 3 then the Lord your God will restore your fortunes and have compassion on you Deut 30:2-3
+
+We need to choose God, blessings flow when we choose God.
+
+Psalm 91 starts with “He who dwells in the shelter of the Most High ” then the many blessings of protection are listed, but we need to dwell in Him first.
+
+Also, Psalm 23 starts with – “The Lord is my shepherd” We need to make the Lord our shepherd which will bring many blessings – we will not be in need, He will make us lie down in green pastures, our cup will overflow.
+
+May the Holy Spirit lead us 🙏
+
 ## March 17,2024
 
 ### God is Faithful
 
 [![God is Faithful](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day077.jpg)](https://youtu.be/LknGGOf2Ge4 "God is Faithful")
+
+### Day 77 “Be strong and of good courage – the Lord goes with you, He will not fail you or forsake you”
+
+Moses is getting up in age and it’s time for him to pass. Moses has lived a long life, a life of service – he was brought up in royalty – the Lord led him out of that comfortable life and made him the leader of the Israelites – he spent most of his life in the wilderness – the people of Israel have been revolting, complaining and falling into sin over and over again. God even tells Moses that after he dies the people are going to go back into sin and forsake the Lord. Even though the Lord will lead them into the promised land, the land flowing with milk and honey – they will despise Him even in their prosperity.
+
+For when I have brought them into the land flowing with milk and honey, which I promised on oath to their ancestors, and they have eaten their fill and grown fat, they will turn to other gods and serve them, despising me and breaking my covenant. Deut 31:20
+
+BUT – even though the people backslide and give in to their own desires – God is faithful He is fighting for them and will never ever leave them. Even though we are unfaithful, God is faithful. He will remember His covenant from generation to generation. Even though we sin He is merciful. The Psalmist proclaims this in today’s Psalm
+
+For great is his mercy towards us; and the faithfulness of the Lord endures forever. Ps 117
+
+If we examine our own lives, we see the same pattern of sin. We have complaints and grumbling when things go wrong, when we get sick or have so sufferings – we forsake the Lord. Even when we are prosperous, we forget the Lord, just like the Israelites who were given everything a land flowing with milk and honey – yet they turned to other gods and served them. So we cannot blame our circumstances or condition as we forsake the Lord when we are "in need" and when we are "full".
+
+Our God loves us despite our sinfulness and shortcomings.
+
+Indeed, rarely will anyone die for a righteous person—though perhaps for a good person someone might actually dare to die. But God proves his love for us in that while we still were sinners Christ died for us. Rom 5:7
+
+Let us not be discouraged by our sin, but encouraged by God’s mercy and faithfulness. Let's remember this famous quote from St Faustina.
+
+The greater the sinner, the greater the right he has to My mercy. - St Faustina
+
+We need to read those words that Moses used to encourage Joshua. Maybe read it a few times and be encouraged today that God is Merciful and Faithful.
+
+Be strong and of good courage, do not fear or be in dread of them: for it is the Lord your God who goes with you; he will not fail you or forsake you.” Deut 31:6
+
+May the Holy Spirit lead us. 🙏
+
+## March 18,2024
+
+### The Song of Moses
+
+[![The Song of Moses](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day078.jpg)](https://youtu.be/E1dXrYOBedk "The Song of Moses")
