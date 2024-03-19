@@ -60,6 +60,7 @@
     + [Day 78 “Listen to the right music – it impacts us” “The one who sings prays twice"](#day-78-listen-to-the-right-music-%E2%80%93-it-impacts-us-the-one-who-sings-prays-twice)
   * [March 19,2024](#march-192024)
     + [Psalms of Ascent](#psalms-of-ascent)
+    + [Day 79: “Moses’ great example to "Bless those who curse you"”](#day-79-moses-great-example-to-bless-those-who-curse-you)
 
 <!-- tocstop -->
 
@@ -593,8 +594,20 @@ St. Augustine had this very famous saying
 
 May the Holy Spirit lead us. 🙏
 
-## March 19,2024 ##
+## March 19,2024
 
-### Psalms of Ascent ###
+### Psalms of Ascent
 
 [![Psalms of Ascent](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day079.jpg)](https://youtu.be/VHkF-YokdRE "Psalms of Ascent")
+
+### Day 79: “Moses’ great example to "Bless those who curse you"”
+
+As we read the final blessing of Moses, Man-O-Man what a gem of a person Moses. The people of Israel were not “happy campers” they companied, and they accused Moses of so many things – they were afraid that the Egyptian army would kill them, complaints about lack of water, food, no meat, no garlic, fear of fighting tribes with tall people, they were a people that never headed Moses’ words(God’s instruction) and stiff-necked people.
+
+But Moses did not count all their failures and say "you cursed people, you ruined my life, I could not even see the promised land". Instead, Moses blesses them, and does not curse them. There is a lesson to learn, we are called to bless and not curse.
+
+Even if people are hard to handle and can get in our hair, we must have a heart like Moses that blesses and not curses. We need a heart of Jesus that is able to say “Father forgive them for they know not what they are doing”
+
+bless those who curse you, pray for those who abuse you. 29 To him who strikes you on the cheek, offer the other also; and from him who takes away your cloak do not withhold your coat as well. Luke 6:28-29
+
+May the Holy Spirit lead us 🙏
