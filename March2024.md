@@ -64,6 +64,7 @@
   * [March 20,2024](#march-202024)
     + [Cities of Refuge](#cities-of-refuge)
     + [Day 80 “God is watching over us – 24X7”](#day-80-god-is-watching-over-us-%E2%80%93-24x7)
+    + [Day 80 Maryanne C.M.](#day-80-maryanne-cm)
 
 <!-- tocstop -->
 
@@ -676,3 +677,16 @@ PS 121
 Congratulations on completing two books Numbers and Deuteronomy. 80 days of reading God’s word. It feels Awesome. Praise the Lord.
 
 May the Holy Spirit lead us. 🙏
+
+### Day 80 Maryanne C.M.
+
+- A Milestone Day for us who have reached the end of the First Five Books of the Bible for the First time. Praise God. 🙏
+- God's Provision for justice is seen in the Cities of Refuge.
+- God's Provision for the Girl Child is seen thru d daughters of Zelophehad.
+- These were Laws for an entire nation.
+- God Gave then these Laws B'coz He Loved them.
+- As we have journeyed with him thru the wilderness, we have learnt abt the person of Moses more closely.
+- A monumental close to Deuteronomy as Moses' Blessing, Death, n Burial is seen.
+- Numbers and Deuteronomy gave us so many facts and statistics with accurate historical details.
+- That is why, The Bible is not just a  book with stories of famous personalities but The Bible is firmly rooted in accurate details that cannot be made up by man.
+  Amen.🙏
