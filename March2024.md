@@ -61,6 +61,9 @@
   * [March 19,2024](#march-192024)
     + [Psalms of Ascent](#psalms-of-ascent)
     + [Day 79: “Moses’ great example to "Bless those who curse you"”](#day-79-moses-great-example-to-bless-those-who-curse-you)
+  * [March 20,2024](#march-202024)
+    + [Cities of Refuge](#cities-of-refuge)
+    + [Day 80 “God is watching over us – 24X7”](#day-80-god-is-watching-over-us-%E2%80%93-24x7)
 
 <!-- tocstop -->
 
@@ -611,3 +614,65 @@ Even if people are hard to handle and can get in our hair, we must have a heart 
 bless those who curse you, pray for those who abuse you. 29 To him who strikes you on the cheek, offer the other also; and from him who takes away your cloak do not withhold your coat as well. Luke 6:28-29
 
 May the Holy Spirit lead us 🙏
+
+## March 20,2024
+
+### Cities of Refuge
+
+[![Cities of Refuge](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day080.jpg)](https://youtu.be/MkrOjI8JEdk "Cities of Refuge")
+
+### Day 80 “God is watching over us – 24X7”
+
+Sometimes, we can feel that God is distant or not concerned about us. We may experience loneliness and even go into depression if we do not get the help and support, we need.
+
+Let us be reminded that God is aware of everything that is happening in our lives. The Psalm in today’s readings is a big reminder that God does not sleep nor slumber. The Lord is our keeper, He will be our shade and not let our foot be moved. Apart from protecting us physically, He will preserve our souls. He will keep us from evil from this time on and forevermore. Another Psalm that reminds us of this is "Psalm 139" – God knows when we sit down, rise up, come in, go out, He knows our times of activity and rest, even before a word is on our lips He already knows it.
+
+When it was time for the Israelites to go and worship the Lord and offer their sacrifices and tithes. They would have to go up (even if they were in the North) because they were going up to Mount Zion. Imagine going on a trek up the mountain ascending the mountain to pray. What would our attitude be?
+
+Can’t help but admire the trust the psalmist had in the Lord. The Psalmist looked up to the hills, looked up to the skies, and looked up to God. He did not look at the problems or difficulties around him, but lifted up his eyes and set his gaze on the Lord.
+
+I lift my eyes up to the hills, from where does my help come?
+
+We should fix our gaze on Jesus, we should not be overly obsessed with our own problems and issues. Because our help comes from the Lord. And as we look up let us remember that God is always lovingly looking at us. He cares for us.
+
+Let us just read today’s Psalm and pray it again. In fact, we should pray it every day, it will remind us that God is watching over us.
+
+I lift up my eyes to the hills—
+
+from where will my help come?
+
+2 My help comes from the Lord,
+
+who made heaven and earth.
+
+3 He will not let your foot be moved;
+
+he who keeps you will not slumber.
+
+4 He who keeps Israel
+
+will neither slumber nor sleep.
+
+5 The Lord is your keeper;
+
+the Lord is your shade at your right hand.
+
+6 The sun shall not strike you by day,
+
+nor the moon by night.
+
+7 The Lord will keep you from all evil;
+
+he will keep your life.
+
+8 The Lord will keep
+
+your going out and your coming in
+
+from this time on and forevermore.
+
+PS 121
+
+Congratulations on completing two books Numbers and Deuteronomy. 80 days of reading God’s word. It feels Awesome. Praise the Lord.
+
+May the Holy Spirit lead us. 🙏
