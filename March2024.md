@@ -65,6 +65,9 @@
     + [Cities of Refuge](#cities-of-refuge)
     + [Day 80 “God is watching over us – 24X7”](#day-80-god-is-watching-over-us-%E2%80%93-24x7)
     + [Day 80 Maryanne C.M.](#day-80-maryanne-cm)
+  * [March 21,2024](#march-212024)
+    + [Israel Crosses the Jordan](#israel-crosses-the-jordan)
+    + [Day 81 “Stack up stones of good memories, remember what the Lord has done”](#day-81-stack-up-stones-of-good-memories-remember-what-the-lord-has-done)
 
 <!-- tocstop -->
 
@@ -690,3 +693,21 @@ May the Holy Spirit lead us. 🙏
 - Numbers and Deuteronomy gave us so many facts and statistics with accurate historical details.
 - That is why, The Bible is not just a  book with stories of famous personalities but The Bible is firmly rooted in accurate details that cannot be made up by man.
   Amen.🙏
+
+## March 21,2024
+
+### Israel Crosses the Jordan
+
+[![Israel Crosses the Jordan](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day081.jpg)](https://youtu.be/6e_ec2fwcPA "Israel Crosses the Jordan")
+
+### Day 81 “Stack up stones of good memories, remember what the Lord has done”
+
+Human tendency is to forget, forget the good things that have been done to us. One usually clings to negative things or experiences. The people of Israel started their journey with the parting of the Red Sea – it was a great miracle and one to be remembered forever. However, the people forgot it too soon, they kept doubting the Lord and complaining from time to time. Now the Lord our faithful God has journeyed with them, guiding them by smoke and fire every step of the way. The Lord also prepared their hearts to enter the promised land, they were given the 10 commandments and detailed instructions on moral law, details about worship. They are ready to enter the promised land – a land flowing with milk and honey.
+
+The desert wanderings started with the parting of the read sea and ends with the parting of the Jordan – as soon as the feet of those carrying the Tabernacle entered the Jordan the river stopped flowing (again this should not be assumed as low tide/water – there is a mention that the Jordan usually overflowed its banks) - the Lord commanded each tribe to pick one stone from the dept of the banks of the river Jordan – to remind them that the Lord did dry up the Jordan. This would be a memory for generations to come so that the Israelites would remember the faithfulness of the Lord. Just as each tribe picked up one stone from the depts of the Jordan, we need to pick up something when we are going through the depts/difficult times(sickness, job loss, losing a loved one, etc) – to remember that the Lord has brought us through it.
+
+We need to have some way to remember the good things the Lord has done for us. Just as we pick up souvenirs when we visit a new place. A prayer journal is a good idea, highlighting your bible, writing up reflections. I have all my reflections from day 1 till now stored in a file, I plan to read them as I go through the BIAY again maybe in 2024, (if Ascension does the catechism in a year in 2023)
+
+We need to memorize the word of God as well, as the Lord commanded to write them on the doorposts and on your garments. We need to read and re-read the living word of God until it is written on our hearts.
+
+May the Holy Spirit lead us. 🙏
