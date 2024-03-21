@@ -68,6 +68,7 @@
   * [March 21,2024](#march-212024)
     + [Israel Crosses the Jordan](#israel-crosses-the-jordan)
     + [Day 81 “Stack up stones of good memories, remember what the Lord has done”](#day-81-stack-up-stones-of-good-memories-remember-what-the-lord-has-done)
+    + [Day 81 Maryanne C.M.](#day-81-maryanne-cm)
 
 <!-- tocstop -->
 
@@ -711,3 +712,10 @@ We need to have some way to remember the good things the Lord has done for us. J
 We need to memorize the word of God as well, as the Lord commanded to write them on the doorposts and on your garments. We need to read and re-read the living word of God until it is written on our hearts.
 
 May the Holy Spirit lead us. 🙏
+
+### Day 81 Maryanne C.M.
+
+- A new Beginning,  A New Leader, Another Crossing over the River. Praise God.
+- Joshua 1:9 is a Command not an option: " I hereby command you:Be strong and courageous, do not be frightened or dismayed, for the LORD your God is with you wherever you go."
+- Praise God, He goes with us therefore we must be Strong and Courageous!
+  Amen.🙏
