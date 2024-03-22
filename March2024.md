@@ -69,6 +69,10 @@
     + [Israel Crosses the Jordan](#israel-crosses-the-jordan)
     + [Day 81 “Stack up stones of good memories, remember what the Lord has done”](#day-81-stack-up-stones-of-good-memories-remember-what-the-lord-has-done)
     + [Day 81 Maryanne C.M.](#day-81-maryanne-cm)
+    + [Day 81 - Jenita](#day-81----jenita)
+    + [Day 81 - Gabriella](#day-81---gabriella)
+  * [March 22,2024](#march-222024)
+    + [The Valley of Achor](#the-valley-of-achor)
 
 <!-- tocstop -->
 
@@ -719,3 +723,41 @@ May the Holy Spirit lead us. 🙏
 - Joshua 1:9 is a Command not an option: " I hereby command you:Be strong and courageous, do not be frightened or dismayed, for the LORD your God is with you wherever you go."
 - Praise God, He goes with us therefore we must be Strong and Courageous!
   Amen.🙏
+
+### Day 81 -  Jenita
+
+🎶"God will make a way, where there seems to be no way"🎶
+
+This song certainly rings a jingle in my head, as it very much speaks of how God does the unimaginable to make us move forward in this journey of life.
+
+Whatever maybe our situation, whatever be our position in life.. We must remember that we serve a faithful God who does marvelous miracles which cannot be explained by human intelligence. We serve a God will will move mountains and part seas and rivers just so we can go into green pastures.
+
+We only need to pick up stones of his wonderful deeds for us as a remembrance of his faithfulness, so that when we in testing times we may look at these rocks(miracles) and know that we are not alone and that there is hope.
+
+He will never leave us nor forsake us! !!
+
+What a mighty God we serve
+
+### Day 81 - Gabriella
+
+Commenting on *Jenita’s* note above, I totally agree with her heartfelt reflection.
+
+_We only need to pick up stones of his wonderful deeds for us as a remembrance of his faithfulness, so that when we are in testing times we may look at these rocks (miracles) and know that we are not alone and that there is hope._
+
+These words reminded me of our Lord’s
+🌹Blessed Mother, Our Lady Undoer of Knots Novena, meditation part for day 4 as it reads:
+
+*O Mother, ask Jesus to heal my paralytic faith which gets down hearted with the stones on the road.*
+
+\*Along with you, dearest Mother, may I see these stones as friends. Not murmuring against them anymore but giving endless thanks for them, may I smile trustingly in your power.\*  \_*Mary, Undoer of Knots, pray for me. Mary is the Sun and no one is deprived of her warmth.*\_
+
+Praise God for His steadfast love and mercy through Her endless intercession!
+
+*Deuteronomy 31:8*
+“The LORD himself goes before you and will be with you; he will never leave you nor forsake you. Do not be afraid; do not be discouraged.”
+
+## March 22,2024
+
+### The Valley of Achor
+
+[![The Valley of Achor](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day082.jpg)](https://youtu.be/D-UdZ6xWcWw "The Valley of Achor")
