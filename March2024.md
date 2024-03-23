@@ -73,6 +73,8 @@
     + [Day 81 - Gabriella](#day-81---gabriella)
   * [March 22,2024](#march-222024)
     + [The Valley of Achor](#the-valley-of-achor)
+  * [March 23,2024](#march-232024)
+    + [The Gibeonite Trickery](#the-gibeonite-trickery)
 
 <!-- tocstop -->
 
@@ -761,3 +763,9 @@ Praise God for His steadfast love and mercy through Her endless intercession!
 ### The Valley of Achor
 
 [![The Valley of Achor](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day082.jpg)](https://youtu.be/D-UdZ6xWcWw "The Valley of Achor")
+
+## March 23,2024 ##
+
+### The Gibeonite Trickery ###
+
+[![The Gibeonite Trickery](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day083.jpg)](https://youtu.be/UM8fMnMckKM "The Gibeonite Trickery")
