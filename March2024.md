@@ -73,8 +73,10 @@
     + [Day 81 - Gabriella](#day-81---gabriella)
   * [March 22,2024](#march-222024)
     + [The Valley of Achor](#the-valley-of-achor)
+    + [Day 82 Holding on to sin](#day-82-holding-on-to-sin)
   * [March 23,2024](#march-232024)
     + [The Gibeonite Trickery](#the-gibeonite-trickery)
+    + [Day 83 Strategy and deception](#day-83-strategy-and-deception)
 
 <!-- tocstop -->
 
@@ -764,8 +766,38 @@ Praise God for His steadfast love and mercy through Her endless intercession!
 
 [![The Valley of Achor](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day082.jpg)](https://youtu.be/D-UdZ6xWcWw "The Valley of Achor")
 
-## March 23,2024 ##
+### Day 82 Holding on to sin
 
-### The Gibeonite Trickery ###
+We are all aware of the fall of Jericho, the great and fortified city that was standing in the way of the Israelites entering the promised land. An angel with a drawn sword appeared to Joshua and said the same thing that was said to Moses at the start of Moses Exodus – “Put off the shoes from your feet; for the place where you stand is holy”. Joshua like Moses in the burning bush experienced a closeness to the Lord, something that would help them lead the people confidently.
+
+The Lord gave Joshua special instructions to march around the city with the ark of the covenant for 7 days with trumpet blasts and on day 7 the walls of Jericho would fall. I guess we do similar prayers when we take the Eucharistic Lord in processions around the neighborhood.
+
+The Lord instructed the Israelites not to take anything from the land that they conquered, lest these things defile them. However, Achan was lured into collecting some of the spoils. Because of his sin, the Lord was not with Israel when they attempted to capture this tiny hill city of Ai. The sin of Achan caused 36 good Israelites to be slain by the Ai. Even after seeing this Achan did not come forth, his sin had to be revealed by the Lord. That is when they had to stone Achan in the valley of Achor (trouble/sadness/destruction/shame), let us be reminded that it is our own sin that brings destruction, God does not want to see us get hurt or lose our soul.
+
+Let us take a life lesson from this, we should not hold on to certain sins. One usually tends to hold onto a few favorite sins, the ones we really enjoy. Let us pray for the strength to let go of the things of the world, lest we lose our souls.
+
+May the Holy Spirit lead us. 🙏
+
+## March 23,2024
+
+### The Gibeonite Trickery
 
 [![The Gibeonite Trickery](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day083.jpg)](https://youtu.be/UM8fMnMckKM "The Gibeonite Trickery")
+
+### Day 83 Strategy and deception
+
+We see how Joshua was instructed to use a Military ambush strategy to conquer Ai. Just yesterday we read how Ai defeated the Israelites because the Lord was not with them. The Lord can use our mistakes and write straight with crooked lines, the Lord asked Joshua to set ambush soldiers and then flee as they did the previous time, once the Ai men started following the fleeing Israelites the Ambush soldiers would go in and set the city on fire. The Lord used the mistakes of the Israelites to bring victory. We also read of the hasty decision that the Israelites made towards making a covenant with the Gibeonites, the Gibeonites deceived the Israelites pretending to have come from far away. However, the Lord blesses this decision and graphs the Gibeonites into the Israelites. We will see how the Gibeonites will bear very useful people in the future.
+
+In our lives we may have made wrong decisions may be married the wrong person, took up the wrong job, wasted out family inheritance, did bad things when we were young – like drugs/alcohol/guns, maybe even have a criminal record. Let us not be disheartened but entrust everything to the Lord for our God can use our scares to bring healing to the nations.
+
+All things work together for good to them that love God, to them who are the called according to his purpose: Romans 8:28
+
+Also, we need to have a strategy to defeat our enemies, our enemy is sin and the devil. We need to learn how to avoid sin, for example – if you struggle with sins of gossip, then give yourself a time limit when you talk about others or choose to never name people – use words like us instead of him/her.
+
+If you struggle with lust, then ensure you are never along with your devices.
+
+If you struggle with anger, then have a strategy to never speak until you calm down.
+
+Come up with a strategy to fight and burn up sin in our lives.
+
+May the Holy Spirit lead us. 🙏
