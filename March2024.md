@@ -77,6 +77,9 @@
   * [March 23,2024](#march-232024)
     + [The Gibeonite Trickery](#the-gibeonite-trickery)
     + [Day 83 Strategy and deception](#day-83-strategy-and-deception)
+  * [March 24,2024](#march-242024)
+    + [The Sun Stands Still](#the-sun-stands-still)
+    + [Day 84 Nature obeys God](#day-84-nature-obeys-god)
 
 <!-- tocstop -->
 
@@ -799,5 +802,35 @@ If you struggle with lust, then ensure you are never along with your devices.
 If you struggle with anger, then have a strategy to never speak until you calm down.
 
 Come up with a strategy to fight and burn up sin in our lives.
+
+May the Holy Spirit lead us. 🙏
+
+## March 24,2024
+
+### The Sun Stands Still
+
+[![The Sun Stands Still](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day084.jpg)](https://youtu.be/8f0RhYsVK_g "The Sun Stands Still")
+
+### Day 84 Nature obeys God
+
+God is the creator of everything and everything is in place just by His will. If God wills the sun to stop shining, it will. We see in today’s reading how the surrounding Kings are plotting to join forces and kill the Israelites. However they do not know that they are actually fighting against God, we read that there were more men slain by Hailstones as compared to by the sword.
+
+the Lord threw down huge stones from heaven on them as far as Azekah, and they died; there were more who died because of the hailstones than the Israelites killed with the sword. Josh 10:11
+
+The Lord was fighting for them, they won not by the power of their army, but by the mighty hand of the Lord. The Lord made the sun stand still until the Israelites won.
+
+There are many examples even in our modern times where we see nature obey God’s people. For example, the spinning of the sun at Fathima.
+
+The Miracle of the Sun (Portuguese: Milagre do Sol), also known as the Miracle of Fátima, is a series of events reported to have occurred miraculously on 13 October 1917, attended by a large crowd who had gathered in Fátima, Portugal, in response to a prophecy made by three shepherd children, Lúcia Santos and Francisco and Jacinta Marto. The prophecy was that the Virgin Mary (referred to as Our Lady of Fátima), would appear and perform miracles on that date. Newspapers published testimony from witnesses who said that they had seen extraordinary solar activity, such as the Sun appearing to "dance" or zig-zag in the sky, careen towards the Earth, or emit multicolored light and radiant colors. According to these reports, the event lasted approximately ten minutes.
+
+Also, St Thomas Apostle of India did some great miracles – to convert the Hindu's who believed nature was God.
+
+According to tradition, St. Thomas made his first conversions by a miracle. At the village of Palur, he found some Brahman priests throwing handfuls of water into the air as they performed their purification prayers. Thomas threw some water into the air himself, and it hung suspended in the form of sparkling flowers. Tradition continues that most of the Brahmans embraced Christianity on the spot, and that the rest fled
+
+Speaking about nature gods, the native Americans in Mexico and around worshiped Aztec gods of the sun and the moon, when I visited Mexico City I went to the huge pyramids of the sun and the moon gods. That’s when the Miraculous picture of our lady was given to the people, Our Lady of Guadalupe has the moon under her feet and the sun behind her, she has stars in her mantle – however, her eyes were looking downwards in humility depicting that she is not God. This image was not painted -it supernaturally appeared when the peasant Juan Diego – tried to show the flowers he collected on the hill to the Bishop, there was a bright light and the painting appeared.
+
+There are so many mysterious attributes to the image – it never faded after centuries – even though it was on a poor-quality peasants cloak, the painting technique understood, there was a bomb blast next to it but it wasn’t destroyed, the eyes have exact imagery that is seen in a natural eye – with actual people seen in the retina.
+
+This image converted millions of people to the faith.
 
 May the Holy Spirit lead us. 🙏
