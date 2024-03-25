@@ -80,6 +80,8 @@
   * [March 24,2024](#march-242024)
     + [The Sun Stands Still](#the-sun-stands-still)
     + [Day 84 Nature obeys God](#day-84-nature-obeys-god)
+  * [March 25,2024](#march-252024)
+    + [Fighting for Each Other](#fighting-for-each-other)
 
 <!-- tocstop -->
 
@@ -834,3 +836,9 @@ There are so many mysterious attributes to the image – it never faded after ce
 This image converted millions of people to the faith.
 
 May the Holy Spirit lead us. 🙏
+
+## March 25,2024 ##
+
+### Fighting for Each Other ###
+
+[![Fighting for Each Other](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day085.jpg)](https://youtu.be/NO5cp8Podbk "Fighting for Each Other")
