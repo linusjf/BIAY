@@ -82,6 +82,9 @@
     + [Day 84 Nature obeys God](#day-84-nature-obeys-god)
   * [March 25,2024](#march-252024)
     + [Fighting for Each Other](#fighting-for-each-other)
+    + [Day 85: Equality](#day-85-equality)
+  * [March 26,2024](#march-262024)
+    + [The Real Presence of God](#the-real-presence-of-god)
 
 <!-- tocstop -->
 
@@ -837,8 +840,30 @@ This image converted millions of people to the faith.
 
 May the Holy Spirit lead us. 🙏
 
-## March 25,2024 ##
+## March 25,2024
 
-### Fighting for Each Other ###
+### Fighting for Each Other
 
 [![Fighting for Each Other](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day085.jpg)](https://youtu.be/NO5cp8Podbk "Fighting for Each Other")
+
+### Day 85: Equality
+
+We see how just the Lord is in the allocation of the lands to the tribes of Israel. The smaller tribes are given smaller lands and bigger tribes larger lands. When God created Adam and Eve, he created them equal – in His own image. However due to the hardness of heart and greed the human race has become very selfish and corrupt. The heart of God is generous, however, the human hearts are growing selfish by the day. People are overly-focused on their own needs and are becoming very self-centered to the extent of neglecting the poor, weak, marginalized. Every nation wants to be a superpower, every corporation wants to become the leader and every human being wants to be boss.
+
+We need to realize that we are trying to fill our lives with a lot of stuff, a lot of money, things, people, pleasure, luxury.
+
+Whoever loves money never has enough; whoever loves wealth is never satisfied with their income. Ecclesiastes 5:10
+
+Noting will satisfy us like God, we will be ever hungry and thirsty until we find our rest in the Lord.
+
+Saint Augustine states “You have made us for yourself, O Lord, and our heart is restless until it rests in you.”
+
+Let us try to have a heart like God’s heart, let us look at everyone with equality and treat everyone as though they are a child of God. Let money, color, religion, ethnicity, social status, fame, spirituality never come in the way we look at our neighbor.
+
+May the Holy Spirit lead us 🙏
+
+## March 26,2024
+
+### The Real Presence of God
+
+[![The Real Presence of God](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day086.jpg)](https://youtu.be/dn7ZZDtoy3w "The Real Presence of God")
