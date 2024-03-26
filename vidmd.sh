@@ -1,5 +1,4 @@
 #!/usr/bin/env bash
-
 ######################################################################
 # @author      : Linus Fernandes (linusfernandes at gmail dot com)
 # @file        : vidmd
@@ -38,6 +37,7 @@ playiconurl() {
 }
 
 thumbnailurl() {
+  hash curl || exit
   urls=("https://img.youtube.com/vi/${1}/maxresdefault.jpg"
     "https://img.youtube.com/vi/${1}/hqdefault.jpg"
     "https://img.youtube.com/vi/${1}/hq1.jpg"
@@ -67,8 +67,8 @@ thumbnailurl() {
 }
 
 downloadthumbnail() {
-  url="$(thumbnailurl "$1")"
   hash curl || exit
+  url="$(thumbnailurl "$1")"
   curl --silent "$url" --output "$2"
 }
 

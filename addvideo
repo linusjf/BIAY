@@ -13,6 +13,11 @@ require sed basename date markdown-toc
 if test $# -ne 2; then
   usage
 fi
+
+#shellcheck disable=SC1091
+source ./internet.sh
+checkinternet || exit
+
 #shellcheck disable=SC1091
 source ./vidmd.sh
 vid="$1"
