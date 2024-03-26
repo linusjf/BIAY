@@ -8,7 +8,12 @@
 # @description :
 ######################################################################
 checkinternet() {
-  hash cat || exit
-  cat </dev/null >/dev/tcp/8.8.8.8/53
-  return $?
+  hash telnet || exit
+  telnet 8.8.8.8 53 &>/dev/null
+  if test $? -eq 0; then
+    exit 0
+  else
+    echo "Check your internet connection..."
+    exit 1
+  fi
 }
