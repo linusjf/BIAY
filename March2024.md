@@ -85,6 +85,7 @@
     + [Day 85: Equality](#day-85-equality)
   * [March 26,2024](#march-262024)
     + [The Real Presence of God](#the-real-presence-of-god)
+    + [Day 86 Hidden treasures in Challenges](#day-86-hidden-treasures-in-challenges)
 
 <!-- tocstop -->
 
@@ -867,3 +868,27 @@ May the Holy Spirit lead us 🙏
 ### The Real Presence of God
 
 [![The Real Presence of God](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day086.jpg)](https://youtu.be/dn7ZZDtoy3w "The Real Presence of God")
+
+### Day 86 Hidden treasures in Challenges
+
+We read that the tribe of Joseph was given only one portion even though they were a tribe with numerous people. The Tribe brought this up with Joshua, they felt that there were not treated with justice because all the other tribes were given an inheritance according to their size.
+
+But the Lord through Joshua has better plans – something that the tribe of Joseph did not see.
+
+The portion that was given to them was next to the forest, Joshua told them that once they cleared the forest they will have a really huge portion. Also, the Lord had given them a lot of strong people who could do just that.
+
+Sometimes we feel that God has not given us what we deserve, that we are given a smaller portion as compared to others or that we are given an oversized cross to carry.
+
+Let us not feel discouraged but let us pray that God shows us what is in store for us.
+
+What if the sufferings are actually a blessing, what if the cross is our path to redemption, what if the sickness is actually what keeps us close to the Lord, and what if the sin is what keeps us humble.
+
+This song drives the point home.
+
+[![Amy Grant - Better than a Hallelujah](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/hallelujah.jpg)](https://youtu.be/Rm5kx3xqmg0 "Amy Grant - Better than a Hallelujah")
+
+This is the Map that Fr was referring to.
+
+![Tribal Allotment of Israel](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/tribalallotmentisrael.jpg)
+
+May the Holy Spirit lead us. 🙏
