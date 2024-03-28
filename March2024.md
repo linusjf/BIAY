@@ -90,6 +90,9 @@
     + [God Keeps His Promises](#god-keeps-his-promises)
     + [Day 87 The City of Refuge, the slap that was heard around the world and Ukraine - Michael Eltham](#day-87-the-city-of-refuge-the-slap-that-was-heard-around-the-world-and-ukraine---michael-eltham)
     + [DAY 87](#day-87)
+  * [March 28,2024](#march-282024)
+    + [Joshua's Last Words to Israel](#joshuas-last-words-to-israel)
+    + [Day 88 “As for me and my house, we will serve the Lord”](#day-88-as-for-me-and-my-house-we-will-serve-the-lord)
 
 <!-- tocstop -->
 
@@ -919,3 +922,26 @@ The practice of taking one's life was a long feud to settle, hence asylum were e
 Besides the Levites, priests were given free allotments of land as they were to teach God's Law to the people.
 God fulfilled the promised to the lsraelites even in the midst of hardship and sufferings.
 Hence the Psalm brings calmness and hope. When a soul with gratitude asks for forgiveness and deliverance, God forgives and gives confidence to those who wait confidently and expectantly for Him.
+
+## March 28,2024
+
+### Joshua's Last Words to Israel
+
+[![Joshua's Last Words to Israel](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day088.jpg)](https://youtu.be/1-MxicO_rxY "Joshua's Last Words to Israel")
+
+### Day 88 “As for me and my house, we will serve the Lord”
+
+Joshua served the Lord well when his time to pass came – he summoned all the leaders of Israel. Joshua was the one who helped them cross over into the Promised land, he was instrumental in allotting the land to each tribe. Joshua leaves them with a decision, a decision that each one of us has to make as well. Choose this day whom you will serve, will you serve the Lord or will you serve other gods.
+
+We usually procrastinate over matters of spirituality. Most people don’t think twice to book a vacation getaway, buy a new phone, or trade in their car for a new one. However, it will take forever to go to confession or on a retreat. Let the words of Joshua disturb you today.
+
+"Choose this day whom you will serve"
+
+Today is the day, you have to decide if you will serve the Lord or your own desires. Let us not put off matters of faith, let us get with our bibles and catch on our BIAY journey, make that appointment for confession, book that spiritual retreat, or make peace and mend the broken relationships.
+
+Today is the day, now is the time.
+
+“Awake, O sleeper, and arise from the dead,
+and Christ shall give you light.” Ep 5:14
+
+May the Holy Spirit lead us. 🙏
