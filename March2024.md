@@ -93,6 +93,9 @@
   * [March 28,2024](#march-282024)
     + [Joshua's Last Words to Israel](#joshuas-last-words-to-israel)
     + [Day 88 “As for me and my house, we will serve the Lord”](#day-88-as-for-me-and-my-house-we-will-serve-the-lord)
+  * [March 29,2024](#march-292024)
+    + [Israel's Cycle of Disobedience](#israels-cycle-of-disobedience)
+    + [Day 89 Israel’s cycle of Disobedience](#day-89-israels-cycle-of-disobedience)
 
 <!-- tocstop -->
 
@@ -945,3 +948,29 @@ Today is the day, now is the time.
 and Christ shall give you light.” Ep 5:14
 
 May the Holy Spirit lead us. 🙏
+
+## March 29,2024
+
+### Israel's Cycle of Disobedience
+
+[![Israel's Cycle of Disobedience](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day089.jpg)](https://youtu.be/Rb2MsstSMO4 "Israel's Cycle of Disobedience")
+
+### Day 89 Israel’s cycle of Disobedience
+
+If you give a pig a nice bath it would almost immediately go back to the slush and dirt. The Israelites seem to be going through a similar situation – they seem to be getting better with each new Judge but go back to their sin as soon as the judge dies.
+
+The root cause for this recurring failure was disobedience, the Lord gave them clear instruction to drive out the inhabitants of the promised land. However, the Israelites kept them to do bonded labor and even intermarried.  They disobeyed God’s clear instruction, not to have a covenant with those people.
+
+This disobedience cost the Israelites God’s favor, earlier the Lord had won victories for them, and now the Lord is not going forward with them in their battles.
+
+We can learn something from this, we sometimes want to hold on to some pet sins of ours from the past. We want the goodness of the Lord, and we also want the pleasures of the world. We have divided hearts, we are neither hot nor cold. We want to mix and match – we want to be blessed with everything and yet don’t want to pray. We want to be seen as good people and yet do not do kind things. We want to go to heaven, yet do not want to be holy. We want to be forgiven, yet do not forgive.
+
+We got to be careful here, we need to break the cycle of Disobedience. The Lord has been patient with us and is slow to anger, we are given time to repent and mend our ways. Let us heed his calling least he spits up out of His mouth.
+
+I know your deeds, that you are neither cold nor hot. I wish you were either one or the other! So, because you are lukewarm—neither hot nor cold—I am about to spit you out of my mouth. Rev 3:15-16
+
+St Paul urges us to put off all the old habits and ways of life and to put on our new self, the new person who is renewed and striving to be holy, avoiding any pitfalls or staying in the state of grace and frequenting the sacraments.
+
+You were taught, with regard to your former way of life, to put off your old self, which is being corrupted by its deceitful desires; 23 to be made new in the attitude of your minds; 24 and to put on the new self, created to be like God in true righteousness and holiness. Ep 4:22-24
+
+May the Holy Spirit lead us 🙏
