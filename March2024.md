@@ -96,6 +96,8 @@
   * [March 29,2024](#march-292024)
     + [Israel's Cycle of Disobedience](#israels-cycle-of-disobedience)
     + [Day 89 Israel’s cycle of Disobedience](#day-89-israels-cycle-of-disobedience)
+  * [March 30,2024](#march-302024)
+    + [Ruth and Boaz](#ruth-and-boaz)
 
 <!-- tocstop -->
 
@@ -974,3 +976,11 @@ St Paul urges us to put off all the old habits and ways of life and to put on ou
 You were taught, with regard to your former way of life, to put off your old self, which is being corrupted by its deceitful desires; 23 to be made new in the attitude of your minds; 24 and to put on the new self, created to be like God in true righteousness and holiness. Ep 4:22-24
 
 May the Holy Spirit lead us 🙏
+
+## March 30,2024
+
+### Ruth and Boaz
+
+[![Ruth and Boaz](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day090.jpg)](https://youtu.be/1bcri3WzaxM "Ruth and Boaz")
+
+Fr. Mike highlights the life of Ruth, and what seems to be the first day of hope she's had in a long time. Sometimes it takes a long time to catch a glimmer of hope in the darkness of our lives, but Ruth reminds us that no matter what we've been through, God is always with us. Today's readings are Judges 4-5, Ruth 2, and Psalm 134.
