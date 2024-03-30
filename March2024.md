@@ -98,6 +98,7 @@
     + [Day 89 Israel’s cycle of Disobedience](#day-89-israels-cycle-of-disobedience)
   * [March 30,2024](#march-302024)
     + [Ruth and Boaz](#ruth-and-boaz)
+    + [Day 90 *Kindness - Boaz and Ruth - Women-O-Women*](#day-90-kindness---boaz-and-ruth---women-o-women)
 
 <!-- tocstop -->
 
@@ -984,3 +985,23 @@ May the Holy Spirit lead us 🙏
 [![Ruth and Boaz](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day090.jpg)](https://youtu.be/1bcri3WzaxM "Ruth and Boaz")
 
 Fr. Mike highlights the life of Ruth, and what seems to be the first day of hope she's had in a long time. Sometimes it takes a long time to catch a glimmer of hope in the darkness of our lives, but Ruth reminds us that no matter what we've been through, God is always with us. Today's readings are Judges 4-5, Ruth 2, and Psalm 134.
+
+### Day 90 *Kindness - Boaz and Ruth - Women-O-Women*
+
+We see kindness on display as we read about Boaz and Ruth. I think Fr Mike should say Women-O-Women instead of Man-O-Man, Ruth is such a good example to all the young girls in the world today. Ruth’s husband dies young and Ruth has a choice to find another husband/go back to her mother’s house or stay with her mother-in-law. Most of us would have done what Ruth’s sister-in-law did – leave the mother-in-law and find go our own way. Ruth decides to stay with the Mother-in-Law Naomi and embrace her God and her people. I’m sure God was waiting for a day to bless Ruth, God causes Boaz to notice this poor young lady picking grain from the left-over harvest from the first in the ground.
+
+Boaz can be a good example to all employers and team leads/managers – instead of chasing her away -he shows her kindness.
+
+Kindness is a fruit of the Holy Spirit.
+
+But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control Gal 5:22,23
+
+One good way to self-examine is to check our thoughts and actions and see how kind we actually are.
+
+Kindness is defined as ‘the quality of being friendly, generous, and considerate.’ – let us try to be more friendly, generous, and considerate of others, letting go of hurts, walking the extra mile, giving our coat to those who ask for our shirt, turning the other cheek to those who slap us/humiliate us.
+
+The bible time and again calls us to be kind to each other.
+
+“Be kind to one another, tenderhearted, forgiving one another, as God in Christ forgave you.” Ep 4:32
+
+May the Holy Spirit lead us 🙏
