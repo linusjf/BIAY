@@ -99,6 +99,8 @@
   * [March 30,2024](#march-302024)
     + [Ruth and Boaz](#ruth-and-boaz)
     + [Day 90 *Kindness - Boaz and Ruth - Women-O-Women*](#day-90-kindness---boaz-and-ruth---women-o-women)
+  * [March 31,2024](#march-312024)
+    + [Gideon's Story](#gideons-story)
 
 <!-- tocstop -->
 
@@ -1005,3 +1007,9 @@ The bible time and again calls us to be kind to each other.
 “Be kind to one another, tenderhearted, forgiving one another, as God in Christ forgave you.” Ep 4:32
 
 May the Holy Spirit lead us 🙏
+
+## March 31,2024
+
+### Gideon's Story
+
+[![Gideon's Story](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day091.jpg)](https://youtu.be/RSnBpMdFtj4 "Gideon's Story")
