@@ -7,6 +7,9 @@
   * [April 02,2024](#april-022024)
     + [Strengths and Weaknesses](#strengths-and-weaknesses)
     + [Day 93: Childless couples and IVF](#day-93-childless-couples-and-ivf)
+  * [April 03,2024](#april-032024)
+    + [Samson and Delilah](#samson-and-delilah)
+    + [Day94 Samson is ruled by his desires – Lust is blinding](#day94-samson-is-ruled-by-his-desires-%E2%80%93-lust-is-blinding)
 
 <!-- tocstop -->
 
@@ -63,5 +66,33 @@ IVF can be a sensitive topic and I am not an expert on the church’s teachings,
 “I respect your opinion if it differs“
 
 God should always be at the center of marriage, and we should be open to life and aware of His presence during the marital act. If you are a couple considering IVF, I would like you to prayerfully consider other options of adopting a deserving child or waiting on the Lord for a child, or dedicating your life more to God’s service.
+
+May the Holy Spirit lead us. 🙏
+
+## April 03,2024
+
+### Samson and Delilah
+
+[![Samson and Delilah](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day094.jpg)](https://youtu.be/-2XUUC1_Krk "Samson and Delilah")
+
+### Day94 Samson is ruled by his desires – Lust is blinding
+
+The most famous judge - Samson was blessed with great strength – he slew a thousand Philistines with the jawbone of a donkey. Although he had great physical strength, he had a great weakness his lust – we can read how Samson was time and again going after non-Israeli women and harlots.
+
+Samson is enslaved by his lust for the Harlot Delilah. The Philistines were willing to pay a lot of money to Delilah, to entice Samson and find out where his strength lies. I cannot believe how Samson kept trusting Delilah even though she tried to have him killed 3 times. However, her nagging got to him – Samson wanted to go back to her every day, and her words “that he didn’t love her” got to him and he reveals the secret about his strength in the Nazirite vow – where he does not shave his head. She let him down again by shaving his head, they captured and gouged out his eyes, and threw him in prison. It seems like a no-brainer, one would ask, couldn’t Samson a great judge appointed by God not see the trick of Delilah. He could not he was blinded by lust, which lead him to be permanently blind -as his eyes were gorged out.
+
+Maybe it was better for him because he called out to God and God’s spirit returned to him. He was able to kill more Philistines by pulling down the pillars.
+
+Even Jesus warns us about the lust of the eyes, let’s hear it in Jesus' words.
+
+27 “You have heard that it was said, ‘You shall not commit adultery.’ 28 But I tell you that anyone who looks at a woman lustfully has already committed adultery with her in his heart. 29 If your right eye causes you to stumble, gouge it out and throw it away. It is better for you to lose one part of your body than for your whole body to be thrown into hell. 30 And if your right hand causes you to stumble, cut it off and throw it away. It is better for you to lose one part of your body than for your whole body to go into hell. Mat 5
+
+Let us hear Jesus’ words and avoid the sin of lust of the eyes, as it blinds us. Even great people in the bible like Samson, King David, and evil people like Herod were all blinded by lust. Herod was so blind that he was lusting over his own daughter’s dance. Lust caused these characters to commit murder – king David ordered Bathsheba’s husband to be murdered and Herod ordered the head of John the Baptist. Samson lost his mission to free the people from the Philistines. Lust can cause good men and women to do really bad things like rape, murder, fornication, etc.
+
+A method to catch Bears is to soak a knife in blood and leave it out in the snow. The bear will find it and start licking the knife, keeping on licking the knife until its own tongue is cut. The bear goes into a frenzy and ends up licking its own blood and bleeds to death. This is the state of those who are trapped in habitual lust sins, they end up feeding on their own lustful appetites and will lose their soul.
+
+The Lord is very merciful with those caught in traps of sin, He will free our shackles and redeem us. We can approach him who sits on the mercy seat, for he was tempted in every way possible. He does not condemn but wants to save.
+
+15 For we do not have a high priest who is unable to sympathize with our weaknesses, but we have one who in every respect has been tested as we are, yet without sin. 16 Let us therefore approach the throne of grace with boldness, so that we may receive mercy and find grace to help in time of need. Heb 4
 
 May the Holy Spirit lead us. 🙏
