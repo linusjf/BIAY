@@ -10,6 +10,8 @@
   * [April 03,2024](#april-032024)
     + [Samson and Delilah](#samson-and-delilah)
     + [Day94 Samson is ruled by his desires – Lust is blinding](#day94-samson-is-ruled-by-his-desires-%E2%80%93-lust-is-blinding)
+  * [April 04,2024](#april-042024)
+    + [The Sin of Benjamin](#the-sin-of-benjamin)
 
 <!-- tocstop -->
 
@@ -96,3 +98,9 @@ The Lord is very merciful with those caught in traps of sin, He will free our sh
 15 For we do not have a high priest who is unable to sympathize with our weaknesses, but we have one who in every respect has been tested as we are, yet without sin. 16 Let us therefore approach the throne of grace with boldness, so that we may receive mercy and find grace to help in time of need. Heb 4
 
 May the Holy Spirit lead us. 🙏
+
+## April 04,2024 ##
+
+### The Sin of Benjamin ###
+
+[![The Sin of Benjamin](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day095.jpg)](https://youtu.be/7gq_Sgo3dfk "The Sin of Benjamin")
