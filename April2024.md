@@ -13,6 +13,9 @@
   * [April 04,2024](#april-042024)
     + [The Sin of Benjamin](#the-sin-of-benjamin)
     + [Day 95: Relativism brings Chaos](#day-95-relativism-brings-chaos)
+  * [April 05,2024](#april-052024)
+    + [Hannah's Prayer](#hannahs-prayer)
+    + [Day 96 Failing to correct our children](#day-96-failing-to-correct-our-children)
 
 <!-- tocstop -->
 
@@ -135,5 +138,29 @@ We need to return to the one source of truth, which is Jesus Christ. We need to 
 “The solution to relativism is authority” - Michael Eltham 😀
 
 The authority of the catholic church was instituted by Jesus when He gave Peter the keys to the kingdom and the promise that what would be bound on earth will be bound in heaven. In the old testament, the spiritual leaders of Israel had that role where they would bind something into law and agree and disagree on matters. Today that role is given to the catholic church, we should be so glad that our faith, teaching, and doctrine have been authorized by Jesus himself and passed down from generation to generation through the hands of many saints.
+
+May the Holy Spirit lead us. 🙏
+
+## April 05,2024 ##
+
+### Hannah's Prayer ###
+
+[![Hannah's Prayer](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day096.jpg)](https://youtu.be/Z4kvCO7PhEM "Hannah's Prayer")
+
+### Day 96 Failing to correct our children
+
+The famous parenting proverb from the bible is
+
+Whoever spares the rod hates their children, but the one who loves their children is careful to discipline them. Prov 13:24
+
+Like many things in the Bible this proverb is hyperbole, I don’t think God wants us to beat our kids with a rod.
+
+What it really means is we need to take responsibility for our kids – young or old, we cannot ignore their mistakes, we cannot just tell them they are wrong, what we have to do is insist, pray and hopefully get them to repent.
+
+We see Eli trying to correct his sons – they were having relations with the women who worked at the entrance of the tent of the meeting, this is similar to committing adultery in front of the blessed sacrament, these sons of Eli have no respect for the Lord.
+
+I guess Eli told them but they didn’t listen, Eli was old and maybe not persistent with his parenting skills. We as parents need to learn from this, if not the Lord’s favor will not rest on our family. We need to have rules and enforce them, it is easy to give in to our kids and let them do what they want. But that is not our calling or duty as parents. I remember what my mom always told me
+
+“If you bring a soul into this world, you are responsible for it” Lois Eltham.
 
 May the Holy Spirit lead us. 🙏
