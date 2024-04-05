@@ -172,6 +172,8 @@ May the Holy Spirit lead us. 🙏
 
 ### Samuel's Prophecy
 
+Fr. Mike zeroes in on Samuel's dramatic prophecy and the tragic moment when the Philistines capture of the Ark of God. We learn that God is mighty and holds his people to a high standard. Today we read 1 Samuel 3-5 and Psalm 150.
+
 [![Samuel's Prophecy](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day097.jpg)](https://youtu.be/M7TUDSy6jVs "Samuel's Prophecy")
 
 ### Day 97 Hearing the voice of God
