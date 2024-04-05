@@ -16,6 +16,9 @@
   * [April 05,2024](#april-052024)
     + [Hannah's Prayer](#hannahs-prayer)
     + [Day 96 Failing to correct our children](#day-96-failing-to-correct-our-children)
+  * [April 06,2024](#april-062024)
+    + [Samuel's Prophecy](#samuels-prophecy)
+    + [Day 97 Hearing the voice of God](#day-97-hearing-the-voice-of-god)
 
 <!-- tocstop -->
 
@@ -141,9 +144,9 @@ The authority of the catholic church was instituted by Jesus when He gave Peter 
 
 May the Holy Spirit lead us. 🙏
 
-## April 05,2024 ##
+## April 05,2024
 
-### Hannah's Prayer ###
+### Hannah's Prayer
 
 [![Hannah's Prayer](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day096.jpg)](https://youtu.be/Z4kvCO7PhEM "Hannah's Prayer")
 
@@ -162,5 +165,39 @@ We see Eli trying to correct his sons – they were having relations with the wo
 I guess Eli told them but they didn’t listen, Eli was old and maybe not persistent with his parenting skills. We as parents need to learn from this, if not the Lord’s favor will not rest on our family. We need to have rules and enforce them, it is easy to give in to our kids and let them do what they want. But that is not our calling or duty as parents. I remember what my mom always told me
 
 “If you bring a soul into this world, you are responsible for it” Lois Eltham.
+
+May the Holy Spirit lead us. 🙏
+
+## April 06,2024
+
+### Samuel's Prophecy
+
+[![Samuel's Prophecy](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day097.jpg)](https://youtu.be/M7TUDSy6jVs "Samuel's Prophecy")
+
+### Day 97 Hearing the voice of God
+
+As we read Samuel’s story, we cannot help but dwell on his calling.
+
+It was a time of spiritual dryness
+
+‘’ In those days the word of the LORD was rare; there were not many visions.” 1 Sam 3:1
+
+Samuel didn’t know who was speaking for the first 3 times, with Eli’s guidance he was able to know it was the Lord that was speaking.
+
+The world seems to be in the same state as at that time (there were not many visions or messages from God). We meet a lot of people these days who are unable to connect with God, the noise and craziness of this world seem to be blocking out the voice of God. People are busy with so many things, especially their cell phones.
+
+The is a new phobia/fear NOMOPHOBIA or NO MObile PHone PhoBIA is used to describe a psychological condition when people have a fear of being detached from mobile phone connectivity.
+
+We feel the need to be connected to people - family and friends and the internet and need all the news in a flash. Sadly, we have lost the longing to hear God’s voice.
+
+My sheep hear my voice, and I know them, and they follow me:John 10:27
+
+We have failed to create an environment where we can quiet our hearts and listen to the Lord, be moved by the prompting of the Holy Spirit. We need to spend quiet time in prayer and listen to what God is speaking to us.
+
+If we live by the Spirit, let us also be guided by the Spirit.Gal 5:25
+
+We need to have a listening heart and constantly ask for the guidance of the Holy Spirit in literally everything we do. There is no right or wrong way to listen to God’s voice, some experience it while reading the bible – where some verses catch their attention, some experience it while waiting on the Lord in quiet adoration, some experience guidance by means of feeling peace in decisions, some get help from prayer patterns and counselors, some experience God’s guidance in the Gifts of the Holy Spirit like visions, gift of knowledge and wisdom. The method is always between you and God – but the important thing is to make time and the right environment for God to speak to us.
+
+The Bible in a year program has been such a blessing for us to hear God’s voice through scriptures. God bless #FrMike for being the voice that reads us God’s precious word every day of the year.
 
 May the Holy Spirit lead us. 🙏
