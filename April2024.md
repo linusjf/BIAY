@@ -25,6 +25,11 @@
   * [April 08,2024](#april-082024)
     + [The Word Became Flesh](#the-word-became-flesh)
     + [Day 99 “Word became flesh”, “Canna symbol for resurrection”, “Born again – the right way”](#day-99-word-became-flesh-canna-symbol-for-resurrection-born-again-%E2%80%93-the-right-way)
+    + [Day 99 - George Vysamparambil](#day-99---george-vysamparambil)
+  * [April 09,2024](#april-092024)
+    + [This Is My Body](#this-is-my-body)
+    + [Messianic Checkpoint: The Gospel of John](#messianic-checkpoint-the-gospel-of-john)
+    + [Day 100 The Eucharist – True presence not symbolic](#day-100-the-eucharist-%E2%80%93-true-presence-not-symbolic)
 
 <!-- tocstop -->
 
@@ -276,3 +281,65 @@ We can see the water & Spirit theme from Genesis.
 8. Then you periodically cleanse yourself in the Sacrament of Confession
 9. You nourish yourself by receiving Jesus' Body and Blood in the Sacrament of the Eucharist.
    May the Holy Spirit lead us 🙏
+
+### Day 99 - George Vysamparambil
+
+John 2:1 the third day: Chronologically this refers to the third day since Jesus' encounter with Nathanael (1:43-51). Theologically, it has 2 levels of significance
+
+1. The third day is actually the 7th day of Jesus' opening week of ministry.  The evangelist hints at this when he delineates the successive days in 1:29, 35, 43 and 2:1 implying that the creation fashioned in 7 days (Gen 1:1-2:3) is being transformed and renewed through Jesus ( 2 Cor 5:17, Rev 21:1-5)
+
+2. Jesus manifests his glory on the 3rd day at Cana 2:11 just as he reveals his glory by rising on the 3rd day after his death ( 1 Cor 15:4)
+
+2:4 - woman - Although it might offend the standards of modern etiquette , this was a title of respect and endearment in antiquity  (4:21, 8:10, 20:13). Woman is used to refer to Gen 3:15. Genesis 3 is the reverse image of the Cana episode . As Eve prompted Adam to defy the Lord and drag the human family into sin, so Mary (New Eve) prompts the new Adam ( Jesus) to initiate his mission of salvation
+
+2:6 - 6 stone jars: The purpose of these water jars is outlined in Num 19:11-22 which stipulates that any Israelite defiled by contact with the dead must be purified with water on the 3rd day, then again on the 7th day. Curiously the Cana miracle takes place on the 3rd day which according to John's chronology is also the 7th day. The 1st sign performed by Jesus (water into wine) recalls the first sign performed by Moses ( the first plague, water into blood Ex 7:19) . Note that wine is called the blood of grapes in Hebrew poetry ( Gen 49:11, Deut 32:14). 6 water jars refers to the OT rituals which cleans a person from outside and cannot save a man fully. Jesus changing water into wine refers to the New testament which cleans a person from inside and fully saves a person. Jesus changes water into wine and then later on changes wine into his blood. By consuming his body and blood, we are being fully saved. 6 is an incomplete number whereas 7 is complete according to Hebrew numerology. There are 6 water jars which is incomplete just like our life. But when Jesus changes water into wine, he becomes the 7th jar just like our life which becomes complete with Jesus.
+
+The wedding of Adam and Eve takes place on the 7th day just like the wedding at Cana which takes on the 3rd day which is also the 7th day since 4 days have passed in Chapter 1. In Chapter 2, there is no mention of the bride and bridegroom, it signifies the Wedding of the Lamb. Jesus is the Bridegroom and Mother Mary is the bride (representative of the Church).
+
+## April 09,2024
+
+### This Is My Body
+
+[![This Is My Body](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day100.jpg)](https://youtu.be/1lpsTp-Papw "This Is My Body")
+
+### Messianic Checkpoint: The Gospel of John
+
+[![Messianic Checkpoint: The Gospel of John](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/messianic.jpg)](https://youtu.be/SeaKsZJYTrk "Messianic Checkpoint: The Gospel of John")
+
+### Day 100 The Eucharist – True presence not symbolic
+
+We read about Jesus meeting a Samaritan woman at the well. Whenever there is a scene in the OT where a man meets a woman at the well– its symbolic of the proposal for marriage(Isaac and Rebekah, Jacob and Rachel and Moses and Ziphora) – also note that the Bible states that they meet at Jacob’s well – is possibly the well where Jacob met Rebekah. That is why the disciples were shocked to see Jesus speaking with a Samaritan woman – however, they did not want to ask him anything (they must have been hoping Jesus wasn’t thinking of marrying a Samaritan woman).
+
+If you think of it Jesus was actually proposing marriage - the Samaritan women represent us – “fallen humankind”. We have tried everything but have no fulfillment – she married 5 men and was living with the sixth – we have tried to be fulfilled by everything that the 5 senses offer – but still are not satisfied. Jesus promised her “living waters” – the Holy Spirit that will become in her a wellspring of salvation. She and we will never be thirsty again.
+
+In order to have this life of fulness – Jesus gives us a method, a means to Heavenly food and drink – He gives us Himself – Jesus is the new Manna – the bread that came down from heaven.
+
+Jesus is taking the promise forward – the promise He made to the Samaritan women and to us. He says we will never hunger or never thirst if we eat His body and drink His blood.
+
+35 Jesus said to them, “I am the bread of life. Whoever comes to me will never be hungry, and whoever believes in me will never be thirsty. John 6
+
+Jesus repeats the importance of the Eucharist 5 times in the discourse. Many people dismiss this teaching and say that Jesus is just referring to reading His word – Jesus is very clear here about eating and drinking – he does not mean it symbolically or as a metaphor – because he repeated it 5 times – clarifying it each time they murmured – they murmured about who He was – “we know his father Joseph and his mother Mary – how can he say I came from heaven”
+
+They murmured about eating flesh and drinking blood – because it was forbidden according to the Jewish custom.
+
+Each time Jesus replied with strong words – the Greek captures it better than the English translation – the Greek word used for ‘flesh’ – denotes real physical flesh or soft tissue and the word for eat – translates to ‘gnaw’ and ‘munch’ – its could be understood as “masticating the flesh”. Most of Jesus' disciples and followers left at this teaching – this is the only time they left due to doctrinal issues.
+
+Jesus never told them – STOP – I’m just speaking symbolically. Many are murmuring even today, many are leaving the faith and many are Leaving the catholic church over this teaching. Remember Jesus told us to remember Him by eating His body and drinking blood - in the last supper.
+
+The Eucharist is the true body and blood of Jesus. Of course, it is hard to eat real flesh and real blood and it is impossible for us to live if God reveals Himself in full glory to us. That is why Jesus has pity on us and is present in the form of humble bread and wine.
+
+The term is Transubstantiation - the change by which the substance (though not the appearance) of the bread and wine in the Eucharist becomes Christ’s real presence—that is, his body and blood.
+
+We can thank a doctor of the Church – a great Theologian – Thomas Aquinas for this. A lot of time and space needs to be dedicated to understanding it.
+
+As far as the argument about ‘It is the Spirit that gives life; the flesh is of no avail’ – Jesus is referring to the human flesh or weakness – earlier he said eat my flesh and in this verse, he says the flesh is of no avail. If Jesus said 5 times that His flesh brings life – why would he say flesh is of no avail, he means our human nature/flesh.
+
+Let these words that Jesus said stay in our thoughts. Unless we eat His body and drink His blood we have no life in us. When Jesus says truly truly – He really means it.
+
+“So Jesus said to them, “Very truly, I tell you, unless you eat the flesh of the Son of Man and drink his blood, you have no life in you.” John 6:53
+
+Even though it may not be fully clear to you today or if you have doubts or if you are murmuring about it – pray as Peter prayed.
+
+“Lord where can we go for you have the words of eternal life.”
+
+May the Holy Spirit lead us. 🙏
