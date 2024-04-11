@@ -30,6 +30,13 @@
     + [This Is My Body](#this-is-my-body)
     + [Messianic Checkpoint: The Gospel of John](#messianic-checkpoint-the-gospel-of-john)
     + [Day 100 The Eucharist – True presence not symbolic](#day-100-the-eucharist-%E2%80%93-true-presence-not-symbolic)
+  * [April 10,2024](#april-102024)
+    + [Signs and Wonders](#signs-and-wonders)
+    + [Day 101 Jesus and His Mercy for the women caught in adultery](#day-101-jesus-and-his-mercy-for-the-women-caught-in-adultery)
+    + [Day 101 - George Vysamparambil](#day-101---george-vysamparambil)
+  * [April 11,2024](#april-112024)
+    + [The Death of Lazarus](#the-death-of-lazarus)
+    + [Day 102: The Good Shepherd](#day-102-the-good-shepherd)
 
 <!-- tocstop -->
 
@@ -341,5 +348,64 @@ Let these words that Jesus said stay in our thoughts. Unless we eat His body and
 Even though it may not be fully clear to you today or if you have doubts or if you are murmuring about it – pray as Peter prayed.
 
 “Lord where can we go for you have the words of eternal life.”
+
+May the Holy Spirit lead us. 🙏
+
+## April 10,2024
+
+### Signs and Wonders
+
+[![Signs and Wonders](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day101.jpg)](https://youtu.be/QDP4X_c8kcQ "Signs and Wonders")
+
+### Day 101 Jesus and His Mercy for the women caught in adultery
+
+As we read the story of the women caught in adultery we can’t help but awe at the Mercy of God. First off Jesus sees deeper, He knows our hearts. He knew the hidden motive of the Pharisees, who wanted to actually trap Jesus.
+First of all, it is not easy to catch someone in the act of adultery, people seek privacy for the marital act – so much more for adultery. So for the Pharisees to find the women in the act would actually mean they have been looking to catch them and they did not find them by accident.
+The second question is “where is the man?”, the law was to stone both of them, not just the women. Maybe the elders were trying to frame this poor woman or even if they actually caught her in the act – they are being very partial to the man.
+While the elders stand with raised stones and with wrath in their hearts, looking down on the woman. Jesus on the other hand bends down and writes on the sand, Jesus humbles himself to the level of the woman and looks at her with Mercy – does not look down on her.
+As the men press on for Jesus to condemn and stone her, Jesus writes on the dust – the word of God does not specify what He wrote – however there are some assumptions we can make
+
+1. At creation we know what happened when God touched dust and breathed on it – "man was created".
+   7 And the Lord God formed man of the dust of the ground, and breathed into his nostrils the breath of life; and man became a living soul.Gen 2: 7
+   Here Jesus is God touching dust again – He is creating a new opportunity for the women - a brand new life – He makes everything new – wipes her slate clean and gives her a new chance at life.
+2. The other time God’s finger touched the earth, He write laws on the stone tablets. Jesus - God is writing again - maybe the laws – maybe even writing the new law – the old law said if you commit adultery – the new law Jesus gave is “even if you look at a woman with lust you have committed adultery in your heart” so maybe the elder who caught the women in the act – lusted over her. They could not throw a stone anymore as they would need to be stoned as well.
+   MY DEAR BROTHERS AND SISTERS – BE ENCOURAGED AND NOT DISCOURAGED – “GOD IS MERCIFUL”.
+   He came not to condemn but to save. He came to forgive us or not to judge us like a merciless judge. He is a Merciful Judge that has compassion for broken creatures like us.
+   May we also be like Jesus, quick to forgive and slow to judge and condemn.
+   May the Holy Spirit lead us. 🙏
+
+### Day 101 - George Vysamparambil
+
+8:8 wrote ....on the ground: What Jesus inscribed in the dirt is unknown but probably symbolic. The gesture may recall Jer 17:13, a warning that those who forsake the Lord "shall be written in the earth" because they have rejected the "fountain of living water". The Pharisees fall into this category for rejecting Jesus, who has just been identified as the source of "living water" (7:38). Christ, who twice bends down to write on the ground, teaches us to bend low in humility to examine ourselves both before and after addressing the faults of our neighbour. If his example becomes our pratice, we will avoid as he did the extremes of being unjust and unmerciful toward others
+
+## April 11,2024
+
+### The Death of Lazarus
+
+[![The Death of Lazarus](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day102.jpg)](https://youtu.be/jFzZlLNyC4E "The Death of Lazarus")
+
+### Day 102: The Good Shepherd
+
+The promise of the Good Shepherd from the OT in Psalm 23 “The Lord is my shepherd I shall not be in want” is fulfilled in Jesus. Jesus proclaims that in today’s Gospel
+
+“I am the good shepherd – the one who lays down His life for the sheep”. John 10:11
+
+The good shepherd cares for the sheep – He feeds them in green pastures, by quiet waters.
+
+He leads them on the right path, protects them in the dark valley.
+
+The shepherd also corrects and comforts the sheep with His rod and staff.
+
+When a sheep goes astray – He goes in search of the sheep – and finds it and carries it back home. He restores their soul – forgives their sins - washes them in His blood and makes them whole.
+
+There is rejoicing in heaven over every sheep that is found – He anoints our head with oil, prepares a banquet, our cup is overflowing, surely goodness and mercy will follow you all the days of your life, and on the day we pass from this world to the next – we will go in though Him - for He said
+
+“I am the door of the sheep, if anyone enters through me, he will be saved and will go in and out and find pasture” John 10: 9
+
+We have to teach our hearts and mind to listen to Him and follow Him. We also should be aware of the voice of the evil one – who only wants to rob, steal, and destroy us. We should set time for silent listening every day and also be aware of the promptings and the nudges of the Holy Spirit throughout the day.
+
+God wants us to give us life in abundance and he also tells us that there are many who need to come into the flock. Everyone needs to hear His voice in prayer and hear Him as we read the Bible. We need to experience the life-giving word of God. Just as Lazarus came to life just by hearing Jesus’s voice, we need to come alive in many areas of our life as we hear God’s voice spoken to us.
+
+All we need to do is pay attention to His voice and stay close to Him, He will provide, protect, guide, and lead us to the safe bosom of Abba Father.
 
 May the Holy Spirit lead us. 🙏
