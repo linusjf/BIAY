@@ -37,6 +37,9 @@
   * [April 11,2024](#april-112024)
     + [The Death of Lazarus](#the-death-of-lazarus)
     + [Day 102: The Good Shepherd](#day-102-the-good-shepherd)
+  * [April 12,2024](#april-122024)
+    + [Judas' Secrecy](#judas-secrecy)
+    + [Day 103: “Washing of the feet – anointing, priesthood, and service” “Abiding in God”](#day-103-washing-of-the-feet-%E2%80%93-anointing-priesthood-and-service-abiding-in-god)
 
 <!-- tocstop -->
 
@@ -407,5 +410,29 @@ We have to teach our hearts and mind to listen to Him and follow Him. We also sh
 God wants us to give us life in abundance and he also tells us that there are many who need to come into the flock. Everyone needs to hear His voice in prayer and hear Him as we read the Bible. We need to experience the life-giving word of God. Just as Lazarus came to life just by hearing Jesus’s voice, we need to come alive in many areas of our life as we hear God’s voice spoken to us.
 
 All we need to do is pay attention to His voice and stay close to Him, He will provide, protect, guide, and lead us to the safe bosom of Abba Father.
+
+May the Holy Spirit lead us. 🙏
+
+## April 12,2024
+
+### Judas' Secrecy
+
+[![Judas' Secrecy](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day103.jpg)](https://youtu.be/kT8pVB6I4GE "Judas' Secrecy")
+
+### Day 103: “Washing of the feet – anointing, priesthood, and service” “Abiding in God”
+
+It is indeed a moving scene; a Rabbi or teacher washes the feet of the disciples. One important thing that we may miss is the washing of the feet was an important part of the ordination of the priest in the OT.
+
+“Then you shall bring Aaron and his sons to the door of the tent of meeting, and shall wash them with water, and put upon Aaron the holy garments, and you shall anoint him and consecrate him, that he may serve me as priest” (Exod. 40:12-13).
+
+The washing of the feet is also a great call to service for every Christian. We are not called to be served but to serve – following the example Jesus set for us - we need to wash each other’s feet. Just as the title of the pope is Servant of Servants. We are called to be servant leaders – not Lording it over – but serving with Love and Humility – putting the interest of others first.
+
+To be able to serve, we would need to be grounded and connected to the Vine. On our own it is impossible if a branch decides to separate from the Vine – it withers and dries up. In the same way, if we take on Service as something we do with all the resources we have, we will fall short of the goal, we will dry up and exhaust.
+
+We need to receive our nourishment from the Vine from Jesus’ “body, blood, soul and divinity” in the Holy Eucharist we receive. Just as the branch receives sap from the root, we need to receive our spiritual food from Jesus the source of everything good.
+
+St Mother Theresa of Calcutta would spend 1 hour in holy adoration every day before she went out to serve the poor. If she had a very busy day, she would spend 2 hours before going out – she believed that she needed more nourishment before she could do more.
+
+May the Lord be our nourishment in the Eucharist – “the source and summit of the Christian life.” CCC 1324
 
 May the Holy Spirit lead us. 🙏
