@@ -40,6 +40,9 @@
   * [April 12,2024](#april-122024)
     + [Judas' Secrecy](#judas-secrecy)
     + [Day 103: “Washing of the feet – anointing, priesthood, and service” “Abiding in God”](#day-103-washing-of-the-feet-%E2%80%93-anointing-priesthood-and-service-abiding-in-god)
+  * [April 13,2024](#april-132024)
+    + [The Priestly Prayer of Jesus](#the-priestly-prayer-of-jesus)
+    + [Day 104 This is the time of the Holy Spirit](#day-104-this-is-the-time-of-the-holy-spirit)
 
 <!-- tocstop -->
 
@@ -436,3 +439,41 @@ St Mother Theresa of Calcutta would spend 1 hour in holy adoration every day bef
 May the Lord be our nourishment in the Eucharist – “the source and summit of the Christian life.” CCC 1324
 
 May the Holy Spirit lead us. 🙏
+
+## April 13,2024
+
+### The Priestly Prayer of Jesus
+
+[![The Priestly Prayer of Jesus](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day104.jpg)](https://youtu.be/Tep60Vbs1hs "The Priestly Prayer of Jesus")
+
+### Day 104 This is the time of the Holy Spirit
+
+In the Old Testament all focus was on the God the Father – “Abba”, during the earthly life of Jesus – all focus was on Jesus. Now it’s the time of the Holy Spirit, that is why we hear Jesus saying the words
+
+Nevertheless, I tell you the truth: it is to your advantage that I go away, for if I do not go away, the Advocate will not come to you; but if I go, I will send him to you.  John 61:7
+
+Now when I say, “this is the time of the Holy Spirit” I do not mean that the Father and the son are forgotten. The Father, Son, and Spirit are so united – that they are always working together and in perfect union. What it means is that in the Old Testament only a few were anointed and experienced the Holy Spirit, only the prophets, Kings. However, when Jesus dies and rises to Heaven – He can send the Holy Spirit to everyone – the Spirit will empower us to do the works Jesus did and even greater works.
+
+We all know what happened at Pentecost and we read about the working of the Holy Spirit in the acts of the Apostles. The apostles spoke of the Holy Spirit as being present with them as a real person. Reading the below verse reflects it.
+
+For it has seemed good to the Holy Spirit and to us to impose on you no further burden than these essentials: Acts 15:28
+
+It’s like saying Tom and Harry felt good about buying a property and they did. The Holy Spirit was real and a person who they could talk to and listen to.
+
+That is why St Paul would give blessings like “fellowship of the Holy Spirit”
+
+14 May the grace of the Lord Jesus Christ, and the love of God, and the fellowship of the Holy Spirit be with you all. 2 Cor 13:14
+
+The Holy Spirit has been forgotten or limited to an image of a dove or fire. But the Holy Spirit is a person, the third person of the Holy Trinity.
+
+The Holy Spirit is gentle and not imposing if we welcome the Holy Spirit into our lives – we will become children of God.
+
+For those who are led by the Spirit of God are the children of God. Rom 8:14
+
+The Holy Spirit pours God’s love into our hearts.
+
+God’s love has been poured out into our hearts through the Holy Spirit, who has been given to us. Rom 5:5
+
+Thank God for the Catholic Charismatic Renewal, I was introduced to the Holy Spirit. Earlier I thought it was just a dove, but now the Holy Spirit is my Advocate, Councilor, comforter, guide, helper, Convicter of Sin, Intercessor, Teacher, revealer of truth and constant companion.
+
+May the Holy Spirit lead us 🙏
