@@ -43,6 +43,8 @@
   * [April 13,2024](#april-132024)
     + [The Priestly Prayer of Jesus](#the-priestly-prayer-of-jesus)
     + [Day 104 This is the time of the Holy Spirit](#day-104-this-is-the-time-of-the-holy-spirit)
+  * [April 14,2024](#april-142024)
+    + [It Is Finished](#it-is-finished)
 
 <!-- tocstop -->
 
@@ -477,3 +479,9 @@ God’s love has been poured out into our hearts through the Holy Spirit, who ha
 Thank God for the Catholic Charismatic Renewal, I was introduced to the Holy Spirit. Earlier I thought it was just a dove, but now the Holy Spirit is my Advocate, Councilor, comforter, guide, helper, Convicter of Sin, Intercessor, Teacher, revealer of truth and constant companion.
 
 May the Holy Spirit lead us 🙏
+
+## April 14,2024 ##
+
+### It Is Finished ###
+
+[![It Is Finished](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day105.jpg)](https://youtu.be/pPWnWUPUxik "It Is Finished")
