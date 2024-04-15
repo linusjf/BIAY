@@ -45,6 +45,10 @@
     + [Day 104 This is the time of the Holy Spirit](#day-104-this-is-the-time-of-the-holy-spirit)
   * [April 14,2024](#april-142024)
     + [It Is Finished](#it-is-finished)
+    + [Day 105 “I thirst”](#day-105-i-thirst)
+  * [April 15,2024](#april-152024)
+    + [Saul Is Chosen](#saul-is-chosen)
+    + [Day 106 Do not only go with "Outwardly appearances" – do not be fooled](#day-106-do-not-only-go-with-outwardly-appearances-%E2%80%93-do-not-be-fooled)
 
 <!-- tocstop -->
 
@@ -480,8 +484,51 @@ Thank God for the Catholic Charismatic Renewal, I was introduced to the Holy Spi
 
 May the Holy Spirit lead us 🙏
 
-## April 14,2024 ##
+## April 14,2024
 
-### It Is Finished ###
+### It Is Finished
 
 [![It Is Finished](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day105.jpg)](https://youtu.be/pPWnWUPUxik "It Is Finished")
+
+### Day 105 “I thirst”
+
+In final moments of Jesus’s crucifixion, He says these words “I thirst” just before the final words “It is finished”. Many saints have meditated on these last words of Jesus and we should to. what does Jesus thirst for? Is it for souls?
+St Mother Teresa spent her whole live trying to comfort Jesus who thirsts for us.
+"I thirst" is something much deeper than Jesus just saying "I love you." Until you know deep inside that Jesus thirsts for you - you can't begin to know who He wants to be for you. Or who He wants you to be for Him. The heart and soul of \[Missionaries of Charity\] is only this - the thirst of Jesus' Heart, hidden in the poor. ... "I thirst" and "You did it to me" - remember always to connect the two. - St Mother Teresa
+Mother Teresa spent a whole life serving and her whole congregation are now serving the poor, they see Jesus in the poor and the hungry, those who thirst and those who hunger – are feed.
+St Faustina united her suffering with the Passion of Christ in order that sinful souls are given the strength to repent.
+During Holy Mass, I saw the Lord Jesus nailed upon the cross amidst great torments. A soft moan issued from His Heart. After some time, He said: I thirst. i thirst for the salvation of souls. Help Me, My daughter, to save souls. Join your sufferings to My Passion and offer them to the heavenly Father for sinners (Diary, 1032). - Saint Faustina.
+We need to do two things to satisfy the thirst of Jesus.
+Repent of our sins and welcome Jesus into our hearts.
+Pray for the world and for sinners to repent.
+Jesus thirst for us, He thirst for our time, He thirst for our will, He thirsts also to comfort us, to give us rest, He thirsts to come into our hearts and dine with us.
+20 Listen! I am standing at the door, knocking; if you hear my voice and open the door, I will come in to you and eat with you, and you with me. Rev 3:20
+My dear brothers and sisters, do not harden your hearts, pray and welcome Jesus into you lives. He thirsts to come into your hearts and your lives. He thirsts for you to receive Him at Mass, so he can enter you and fill you with love and wholeness.
+May the Holy Spirit lead us. 🙏
+
+## April 15,2024
+
+### Saul Is Chosen
+
+[![Saul Is Chosen](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day106.jpg)](https://youtu.be/8XfBeZFhNnE "Saul Is Chosen")
+
+### Day 106 Do not only go with "Outwardly appearances" – do not be fooled
+
+Over the generations, they have been many sayings like “All that glitters is not gold” and “Do not judge the book by the cover” do you remember any such saying/quotes?
+In today’s readings, we read the story of Saul, on the outward, he seemed like the perfect candidate to be the first King of Israel.
+There was not a man among the people of Israel more handsome than he; he stood head and shoulders above everyone else. 1 Sam 9:2
+Outwardly he was the most handsome man in all of Israel, the tallest and strongest. However inwardly he was fearful and insecure, looking at his own strengths and weaknesses.
+“Am I not a Benjaminite, from the least of the tribes of Israel? And is not my family the humblest of all the families of the tribe of Benjamin? Why then have you spoken to me in this way?” 1 Sam 21
+He questions his ability, his background, his family, from where he comes. We all will remember that the Benjaminite tribe was the tribe that was attached to all the other tribes of Israel – because the Benjaminite tribe raped the concubine of the priest, the priest cut her body into pieces and send it to all the tribes. All the tribes attached Benjaminite tribe and killed all the women there. Then the Benjaminites were kidnapping virgins from other tribes to marry them as there were no women left in their tribe.
+Even after Saul was anointed when they were going to install him as King, he was hiding in the luggage.
+“Behold, he has hidden himself among the baggage” 1 Sam 10: 22
+Even in the proverb that we read today we are reminded to not be attracted to loose women.
+“For the lips of loose women drip honey, and her speech is smoother than oil; but in the end she is bitter as wormwood, sharp as a two-edged sword.” Prov 5:4
+Charm is deceitful, and beauty is vain, but a woman who fears the Lord is to be praised. Prov 31:30
+We can expand this warning from just being about loose women to anything that seems attractive to us. The lust of the eyes, where we lust over things of the world, lust for people, things, experiences, whatever we seem to be attracted to - that reduces our love for God.
+Another scripture that emphasizes this is
+Do not let your adorning be external—the braiding of hair and the putting on of gold jewelry, or the clothing you wear— but let your adorning be the hidden person of the heart with the imperishable beauty of a gentle and quiet spirit, which in God's sight is very precious. 1 Pet 3:3-4
+We are called to look at the person's heart and not just the outward appearance. Look at the internal beauty, the beauty of the soul.
+In everything, we need to go after things that are good, pleasing, and truly good.
+8 Finally, brethren, whatsoever things are true, whatsoever things are honest, whatsoever things are just, whatsoever things are pure, whatsoever things are lovely, whatsoever things are of good report; if there be any virtue, and if there be any praise, think on these things. Phil 4:8
+May the Holy Spirit lead us 🙏
