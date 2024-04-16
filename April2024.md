@@ -50,7 +50,10 @@
     + [Saul Is Chosen](#saul-is-chosen)
     + [Day 106 Do not only go with "Outwardly appearances" – do not be fooled](#day-106-do-not-only-go-with-outwardly-appearances-%E2%80%93-do-not-be-fooled)
   * [April 16,2024](#april-162024)
+    + [Introduction to the Royal Kingdom](#introduction-to-the-royal-kingdom)
     + [Samuel's Speech](#samuels-speech)
+    + [Day 107 God allows us to have our way, if we insist – His permissible will](#day-107-god-allows-us-to-have-our-way-if-we-insist-%E2%80%93-his-permissible-will)
+    + [DAY 107](#day-107)
 
 <!-- tocstop -->
 
@@ -535,8 +538,34 @@ In everything, we need to go after things that are good, pleasing, and truly goo
 8 Finally, brethren, whatsoever things are true, whatsoever things are honest, whatsoever things are just, whatsoever things are pure, whatsoever things are lovely, whatsoever things are of good report; if there be any virtue, and if there be any praise, think on these things. Phil 4:8
 May the Holy Spirit lead us 🙏
 
-## April 16,2024 ##
+## April 16,2024
 
-### Samuel's Speech ###
+### Introduction to the Royal Kingdom
+
+[![Introduction to the Royal Kingdom (with Jeff Gavins)](https://raw.githubusercontent.com/linusjf/BIAY/main/April/royalkingdom.jpg)](https://youtu.be/-GmSFwWgApM "Introduction to the Royal Kingdom (with Jeff Gavins)")
+
+### Samuel's Speech
 
 [![Samuel's Speech](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day107.jpg)](https://youtu.be/vBMNpTla9zM "Samuel's Speech")
+
+### Day 107 God allows us to have our way, if we insist – His permissible will
+
+The Lord has been very patient with the Israelites, brought them out of slavery, and defeated the Egyptians and every kingdom/people who came in their way to the promised land. Yet the stiff-necked people say, “Give us a king”, God warns them of the difficulties they would face under the king’s rule. The people just won’t have it, they want a king. They want to replace God’s direct guidance with a human king. Remember the Lord was their King – He was leading and governing them – through the prophets Moses, Joshua, and the many judges.
+God said so be it, if these people are so insistent – let us give them a king.
+However, this is not God’s perfect will for Israel but a permissible will. When Israel choose not to pick God’s perfect will - God did not abandon them, He give them a second chance. He says here through Samuel.
+14 If you will fear the Lord and serve him and hearken to his voice and not rebel against the commandment of the Lord, and if both you and the king who reigns over you will follow the Lord your God, it will be well; 1 Sam 12:14
+So it is with us, that God has plans for our lives. He loves us and knows everything about us, when we sit down and when we rise up when we come in and go out, all our days are in His hand. God has called us and appointed us to do certain things on earth.
+We sometimes are unaware of how to discern God’s voice(Samuel did not know who was calling him in the temple), sometimes caught up in sin, sometimes know what God whats of us but just do not have the willpower to do it.
+For Example, God has a plan for a young man Joe to become a priest. Joe loves to pray and go to church regularly, Joe even feels drawn to the priesthood. However Joe has bad friends, they constantly take him away from Church. He eventually ends up marrying one of his friends. Joe and his wife were never meant to be together, they end up fighting and are on the verge of divorce.
+Joe turns back to God, what would God do?
+If you answered, “God would give them a second chance” – you are right – God would help Joe and his wife by either leading them to the right marriage counselor or God would supernaturally give them more love and patience. God's ways are not our ways. After Joe’s marriage is restored, God would possibly lead Joe into lay ministry – so Joe will be able to serve God. Of course, not at the capacity, God wanted for Joe, but at a capacity, Joe was able to. The Spirit is willing, but the flesh is weak.
+Our God is a God of second chances, just because we did not do what God had in store for us – He will never leave us. In fact, He will leave the 99 good sheep and come in search of us.
+God eventually did give us a king who was Human. It was Jesus – fully human and fully God. God’s plan of being our king and our demand to have a human king was merged into Jesus.
+May the Holy Spirit lead us. 🙏
+
+### DAY 107
+
+In today's study we see the lsraelites had no Leader and frequently fell prey to other nations because of their failure to trust and obey their God. They want to replace God's guidance with a king.
+In the beginning, Saul as an appointed king, was one of humility and was able to rule God's people. He was to administer the Lord's Covenant. The Prophet Samuel was to give Spiritual Counsel as well as Divine lnstructions.
+A strong warning was given to the people and Samuel concluded encouraging them that God would not forsake His people and Samuel would not cease to pray for them.
+The Psalm, a betrayal, hurts the most. Our Lord faced the same heartbreak when Judas betrayed Him.
