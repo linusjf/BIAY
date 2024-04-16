@@ -49,6 +49,8 @@
   * [April 15,2024](#april-152024)
     + [Saul Is Chosen](#saul-is-chosen)
     + [Day 106 Do not only go with "Outwardly appearances" – do not be fooled](#day-106-do-not-only-go-with-outwardly-appearances-%E2%80%93-do-not-be-fooled)
+  * [April 16,2024](#april-162024)
+    + [Samuel's Speech](#samuels-speech)
 
 <!-- tocstop -->
 
@@ -532,3 +534,9 @@ We are called to look at the person's heart and not just the outward appearance.
 In everything, we need to go after things that are good, pleasing, and truly good.
 8 Finally, brethren, whatsoever things are true, whatsoever things are honest, whatsoever things are just, whatsoever things are pure, whatsoever things are lovely, whatsoever things are of good report; if there be any virtue, and if there be any praise, think on these things. Phil 4:8
 May the Holy Spirit lead us 🙏
+
+## April 16,2024 ##
+
+### Samuel's Speech ###
+
+[![Samuel's Speech](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day107.jpg)](https://youtu.be/vBMNpTla9zM "Samuel's Speech")
