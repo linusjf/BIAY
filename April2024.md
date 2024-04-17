@@ -54,6 +54,10 @@
     + [Samuel's Speech](#samuels-speech)
     + [Day 107 God allows us to have our way, if we insist – His permissible will](#day-107-god-allows-us-to-have-our-way-if-we-insist-%E2%80%93-his-permissible-will)
     + [DAY 107](#day-107)
+  * [April 17,2024](#april-172024)
+    + [Saul's Vanity](#sauls-vanity)
+    + [Day 108 - Jenita](#day-108---jenita)
+    + [Day 108 Saul is “desperate” and “too rash” for his own good](#day-108-saul-is-desperate-and-too-rash-for-his-own-good)
 
 <!-- tocstop -->
 
@@ -569,3 +573,32 @@ In today's study we see the lsraelites had no Leader and frequently fell prey to
 In the beginning, Saul as an appointed king, was one of humility and was able to rule God's people. He was to administer the Lord's Covenant. The Prophet Samuel was to give Spiritual Counsel as well as Divine lnstructions.
 A strong warning was given to the people and Samuel concluded encouraging them that God would not forsake His people and Samuel would not cease to pray for them.
 The Psalm, a betrayal, hurts the most. Our Lord faced the same heartbreak when Judas betrayed Him.
+
+## April 17,2024
+
+### Saul's Vanity
+
+[![Saul's Vanity](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day108.jpg)](https://youtu.be/VtbaJ_3lXrw "Saul's Vanity")
+
+### Day 108 - Jenita
+
+When you do the right thing in life... No matter what the law or situation is.. It will turn favorable to you. When the people of Israel knew they had to fight they hid themselves. But Jonathan and his armor bearer, stood up and fought for the people and that brave act of his saved his life from his father.
+How many of us have the mind to stand up and do something about a complex situation?
+
+Saul makes a rash vow, which puts his son's life in jeopardy. Sometimes we land up making such rash vows without thinking through the consequences of the decisions we make. We must ensure we never make decisions out of emotions but only after a good thought process about the entire situation.
+
+Let us learn to be like Jonathan who is willing to fight the battle no one was willing to fight.
+
+### Day 108 Saul is “desperate” and “too rash” for his own good
+
+Let us put ourselves in the shoes or sandals(hehe) of an Israelite – We have demanded a King and we now have an anointed King Saul. We are not getting ready for battle, look at your weapons – you have no sword, no armor just your farm tools. You are a farmer and are used to cultivating the land – you are now asked to bring those farming tools and fight the Philistine army. The army has big, strong, strapping giant-like warriors. The army is so huge it’s like sand on the seashore.
+What would you do? Would you fight or hide in a hole?
+Now you have a prophet Samuel who is supposed to come and offer sacrifice and ask for God’s favor – for it was the Lord who won all the previous battles for you. Samuel does not show up, you get scared and scatter.
+Now for a second Imagine you are Saul the king who sees his weak peasant army hiding, what would you do??
+Saul cannot handle it – he Jumps the gun. He disobeys God, he offers the sacrifice himself. Saul seems to be acting out of fear.
+Samuel comes and announces that Saul’s reign is over, he will not rule forever. That his son Jonathan will not be the next King.
+I feel sad for Jonathan, he is a hero, a fearless warrior. Now there are only two swords in all of Isreal – Saul has one – too scared to use it, I guess. Johnathan has the other sword - He has faith, he has courage, He has a heart of a warrior, knowing that if God is for us who can be against us.
+Johnathan jumps into action – attacks and kills 20 men, this causes chaos and the whole army is overturned. God uses the faith of Johnathan to defeat a huge army of great warriors.
+Saul in his rash – swears an oath – that no one should eat the honey on the ground, Johnathon unknowing of the oath eats it. Johnathan’s eyes are brightened, but Saul won’t have it – he wants to kill his own son, the warrior son who won him the battle. The people are tired of Saul’s craziness, they ransom Johnathan.
+We can learn not to operate out of fear, not to act in haste, don’t make rash decisions. Allow God to act, and when you feel inspired – throw yourself out there – God will take care of you as he did for Johnathan. God is looking at your hearts, he wants leaders to be after His own heart. God will fight for us if we are willing to die for Him.
+May the Holy Spirit lead us. 🙏
