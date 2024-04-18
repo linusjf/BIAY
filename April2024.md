@@ -58,6 +58,9 @@
     + [Saul's Vanity](#sauls-vanity)
     + [Day 108 - Jenita](#day-108---jenita)
     + [Day 108 Saul is “desperate” and “too rash” for his own good](#day-108-saul-is-desperate-and-too-rash-for-his-own-good)
+  * [April 18,2024](#april-182024)
+    + [A Heart of Obedience](#a-heart-of-obedience)
+    + [Day 109 Obedience is greater than sacrifice](#day-109-obedience-is-greater-than-sacrifice)
 
 <!-- tocstop -->
 
@@ -602,3 +605,24 @@ Johnathan jumps into action – attacks and kills 20 men, this causes chaos and 
 Saul in his rash – swears an oath – that no one should eat the honey on the ground, Johnathon unknowing of the oath eats it. Johnathan’s eyes are brightened, but Saul won’t have it – he wants to kill his own son, the warrior son who won him the battle. The people are tired of Saul’s craziness, they ransom Johnathan.
 We can learn not to operate out of fear, not to act in haste, don’t make rash decisions. Allow God to act, and when you feel inspired – throw yourself out there – God will take care of you as he did for Johnathan. God is looking at your hearts, he wants leaders to be after His own heart. God will fight for us if we are willing to die for Him.
 May the Holy Spirit lead us. 🙏
+
+## April 18,2024
+
+### A Heart of Obedience
+
+[![A Heart of Obedience](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day109.jpg)](https://youtu.be/tXiEIfY6Mxo "A Heart of Obedience")
+
+### Day 109 Obedience is greater than sacrifice
+
+We see how Saul is messing up again and again - doing what He likes. He orders that they keep the good stuff from the spoil, even though the Lord warned against it. Saul keeps all of the cattle and even offers some of them to the Lord.
+Samuel is furious about it, He asks Saul this very important question.
+“Has the Lord as great delight in burnt offerings and sacrifices, as in obedience to the voice of the Lord? Surely, to obey is better than sacrifice, and to heed than the fat of rams.
+For rebellion is no less a sin than divination, and stubbornness is like iniquity and idolatry. Because you have rejected the word of the Lord, he has also rejected you from being king.” 1 Sam 15:22
+The reason why Saul is rejected is that He just does not want to listen to God’s instructions. Disobedient, rebellious, and stubborn he is rejecting God’s word.
+Remember Adam and Even got thrown out of Eden because of their disobedience, they just thought that they knew better than God.
+Saul looked at the spoil – it was pleasing to the eye, good for the body, so He consumed it and even offered it to God.
+Let us learn not to be disobedient, rebellious, and stubborn – let us listen to God’s word and act on it. Let us build our lives according to God’s instruction from His word. God does not look at the outward appearance, He looks at the heart. God does not want our sacrifices and our charity, He wants us, God wants our hearts.
+That is why God chose David and rejected his elder brothers who were strong and good-looking like Saul. God looked at David’s heart and knew that David had it in him to slay the giant, David had a heart that was attuned to the worship of God.
+David had praise on his lips and used his talent (music) to glorify God.
+We need to cultivate the habit of listening to and singing/playing spiritual music, we see the power it has in driving out evil spirits from Saul.
+May the Holy Spirit lead us 🙏
