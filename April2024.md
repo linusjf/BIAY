@@ -61,6 +61,11 @@
   * [April 18,2024](#april-182024)
     + [A Heart of Obedience](#a-heart-of-obedience)
     + [Day 109 Obedience is greater than sacrifice](#day-109-obedience-is-greater-than-sacrifice)
+  * [April 19,2024](#april-192024)
+    + [David and Goliath](#david-and-goliath)
+    + [Day 110 - Jenita](#day-110---jenita)
+    + [Day 110 Facing giants](#day-110-facing-giants)
+    + [DAY 110: Sheela](#day-110-sheela)
 
 <!-- tocstop -->
 
@@ -626,3 +631,42 @@ That is why God chose David and rejected his elder brothers who were strong and 
 David had praise on his lips and used his talent (music) to glorify God.
 We need to cultivate the habit of listening to and singing/playing spiritual music, we see the power it has in driving out evil spirits from Saul.
 May the Holy Spirit lead us 🙏
+
+## April 19,2024
+
+### David and Goliath
+
+[![David and Goliath](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day110.jpg)](https://youtu.be/ehmV56hG3C0 "David and Goliath")
+
+### Day 110 - Jenita
+
+David's intention to fight Goliath was not for his ego or pride but because of the insults of Goliath against God. He wanted to fight for the glory of God.
+
+How many of us fight our battles for our own ego.. How many unnecessary battles have we fought to feed our ego.
+
+When we work for the glory of God.. Everything will fall in place such that we will be able to defeat our giants with much ease.
+
+### Day 110 Facing giants
+
+The story of David slaying Goliath is almost every kid’s favorite Bible story. Not just the kids, everyone loves a story where the underdog defeats the champion – there are many famous movies/books with this concept.
+Goliath was terrorizing Saul's army for 40 days(40 refers to a long time). No one from the army was willing to fight the giant. All of David’s strong brothers were in the army, but none of them were willing to take on the Giant.
+David comes in and cannot digest the fact that his brothers and all of the Israelites are so afraid. I can almost hear him yell -
+For who is this uncircumcised Philistine that he should defy the armies of the living God?” 1 Sam 17:26
+The thing that inspired David to fight was that the Lord’s name was being humiliated and that no one was doing anything about it.
+David did not keep quiet, he started talking and trying to get some Israelites fired up to fight Goliath. David’s words reached Saul, now we know that Saul is fearful and keep hiring strong men to protect him.
+I can’t imagine how David spoke the below words to King Saul(stronger and taller) and his band of hired strong men.
+“Let no one’s heart fail because of him; your servant will go and fight with this Philistine.” 1 Sam 17:32
+David relies on God, the God who protected him against the wild lion and bears. David was self-training when he was doing his assigned task of caring for the sheep. David here is a pre-figuration of Jesus – the good shepherd who did not fear death.
+David knows for a fact that the Lord who protected him against the wild animals will protect him against Goliath.
+Saul out of fear – tries to put on his own armor on David – but doesn’t fit. David is fearless, he picks up 5 smooth stones and a sling. Even if David has to go with just his bare hands he would have won, because David was not relying on his own ability but on the Lord.
+“You come to me with sword and spear and javelin; but I come to you in the name of the Lord of hosts, the God of the armies of Israel, whom you have defied. 1 Sam 17:45
+David did not go only with his own strength; He had the Lord on his side. As David swung that pebble – it was the Lord’s mighty hand that guided it with so much force that Goliath a might warrior fell to the ground.
+When we face giants in our lives, giants of sickness, sin, addictions, bad relationships, financial situations, spiritual darkness, we have to say those words of David – “I come in the name of the Lord” and even if we have faith as small as a mustard seed, the mountains will move, the giants will fall. Even if the giants have been jeering at us for a long time. We will be victorious, not by our strength but by the Lord.
+Not by might nor by power, but by My Spirit,’ saith the Lord of hosts. Zechariah 4:6
+May the Holy Spirit lead us. 🙏
+
+### DAY 110: Sheela
+
+Once again Saul achieves victory by relying on himself, the challenge of a more than nine-foot-tall Giant, instead of GOD.
+The success of David was not his own. David put his faith in God. God was the source of David's accomplishment.
+The Psalmist felt that no good and faithful individual existed in his world. God is not watching us with grade book in hand, to pass or fail us. When testing comes we become aware and like the Psalmist cry for deliverance. God shows us where we must, yet, yield to Him in trusting obedience and mercy.
