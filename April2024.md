@@ -69,6 +69,9 @@
   * [April 20,2024](#april-202024)
     + [Saul Tries to Kill David](#saul-tries-to-kill-david)
     + [Day 111 By Cynthia Dsilva](#day-111-by-cynthia-dsilva)
+    + [Day 111 Saul Envy is making him evil, treacherous, and murderous](#day-111-saul-envy-is-making-him-evil-treacherous-and-murderous)
+  * [April 21,2024](#april-212024)
+    + [True Friendship](#true-friendship)
 
 <!-- tocstop -->
 
@@ -674,26 +677,48 @@ Once again Saul achieves victory by relying on himself, the challenge of a more 
 The success of David was not his own. David put his faith in God. God was the source of David's accomplishment.
 The Psalmist felt that no good and faithful individual existed in his world. God is not watching us with grade book in hand, to pass or fail us. When testing comes we become aware and like the Psalmist cry for deliverance. God shows us where we must, yet, yield to Him in trusting obedience and mercy.
 
-## April 20,2024 ##
+## April 20,2024
 
-### Saul Tries to Kill David ###
+### Saul Tries to Kill David
 
 [![Saul Tries to Kill David](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day111.jpg)](https://youtu.be/KfWA1ZLVHN0 "Saul Tries to Kill David")
 
-### Day 111 By Cynthia Dsilva ###
+### Day 111 By Cynthia Dsilva
 
 1 Samuel 18:1 & 4
-*By the time David had finished speaking to Saul, the soul of Jonathan was bound to the soul of David, and Jonathan loved him as his own self.* 
+*By the time David had finished speaking to Saul, the soul of Jonathan was bound to the soul of David, and Jonathan loved him as his own self.*
 
 When David killed Goliath and thus saved Israel from oppression and slavery under the enemy, Saul’s son, Jonathan, recognized the great significance of David's victory and it affected him personally.  Jonathan knew that he would have never been able to defeat the giant so he accepted that fact that he owed his entire existence to the one who defeated the giant.  Therefore, Jonathan's heart was overwhelmed with relief and his soul was knit to David, and Jonathan loved David as his own self.
-Jonathan's relationship with David was a picture of a believer's relationship with Jesus. 
+Jonathan's relationship with David was a picture of a believer's relationship with Jesus.
 
 When a person truly understands the spiritual misery and suffering of enslavement to Satan, such a person will feel a similar attachment to Christ and will follow Christ faithfully, knowing that he/she owes their entire existence to Jesus, the one and only person who could defeat the spiritual Goliath (Satan).
 
 *Jonathan took off the robe he was wearing and handed it over to David, along with his military dress, even his sword, bow, and belt.*
 
-By handing over his robe, military garments, sword, bow and belt to David, Jonathan surrendered himself completely to David. 
+By handing over his robe, military garments, sword, bow and belt to David, Jonathan surrendered himself completely to David.
 
 As it was with Jonathan and David, so it must be with us and Christ.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+### Day 111 Saul Envy is making him evil, treacherous, and murderous
+
+Envy is a deadly sin, it’s one of the 7 deadly sins. Envy is described in the Catechism of the Catholic Church
+Envy is a capital sin. It refers to the sadness at the sight of another's goods and the immoderate desire to acquire them for oneself, even unjustly. When it wishes grave harm to a neighbor it is a mortal sin:
+St. Augustine saw envy as "the diabolical sin." "From envy are born hatred, detraction, calumny, joy caused by the misfortune of a neighbor, and displeasure caused by his prosperity." CCC 2539
+The 9th and 10th commandment warns us against envy, - do not covet your neighbor's wife or goods.
+2538 The tenth commandment requires that envy be banished from the human heart.
+We see King Saul being tormented with the sin of Envy; Saul has an eye on David. Saul's son Jonathan has this great friendship with David and tries to make peace between David and Saul. David does not hesitate to fight any battle that Saul puts him in. However, when David came back victorious the people rejoiced and celebrated. They said:
+“Saul has slain his thousands, And David his Ten thousands” 1 Sam 18:7
+This made Saul very angry and this saying displeased him. So Saul tries to kill David when David was playing the lyre. Saul tried a few times over, but with no success. So Saul plots to send him to battle the Philistines – thinking that David will be killed at the battle. This does not work as well – David came back victorious.
+Then David promises his elder daughter’s hand in marriage but when the time comes he marries her off to someone else.
+Then Saul finds out that his younger daughter Michal loves Saul, he wanted to trick David again, he asked David to get 100 foreskins of Philistines as a marriage gift, and David gets 200. Once David marries Michal – Saul attempts to kill him again, but Michal rescues him. We can clearly see that Saul’s envy has become toxic, he has become evil, treacherous, and murderous, and evil spirits are controlling Saul.
+We need to keep envy in check, even when it’s little, like small jealousy towards our friends and neighbors. Because even the best of us can fall prey to envy. David who was such a good example of keeping envy away and showing mercy towards Saul, David falls into the sin of envy himself. In future episodes, we will see how David will lust for Bathsheba and act out of envy. David will do the same envious acts that Saul did to David, David will send Bathsheba’s husband to fight in front and die just so that David can get what he is eyeing from the roof.
+Let us pray for the grace to always be satisfied with what we have, let us not try to keep up with the Joneses. Let us thank God for what we have and lavish on the good things we have rather than envy what we don’t.
+May the Holy Spirit lead us. 🙏
+
+## April 21,2024
+
+### True Friendship
+
+[![True Friendship](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day112.jpg)](https://youtu.be/YBUjo2zjE_0 "True Friendship")
