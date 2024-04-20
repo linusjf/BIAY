@@ -66,6 +66,8 @@
     + [Day 110 - Jenita](#day-110---jenita)
     + [Day 110 Facing giants](#day-110-facing-giants)
     + [DAY 110: Sheela](#day-110-sheela)
+  * [April 20,2024](#april-202024)
+    + [Saul Tries to Kill David](#saul-tries-to-kill-david)
 
 <!-- tocstop -->
 
@@ -670,3 +672,9 @@ May the Holy Spirit lead us. 🙏
 Once again Saul achieves victory by relying on himself, the challenge of a more than nine-foot-tall Giant, instead of GOD.
 The success of David was not his own. David put his faith in God. God was the source of David's accomplishment.
 The Psalmist felt that no good and faithful individual existed in his world. God is not watching us with grade book in hand, to pass or fail us. When testing comes we become aware and like the Psalmist cry for deliverance. God shows us where we must, yet, yield to Him in trusting obedience and mercy.
+
+## April 20,2024 ##
+
+### Saul Tries to Kill David ###
+
+[![Saul Tries to Kill David](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day111.jpg)](https://youtu.be/KfWA1ZLVHN0 "Saul Tries to Kill David")
