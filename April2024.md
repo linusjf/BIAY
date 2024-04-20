@@ -68,6 +68,7 @@
     + [DAY 110: Sheela](#day-110-sheela)
   * [April 20,2024](#april-202024)
     + [Saul Tries to Kill David](#saul-tries-to-kill-david)
+    + [Day 111 By Cynthia Dsilva](#day-111-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -678,3 +679,21 @@ The Psalmist felt that no good and faithful individual existed in his world. God
 ### Saul Tries to Kill David ###
 
 [![Saul Tries to Kill David](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day111.jpg)](https://youtu.be/KfWA1ZLVHN0 "Saul Tries to Kill David")
+
+### Day 111 By Cynthia Dsilva ###
+
+1 Samuel 18:1 & 4
+*By the time David had finished speaking to Saul, the soul of Jonathan was bound to the soul of David, and Jonathan loved him as his own self.* 
+
+When David killed Goliath and thus saved Israel from oppression and slavery under the enemy, Saul’s son, Jonathan, recognized the great significance of David's victory and it affected him personally.  Jonathan knew that he would have never been able to defeat the giant so he accepted that fact that he owed his entire existence to the one who defeated the giant.  Therefore, Jonathan's heart was overwhelmed with relief and his soul was knit to David, and Jonathan loved David as his own self.
+Jonathan's relationship with David was a picture of a believer's relationship with Jesus. 
+
+When a person truly understands the spiritual misery and suffering of enslavement to Satan, such a person will feel a similar attachment to Christ and will follow Christ faithfully, knowing that he/she owes their entire existence to Jesus, the one and only person who could defeat the spiritual Goliath (Satan).
+
+*Jonathan took off the robe he was wearing and handed it over to David, along with his military dress, even his sword, bow, and belt.*
+
+By handing over his robe, military garments, sword, bow and belt to David, Jonathan surrendered himself completely to David. 
+
+As it was with Jonathan and David, so it must be with us and Christ.
+
+🔥🔥🔥🔥🔥🔥🔥
