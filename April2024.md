@@ -73,6 +73,12 @@
   * [April 21,2024](#april-212024)
     + [True Friendship](#true-friendship)
     + [Day 112 A Faithful Friend is a treasure](#day-112-a-faithful-friend-is-a-treasure)
+  * [April 22,2024](#april-222024)
+    + [Broken Trust](#broken-trust)
+    + [Day 113 “Crossing the limit” to succeed.](#day-113-crossing-the-limit-to-succeed)
+  * [April 23,2024](#april-232024)
+    + [David Saves Keilah](#david-saves-keilah)
+    + [Day 114 Consult the Lord before you act – discernment](#day-114-consult-the-lord-before-you-act-%E2%80%93-discernment)
 
 <!-- tocstop -->
 
@@ -743,4 +749,37 @@ Sirach 6:51-17
 May we be Jesus’s true friend, as He stands knocking at the door of our hearts.
 May we also find true spiritual friends in this world.
 And “yes” we are all true friends in the BIAY group – praying for each other and growing in our friendship with Jesus.
+May the Holy Spirit lead us. 🙏
+
+## April 22,2024
+
+### Broken Trust
+
+[![Broken Trust](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day113.jpg)](https://youtu.be/YFVnETlkils "Broken Trust")
+
+### Day 113 “Crossing the limit” to succeed.
+
+We read about David and his men, eating the bread of the presence as they had nothing else to eat as they were fleeing Saul. We also need the bread of the presence – Eucharist to strengthen us on our journey.
+Saul finds out about it and is perusing David, he is furious and wants to find out who helped David. When no one answered – “Doeg” ceased the opportunity to please the King. Doeg tells Saul that Ahimelech was the one who helped David. Saul wanted his servants to kill Ahimelech, but no one wanted to touch God’s anointed priest. Doeg stoops to a even lower place, He kills Ahimelech and 85 others who wore priestly garments. What a shame, such betrayal by Doeg. Doeg was ready to do anything to please the King and possibly enhance his own position and win the Kings favor.
+We could sometimes sell our selves short, we may accept to do shameful/unlawful/ethical things that may results in personal gain. For example giving a bribe to get some work done. Giving your boss a costly gift to pursue promotion. Sometimes it could be denying Jesus  in order to be accepted in our friend circle.
+
+What good is it for someone to gain the whole world, yet forfeit their soul? Mark 8:36
+
+We need to heed the words of Jesus, to be true and genuine disciples of the Lord. We cannot be two timing the Lord or our friends and family. Let us learn to deny ourselves and be honest with ourselves and with everyone. Jesus looks at our heart and know us through and through. There is nothing worth more than our souls, let our actions, thoughts and words reflect what is in our hearts. May we never be tempted to sell ourselves cheap, we are God’s precious children.
+
+May the Holy Spirit lead us. 🙏
+
+## April 23,2024
+
+### David Saves Keilah
+
+[![David Saves Keilah](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day114.jpg)](https://youtu.be/qJnOqwxCHRM "David Saves Keilah")
+
+### Day 114 Consult the Lord before you act – discernment
+
+We see that David was faced with a big decision to make, he was approached to save the city of Keilah for the Philistines were fighting against Keilah and were robbing the threshing floors. David could have just denied their request as David was not armed (only had Goliath's sword) and only had a bunch of men who were far from an army of any sorts – a bunch of afraid men. The below verse describes David’s arm.
+2 And every one who was in distress, and every one who was in debt, and every one who was discontented, gathered themselves unto him. And he became a captain over them, and there were with him about four hundred men. 1 Sam 22:2
+David could have just disregarded that ask of the people and redirected them to King Saul. However, David decides not to go with his own thoughts but to consult the Lord instead. He asks the Lord and gets a clear direction to save Keilah, however, he is met with a negative response from his men and counselors. David goes back to the Lord and asks more detailed questions. David goes back and forth with all his doubts about the people betraying him to King Saul.
+As we read about David asking the Lord for direction, we cannot help but apply this to our lives. We ought to seek the Lord’s will on all major things that we take on in life. It’s called discernment. There are many ways to discern the will of the Lord and it’s not "a one size fits all".
+Some people use the common-sense method of listing out the pros and cons and then evaluating it against God’s holy teaching, some folks resort to quiet prayers and listening to the Lord, some ask for signs from the Lord, some go with what makes them feel peaceful. Whatever the method, the important thing is to discern God’s will in everything that we do.
 May the Holy Spirit lead us. 🙏
