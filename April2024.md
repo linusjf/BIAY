@@ -81,6 +81,8 @@
     + [Day 114 Consult the Lord before you act – discernment](#day-114-consult-the-lord-before-you-act-%E2%80%93-discernment)
   * [April 24,2024](#april-242024)
     + [King Saul is Spared](#king-saul-is-spared)
+    + [Day 115 By Cynthia Dsilva](#day-115-by-cynthia-dsilva)
+    + [Day 115 Deal kindly with those who deserve our wrath](#day-115-deal-kindly-with-those-who-deserve-our-wrath)
 
 <!-- tocstop -->
 
@@ -791,3 +793,46 @@ May the Holy Spirit lead us. 🙏
 ### King Saul is Spared ###
 
 [![King Saul is Spared](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day115.jpg)](https://youtu.be/cAVZd_8AucA "King Saul is Spared")
+
+### Day 115 By Cynthia Dsilva
+
+1 Samuel 24:3-21
+<https://biblia.com/bible/rsvce/1Samuel/24/3-21>
+
+Saul was consumed with envy.
+
+Envy and jealousy are not the same.
+
+*Jealousy* causes us to wish for the blessings or success which others possess.  It does not necessarily seek the destruction of others.  In fact, jealousy can motivate us to be better than others, which is good.  But sometimes jealousy can cause us to steal the blessings or success which others possess and that is bad.  Jealousy, however, must never progress to envy.
+
+*Envy*, on the other hand, causes us to grieve at someone's blessings or success, and rejoice at someone's sufferings or failures.  Envy causes us to desire the destruction of those who are better than us.  Envy resents the good in others like it was with Cain and Saul.  Envy is a capital sin. 
+
+Saul, the king of a nation, forgot his duty towards the people and gathered 3,000 men, only to run in pursuit of an innocent man, David, from his own kingdom, and to destroy him.  In addition, Saul took pleasure in listening to people who fed him with negative information about David (1 Samuel 24:9). 
+
+How did things get so bad?
+
+It is because Saul was envious of David, and without realizing it he was lowering his own dignity.  
+
+But inspite of all that Saul was doing to destroy David, David did not take revenge on Saul, even when he got a chance to do it because Saul was anointed for the work of God (1 Samuel 24:10).
+
+Are we also like Saul, or are we like David? 
+Do we take pleasure in the destruction of others or do we rejoice at the success and blessings received by others? 
+Do we take liberty to harm or to speak ill about God's anointed ones (popes, bishops, nuns, clergy, etc.)? 
+Let us examine ourselves.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+### Day 115 Deal kindly with those who deserve our wrath
+King David was treated unjustly by King Saul for some time now. King Saul was perusing him, for no reason. David has a pure heart to serve King Saul. However King Saul tried to kill David many times over, he has killed many people who helped David.
+Now Saul was with 3000 men is trying to kill David and goes into a cave to relieve himself. David and his men were already in the cave trying to hide from Saul. David has a very good opportunity to kill Saul, end his misery, and become King of Israel. However, David does not take the easy route, he chooses to spare Saul’s life, only cutting off a portion of his skirt to prove his faithfulness. David calls Saul 'Father' and reminds him of the honor he has for Saul.
+This works – I can hear Saul’s heart melt when he says “Is this your voice, my son David?”
+Saul did not expect this, he said “David you are more righteous than me”. 
+Saul even gives David a blessing that David should be the King of Israel.
+We should think and act like David. Like David said “How can I lay a hand on God’s anointed” we should also look at a child of God(see Jesus in them) and say “How can I do or say anything to this brother/sister of mine”.
+We are called to a higher calling by Jesus.
+38 “You have heard that it was said, ‘An eye for an eye and a tooth for a tooth.’ 39 But I say to you, Do not resist an evildoer. But if anyone strikes you on the right cheek, turn the other also; 40 and if anyone wants to sue you and take your coat, give your cloak as well; 41 and if anyone forces you to go one mile, go also the second mile. 42 Give to everyone who begs from you, and do not refuse anyone who wants to borrow from you.
+43 “You have heard that it was said, ‘You shall love your neighbor and hate your enemy.’ 44 But I say to you, Love your enemies and pray for those who persecute you, 45 so that you may be children of your Father in heaven;
+Matt 5:38-45
+Let us try our very best to be a good example to our family, friends, and neighbors. If we get angry when others are angry – it will only escalate, however, if we give in and let go of our ego it will defuse the situation.
+It's easier said than done, let us all pray for strength to do the right thing.
+May the Holy Spirit lead us. 🙏
