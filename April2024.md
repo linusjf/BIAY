@@ -79,6 +79,8 @@
   * [April 23,2024](#april-232024)
     + [David Saves Keilah](#david-saves-keilah)
     + [Day 114 Consult the Lord before you act – discernment](#day-114-consult-the-lord-before-you-act-%E2%80%93-discernment)
+  * [April 24,2024](#april-242024)
+    + [King Saul is Spared](#king-saul-is-spared)
 
 <!-- tocstop -->
 
@@ -783,3 +785,9 @@ David could have just disregarded that ask of the people and redirected them to 
 As we read about David asking the Lord for direction, we cannot help but apply this to our lives. We ought to seek the Lord’s will on all major things that we take on in life. It’s called discernment. There are many ways to discern the will of the Lord and it’s not "a one size fits all".
 Some people use the common-sense method of listing out the pros and cons and then evaluating it against God’s holy teaching, some folks resort to quiet prayers and listening to the Lord, some ask for signs from the Lord, some go with what makes them feel peaceful. Whatever the method, the important thing is to discern God’s will in everything that we do.
 May the Holy Spirit lead us. 🙏
+
+## April 24,2024 ##
+
+### King Saul is Spared ###
+
+[![King Saul is Spared](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day115.jpg)](https://youtu.be/cAVZd_8AucA "King Saul is Spared")
