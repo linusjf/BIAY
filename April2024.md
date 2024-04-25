@@ -85,6 +85,7 @@
     + [Day 115 Deal kindly with those who deserve our wrath](#day-115-deal-kindly-with-those-who-deserve-our-wrath)
   * [April 25,2024](#april-252024)
     + [David and Abigail](#david-and-abigail)
+    + [Day 116 Be a peacemaker like Abigail](#day-116-be-a-peacemaker-like-abigail)
 
 <!-- tocstop -->
 
@@ -840,8 +841,17 @@ Let us try our very best to be a good example to our family, friends, and neighb
 It's easier said than done, let us all pray for strength to do the right thing.
 May the Holy Spirit lead us. 🙏
 
-## April 25,2024 ##
+## April 25,2024
 
-### David and Abigail ###
+### David and Abigail
 
 [![David and Abigail](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day116.jpg)](https://youtu.be/iS2jyhKlgpU "David and Abigail")
+
+### Day 116 Be a peacemaker like Abigail
+
+We read how King David was about to wipe out every man who Nabal was Lord over. Nabal was a wicked man and insulted David who dealt kindly with Nabal’s men. Nabal was extremely rich but did not spare a small portion in exchange for David’s protection.
+Nabal’s wife Abigail hears of this and wants to bring peace between them. She sends food and wine for David and his men to feast on, she also goes out herself to meet David, bows down, and intercedes on behalf of her husband. This changes David’s heart and prevents bloodshed, David is spared the sin of killing innocent men. Nabal hears of what Abigail did and his heart failed him and he died 10 days later. David did not forget Abigail he took her as a wife after Nabal died.
+We need to be another Abigail every time there is a need for peacemaking. We need to intercede and be an instrument to calm down the people who are hyper. We need to pray and unite family and friends. Let us not add fuel to fire, instead throw cool water on those who are burning with the fire of anger and revenge. Remember the reward is great for the peacemakers.
+Blessed are the peacemakers, for they will be called children of God. Mat 5:9
+Let us bring peace to those who have strife, let them be happy to hear the sound of our feet, the feet that bring the good news of peace.
+May the Holy Spirit lead us. 🙏
