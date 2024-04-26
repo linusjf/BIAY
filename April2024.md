@@ -88,6 +88,8 @@
     + [Day 116 Be a peacemaker like Abigail](#day-116-be-a-peacemaker-like-abigail)
   * [April 26,2024](#april-262024)
     + [Reverence and Faithfulness](#reverence-and-faithfulness)
+  * [April 27,2024](#april-272024)
+    + [King Saul Despairs](#king-saul-despairs)
 
 <!-- tocstop -->
 
@@ -863,3 +865,9 @@ May the Holy Spirit lead us. 🙏
 ### Reverence and Faithfulness ###
 
 [![Reverence and Faithfulness](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day117.jpg)](https://youtu.be/HNEXWB0x-L0 "Reverence and Faithfulness")
+
+## April 27,2024 ##
+
+### King Saul Despairs ###
+
+[![King Saul Despairs](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day118.jpg)](https://youtu.be/0_6WSzY1VAE "King Saul Despairs")
