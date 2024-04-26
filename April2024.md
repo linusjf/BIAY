@@ -86,6 +86,8 @@
   * [April 25,2024](#april-252024)
     + [David and Abigail](#david-and-abigail)
     + [Day 116 Be a peacemaker like Abigail](#day-116-be-a-peacemaker-like-abigail)
+  * [April 26,2024](#april-262024)
+    + [Reverence and Faithfulness](#reverence-and-faithfulness)
 
 <!-- tocstop -->
 
@@ -855,3 +857,9 @@ We need to be another Abigail every time there is a need for peacemaking. We nee
 Blessed are the peacemakers, for they will be called children of God. Mat 5:9
 Let us bring peace to those who have strife, let them be happy to hear the sound of our feet, the feet that bring the good news of peace.
 May the Holy Spirit lead us. 🙏
+
+## April 26,2024 ##
+
+### Reverence and Faithfulness ###
+
+[![Reverence and Faithfulness](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day117.jpg)](https://youtu.be/HNEXWB0x-L0 "Reverence and Faithfulness")
