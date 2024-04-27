@@ -88,6 +88,7 @@
     + [Day 116 Be a peacemaker like Abigail](#day-116-be-a-peacemaker-like-abigail)
   * [April 26,2024](#april-262024)
     + [Reverence and Faithfulness](#reverence-and-faithfulness)
+- [Day 117 God holds our tears in a bottle](#day-117-god-holds-our-tears-in-a-bottle)
   * [April 27,2024](#april-272024)
     + [King Saul Despairs](#king-saul-despairs)
 
@@ -860,14 +861,30 @@ Blessed are the peacemakers, for they will be called children of God. Mat 5:9
 Let us bring peace to those who have strife, let them be happy to hear the sound of our feet, the feet that bring the good news of peace.
 May the Holy Spirit lead us. 🙏
 
-## April 26,2024 ##
+## April 26,2024
 
-### Reverence and Faithfulness ###
+### Reverence and Faithfulness
 
 [![Reverence and Faithfulness](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day117.jpg)](https://youtu.be/HNEXWB0x-L0 "Reverence and Faithfulness")
 
-## April 27,2024 ##
+# Day 117 God holds our tears in a bottle
 
-### King Saul Despairs ###
+We read Psalm 56 today and read David’s plea to the Lord.
+“You have kept count of my tossings; put my tears in your bottle! Are they not in your book?” Ps 56: 8
+David knew that God is not distant or ignorant of our troubles and enemies. That God cares for us and is watching us every moment of our lives. God knows when bad things are done to us and keeps a record of it.
+David does not want to take revenge on King Saul, even though Saul is perusing David to kill him. David did nothing wrong until this point, Saul just wants to kill him out of envy.
+David knew where Saul was encamping at night snuck in and had the opportunity to kill Saul with his own spear, the spear that Saul threw at David(many times). But David did not do it out of reverence for God’s anointing on Saul.
+We can learn two things from this. 1. Reverence 2. Not seeking revenge
+
+1. Reverence:
+   We should have reverence for God’s anointed people, the priests and the religious. There are many bad priests who have done nasty things in the church, however, we should not label every priest to be that way. We need to have reverence for the priests and religious, they have decided to dedicate their entire lives to God. Even though they may not be as nice as we want them to be, we owe them reverence because of God’s anointing on their lives.
+2. Not Seeking revenge:
+   When something bad is done to us, we can either retaliate and hurt that person back or we can choose to let go and allow God to handle the situation. It is not easy but with prayer and God’s grace, we will be able to forgive.
+   Do not take revenge, my dear friends, but leave room for God’s wrath, for it is written: “It is mine to avenge; I will repay,” says the Lord. Rom 12:19
+   May the Holy Spirit lead us 🙏
+
+## April 27,2024
+
+### King Saul Despairs
 
 [![King Saul Despairs](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day118.jpg)](https://youtu.be/0_6WSzY1VAE "King Saul Despairs")
