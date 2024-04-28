@@ -91,6 +91,8 @@
 - [Day 117 God holds our tears in a bottle](#day-117-god-holds-our-tears-in-a-bottle)
   * [April 27,2024](#april-272024)
     + [King Saul Despairs](#king-saul-despairs)
+  * [April 28,2024](#april-282024)
+    + [David's Wisdom](#davids-wisdom)
 
 <!-- tocstop -->
 
@@ -888,3 +890,9 @@ We can learn two things from this. 1. Reverence 2. Not seeking revenge
 ### King Saul Despairs
 
 [![King Saul Despairs](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day118.jpg)](https://youtu.be/0_6WSzY1VAE "King Saul Despairs")
+
+## April 28,2024 ##
+
+### David's Wisdom ###
+
+[![David's Wisdom](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day119.jpg)](https://youtu.be/HWAJShQ-aVs "David's Wisdom")
