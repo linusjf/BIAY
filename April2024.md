@@ -94,6 +94,8 @@
   * [April 28,2024](#april-282024)
     + [David's Wisdom](#davids-wisdom)
     + [Day 119 Always turn to the Lord for guidance](#day-119-always-turn-to-the-lord-for-guidance)
+  * [April 29,2024](#april-292024)
+    + [David Mourns Saul](#david-mourns-saul)
 
 <!-- tocstop -->
 
@@ -911,3 +913,9 @@ Let us not be like Alice in Wonderland – who at a crossroad did not know which
 “If we are failing to plan then we are planning to fail “
 Let us not be blown in any direction by the winds of this world, but let us be moved by the breath of God, the Holy Spirit.
 May the Holy Spirit lead us. 🙏
+
+## April 29,2024 ##
+
+### David Mourns Saul ###
+
+[![David Mourns Saul](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day120.jpg)](https://youtu.be/Oan8WXGEILk "David Mourns Saul")
