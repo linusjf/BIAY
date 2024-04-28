@@ -93,6 +93,7 @@
     + [King Saul Despairs](#king-saul-despairs)
   * [April 28,2024](#april-282024)
     + [David's Wisdom](#davids-wisdom)
+    + [Day 119 Always turn to the Lord for guidance](#day-119-always-turn-to-the-lord-for-guidance)
 
 <!-- tocstop -->
 
@@ -891,8 +892,22 @@ We can learn two things from this. 1. Reverence 2. Not seeking revenge
 
 [![King Saul Despairs](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day118.jpg)](https://youtu.be/0_6WSzY1VAE "King Saul Despairs")
 
-## April 28,2024 ##
+## April 28,2024
 
-### David's Wisdom ###
+### David's Wisdom
 
 [![David's Wisdom](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day119.jpg)](https://youtu.be/HWAJShQ-aVs "David's Wisdom")
+
+### Day 119 Always turn to the Lord for guidance
+
+David till now has shown great character, he has been trying to make peace with Saul – sparing Saul’s life a few times over. It takes two hands to clap, and sometimes in life if the other party just does not want to make peace, there is little that we can do, we have to just pray and offer them to the Lord. That is what David did and eventually, we see the bad end of Saul’s life, even Saul’s sons died in battle.
+While Saul was doing everything wrong, consulting diviners and breaking his own rules. David on the other hand is doing the right thing, when the Philistines invaded Ziklag and took all the women and children including David’s wives, David did not go after them in haste – to avenge and bring back all the families.
+David put on the Ephod – priests' cloths and consulted the Lord in prayer. This is so important, let me say it again, “This is so important” the key between doing the right and wrong thing is consulting the Lord and turning to God for guidance.
+Let us constantly turn to God for His guidance and will. We are called to be led by the Holy Spirit because those who are led by the Spirit are God’s children.
+because those who are led by the Spirit of God are sons of God. Rom 8:15
+When we come to the crossroads of life, there are always many roads to take. Some lead to good and some to evil, we know that we should always avoid the road that leads to evil. But which good road should we take, only the Holy Spirit can guide you to do God’s will. The Holy Spirit will use people, and events and also prompt you directly, the key is to be in tune with the Holy Spirit.
+If we live by the Spirit, let us also keep in step with the Spirit. Gal 5:25
+Let us not be like Alice in Wonderland – who at a crossroad did not know which road to take, when the bunny asked her where do you want to go, she said does not matter. Then the bunny replied – then it does not matter which road you should take.
+“If we are failing to plan then we are planning to fail “
+Let us not be blown in any direction by the winds of this world, but let us be moved by the breath of God, the Holy Spirit.
+May the Holy Spirit lead us. 🙏
