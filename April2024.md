@@ -96,6 +96,8 @@
     + [Day 119 Always turn to the Lord for guidance](#day-119-always-turn-to-the-lord-for-guidance)
   * [April 29,2024](#april-292024)
     + [David Mourns Saul](#david-mourns-saul)
+    + [Day 120 By Cynthia Dsilva_](#day-120-by-cynthia-dsilva_)
+    + [Day 120 Lies bring death, truth sets us free.](#day-120-lies-bring-death-truth-sets-us-free)
 
 <!-- tocstop -->
 
@@ -919,3 +921,40 @@ May the Holy Spirit lead us. 🙏
 ### David Mourns Saul ###
 
 [![David Mourns Saul](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day120.jpg)](https://youtu.be/Oan8WXGEILk "David Mourns Saul")
+
+### Day 120 By Cynthia Dsilva_
+
+2 Samuel 1:1-12
+<https://biblia.com/bible/rsvce/2Samuel/1/1-12>
+
+Normally when our enemies perish, we either rejoice or we are relieved.  But David wasn't like us.  When he heard that Saul and his son Jonathan had died in battle, David neither rejoiced nor was he relieved.  Instead, David mourned because their nation lost an anointed king.  
+
+David is known as "a man after God's own heart" because he loved his enemies as much as he loved his friends, just as God loves us irrespective of whether we are holy or sinful. 
+
+2 Samuel 1:10
+*In 1 Samuel 31:4-5, the report said that Saul killed himself.* 
+This was a report given by someone who had been at the battle of Gilboa in the north.  
+
+*In 2 Samuel 1:10, the report said that a man killed Saul.*
+The Amelekite messenger was living in Ziklag in the South and Amelekites were Israel’s enemy.  He proved that he killed Saul by showing David Saul’s crown and armlet, probably assuming that he would get a reward for killing the man who was after David’s life.  
+
+Disrespecting God’s anointed man is bad but killing him is worse.
+Although David sensed that the man was lying, he ordered the man to be killed because the man himself declared that he had killed Saul who was the Lord’s anointed servant.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+### Day 120 Lies bring death, truth sets us free.
+
+We read that account of the man who tried to find favor in David’s eyes, he claims to have killed King Saul himself. We all know from a few chapters ago, that King Saul fell on his own sword and died. This man lost his life, because of his lie.
+My mom had this saying
+“If you tell one lie, you will need to tell 10 more to cover up. You will forget what lies you told and eventually get caught. Just tell the truth and your heart will be lightened”
+Almost everyone has this weakness of telling lies, some tell small lies, and some tell big terrible lies. Some lies are easy to avoid as we make a conscious decision to tell them, some lies are so inbuilt into us that we are living a fake life.
+Just look at your Facebook profile and it would always be the best photo you have taken in years, some people are even too ashamed to upload a picture – because they don’t think they look good enough. (Of course, some don’t upload a picture for security reasons – that’s totally different) many people are living a lie, like a separated spouse who is still hoping for the spouse (who moved on) to come back, like an overweight person who looks into the mirror and says that – I’m not that big after all, like an addict that says this is my last puff, drink or dose. Some people are unable to accept the truth about themselves, like a man losing his hair, who wants to think that it's just a phase of hair loss, like the woman covering her wrinkles in excess, makeup, like the girlfriend who is afraid to say no her boyfriend thinking that he will leave her if she does.
+We all wear masks – we are different people when alone and put on an act when people are watching us.
+Like my mom said, life will be very easy if we can be upfront and truthful about everything and with everyone. Remember the truth will set you free, it will allow you to be yourself and not be ashamed of who you are. All lies come from the devil, he is the father of all lies and deception.
+44 You are from your father the devil, and you choose to do your father’s desires. He was a murderer from the beginning and does not stand in the truth, because there is no truth in him. When he lies, he speaks according to his own nature, for he is a liar and the father of lies. Jh 8:44
+When a light is turned on all darkness is vanished, in the same way Jesus is that truth that will expose all lies. Jesus is the way, the truth and the life. We ought to build our lives in truth by abiding in God’s word in truth, for the truth will set us free.
+“If you abide in my word, you are truly my disciples, 32 and you will know the truth, and the truth will set you free.” Rom8:32
+The Holy spirit will lead us into all the truth and help us rid ourselves of lies and falsehood.
+But when he, the Spirit of truth, comes, he will guide you into all the truth. – John 16:13
+May the Holy Spirit lead us.
