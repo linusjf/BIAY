@@ -96,8 +96,10 @@
     + [Day 119 Always turn to the Lord for guidance](#day-119-always-turn-to-the-lord-for-guidance)
   * [April 29,2024](#april-292024)
     + [David Mourns Saul](#david-mourns-saul)
-    + [Day 120 By Cynthia Dsilva_](#day-120-by-cynthia-dsilva_)
+    + [Day 120 By Cynthia Dsilva\_](#day-120-by-cynthia-dsilva_)
     + [Day 120 Lies bring death, truth sets us free.](#day-120-lies-bring-death-truth-sets-us-free)
+  * [April 30,2024](#april-302024)
+    + [Cycle of Violence](#cycle-of-violence)
 
 <!-- tocstop -->
 
@@ -916,27 +918,27 @@ Let us not be like Alice in Wonderland – who at a crossroad did not know which
 Let us not be blown in any direction by the winds of this world, but let us be moved by the breath of God, the Holy Spirit.
 May the Holy Spirit lead us. 🙏
 
-## April 29,2024 ##
+## April 29,2024
 
-### David Mourns Saul ###
+### David Mourns Saul
 
 [![David Mourns Saul](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day120.jpg)](https://youtu.be/Oan8WXGEILk "David Mourns Saul")
 
-### Day 120 By Cynthia Dsilva_
+### Day 120 By Cynthia Dsilva\_
 
 2 Samuel 1:1-12
 <https://biblia.com/bible/rsvce/2Samuel/1/1-12>
 
-Normally when our enemies perish, we either rejoice or we are relieved.  But David wasn't like us.  When he heard that Saul and his son Jonathan had died in battle, David neither rejoiced nor was he relieved.  Instead, David mourned because their nation lost an anointed king.  
+Normally when our enemies perish, we either rejoice or we are relieved.  But David wasn't like us.  When he heard that Saul and his son Jonathan had died in battle, David neither rejoiced nor was he relieved.  Instead, David mourned because their nation lost an anointed king.
 
-David is known as "a man after God's own heart" because he loved his enemies as much as he loved his friends, just as God loves us irrespective of whether we are holy or sinful. 
+David is known as "a man after God's own heart" because he loved his enemies as much as he loved his friends, just as God loves us irrespective of whether we are holy or sinful.
 
 2 Samuel 1:10
-*In 1 Samuel 31:4-5, the report said that Saul killed himself.* 
-This was a report given by someone who had been at the battle of Gilboa in the north.  
+*In 1 Samuel 31:4-5, the report said that Saul killed himself.*
+This was a report given by someone who had been at the battle of Gilboa in the north.
 
 *In 2 Samuel 1:10, the report said that a man killed Saul.*
-The Amelekite messenger was living in Ziklag in the South and Amelekites were Israel’s enemy.  He proved that he killed Saul by showing David Saul’s crown and armlet, probably assuming that he would get a reward for killing the man who was after David’s life.  
+The Amelekite messenger was living in Ziklag in the South and Amelekites were Israel’s enemy.  He proved that he killed Saul by showing David Saul’s crown and armlet, probably assuming that he would get a reward for killing the man who was after David’s life.
 
 Disrespecting God’s anointed man is bad but killing him is worse.
 Although David sensed that the man was lying, he ordered the man to be killed because the man himself declared that he had killed Saul who was the Lord’s anointed servant.
@@ -958,3 +960,9 @@ When a light is turned on all darkness is vanished, in the same way Jesus is tha
 The Holy spirit will lead us into all the truth and help us rid ourselves of lies and falsehood.
 But when he, the Spirit of truth, comes, he will guide you into all the truth. – John 16:13
 May the Holy Spirit lead us.
+
+## April 30,2024 ##
+
+### Cycle of Violence ###
+
+[![Cycle of Violence](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day121.jpg)](https://youtu.be/myNvyi1yJlA "Cycle of Violence")
