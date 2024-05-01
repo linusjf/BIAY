@@ -91,6 +91,7 @@
 - [Day 117 God holds our tears in a bottle](#day-117-god-holds-our-tears-in-a-bottle)
   * [April 27,2024](#april-272024)
     + [King Saul Despairs](#king-saul-despairs)
+    + [Day 118 The Lord is close to the brokenhearted.](#day-118-the-lord-is-close-to-the-brokenhearted)
   * [April 28,2024](#april-282024)
     + [David's Wisdom](#davids-wisdom)
     + [Day 119 Always turn to the Lord for guidance](#day-119-always-turn-to-the-lord-for-guidance)
@@ -100,6 +101,7 @@
     + [Day 120 Lies bring death, truth sets us free.](#day-120-lies-bring-death-truth-sets-us-free)
   * [April 30,2024](#april-302024)
     + [Cycle of Violence](#cycle-of-violence)
+    + [Day 121 Be a pioneer in doing the right thing](#day-121-be-a-pioneer-in-doing-the-right-thing)
 
 <!-- tocstop -->
 
@@ -898,6 +900,17 @@ We can learn two things from this. 1. Reverence 2. Not seeking revenge
 
 [![King Saul Despairs](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day118.jpg)](https://youtu.be/0_6WSzY1VAE "King Saul Despairs")
 
+### Day 118 The Lord is close to the brokenhearted.
+
+Psalm 34 is one of those Psalms that we need to read daily and remember. It reminds us to praise God every day and for everything, in fact, it prescribes us to praise God “always”. We are invited not to boast of our own victories, but rather humble ourselves and boast in the Lord alone. We can invite others to praise God with us and invite them to magnify the Lord and exalt the Lord in unity and with joy.
+I will bless the Lord at all times; his praise shall continually be in my mouth. My soul makes its boast in the Lord; let the humble hear and be glad. O magnify the Lord with me, and let us exalt his name together. Ps 34:1-3
+There are times when it’s hard to praise God, when things go wrong or when we are caught up in sin. Do not despair or stop praising God, for He will answer us when we call to Him. He will deliver us from all our fears, when we cry out he will hear us, when we are in trouble he will save us, save us from every trouble; he will put angels in charge over us who will encamp around us; those who take refuge in him will be happy; those who look to him are radiant, their faces never covered with shame. Even if the young lion suffers, those who trust in the Lord will lack nothing that is good.
+I sought the Lord, and he answered me, and delivered me from all my fears. 5 Look to him, and be radiant; so your faces shall never be ashamed. 6 This poor soul cried, and was heard by the Lord, and was saved from every trouble. 7 The angel of the Lord encamps around those who fear him, and delivers them. 8 O taste and see that the Lord is good; happy are those who take refuge in him. 9 O fear the Lord, you his holy ones, for those who fear him have no want. 10 The young lions suffer want and hunger, but those who seek the Lord lack no good thing.
+Remember the Lord is near to the brokenhearted, he saves those who are crushed in spirit. The next time you feel broken-hearted and crushed in your spirit, remember that the Lord is close to you. I join the psalmist today to invite you to taste and see that the Lord is good.
+The Lord is near to the brokenhearted and saves the crushed in spirit. 18
+O taste and see that the Lord is good; 8
+May the Holy Spirit lead us 🙏
+
 ## April 28,2024
 
 ### David's Wisdom
@@ -961,8 +974,25 @@ The Holy spirit will lead us into all the truth and help us rid ourselves of lie
 But when he, the Spirit of truth, comes, he will guide you into all the truth. – John 16:13
 May the Holy Spirit lead us.
 
-## April 30,2024 ##
+## April 30,2024
 
-### Cycle of Violence ###
+### Cycle of Violence
 
 [![Cycle of Violence](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day121.jpg)](https://youtu.be/myNvyi1yJlA "Cycle of Violence")
+
+Fr. Mike talks about how revenge and violence can become a cycle that doesn't end until someone chooses to end it. He also points out how the genealogy in 1 Chronicles reflects the genealogy of Christ.The reading for today are 2 Samuel 2, 1 Chronicles 2, and Psalm 24.
+
+### Day 121 Be a pioneer in doing the right thing
+
+Judah was always what went up first when Israel marched into battle. Judah means praise and it should be the same with us as well, when we pray – praise should always go up first before any petitions. Judah is again the first to instate David as King, we read that David was anointed to be king but was very humbly and patiently waiting for God’s time. Judah in a way is a pioneer in doing the correct thing first. We are called to be pioneers as well, to be zealous for the Lord. We should be on the lookout for opportunities to serve God and His people.
+There is this famous saying “If the devil can’t make you bad, he will make you evil.”
+We need to be available for the Lord, we need to have the attitude of “Speak Lord I am listening”, because
+“The Lord does not call the qualified, but He qualifies the called”.
+God may be calling you to do something you have never done before, or you feel you are not unable to do.
+“We are called to be faithful and not successful; success or failure is what God takes care of”
+Be a pioneer and a leader in doing good things for the Lord. May we have the courage and faith to say “For me and my house, we will serve the Lord”. Even if we face a lot of resistance from family, friends, and society, we need to keep on moving forward.
+But seek first the kingdom of God and his righteousness, and all these things will be added to you. Mat 6:33
+One important thing as pioneers is "to do God’s will".
+We see Judah proclaimed David as King, however, the commander of Saul took Ish-bosheth and made him king over all of Israel. As we continue to read we will see that only God’s ‘will’ prevails and David will become king of the whole of Isreal. Let us be a pioneer in doing God’s will not doing as we wish.
+Unless the Lord builds the house, those who build it labor in vain Ps 127:1
+May the Holy Spirit Lead us. 🙏
