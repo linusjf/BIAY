@@ -21,7 +21,7 @@ checkinternet || exit
 #shellcheck disable=SC1091
 source ./vidmd.sh
 vid="$1"
-doy=$(("$(wc -l <videos.txt)" + 1))
+doy=$(("$(wc -l < videos.txt)" + 1))
 videourl="https://youtu.be/${vid}"
 caption="$2"
 year="2024"
@@ -38,20 +38,21 @@ if ./genoverlay "$vid" "$doy"; then
       echo "Back up of ${fname} unsuccessful. It will be overwritten."
     fi
   fi
-  echo "## $formatdt ##" >|"$fname"
+  echo "## $formatdt ##" >| "$fname"
   {
     echo
     echo "### $caption ###"
     echo
     echo "$md"
-  } >>"$fname"
+  } >> "$fname"
 
-  basename -- "$fname" >>"${month}/compact.txt"
+  basename -- "$fname" >> "${month}/compact.txt"
   monthmd="${month}${year}.md"
-  ./compact "$month" >|"$monthmd" &&
-    markdown-toc -i "$monthmd"
+  ./compact "$month" >| "$monthmd" \
+    && markdown-toc -i "$monthmd"
   sed -i '/\S/,$!d' "$monthmd"
-  echo "$vid" >>videos.txt
+  echo "$vid" >> videos.txt
+  echo "$fname generated for $vid."
 else
   echo "Unable to find or generate video thumbnail. Video may not exist."
 fi
