@@ -6,6 +6,9 @@
     + [Day #214 Can a woman forget her nursing child?](#day-%23214-can-a-woman-forget-her-nursing-child)
     + [Good, Good Father](#good-good-father)
     + [BIAY Day 214 By Cynthia Dsilva](#biay-day-214-by-cynthia-dsilva)
+  * [August 02,2024](#august-022024)
+    + [False Prophets](#false-prophets)
+    + [Day #215 How beautiful are the feet of the messenger who announces peace](#day-%23215-how-beautiful-are-the-feet-of-the-messenger-who-announces-peace)
 
 <!-- tocstop -->
 
@@ -45,3 +48,19 @@ Let us also glorify the Lord by loving and caring for everyone including our ene
 Let us allow God to continue working through us even though we cannot see the fruit of our efforts in the midst of an evil world.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## August 02,2024
+
+### False Prophets
+
+[![False Prophets](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day215.jpg)](https://youtu.be/KvSbyX4f3J0 "False Prophets")
+
+### Day #215 How beautiful are the feet of the messenger who announces peace
+
+Good news is always something people look forward to, whether it is an appointment letter to your new job or acceptance to college, or to a sports team. We are eager to hear good news and always wait for the people who bring it to us. Of course, the biggest news to humanity is the promise of a redeemer, the announcement of salvation and the fact that God will reign over Zion is good news to the Israelites.
+How beautiful upon the mountains are the feet of the messenger who announces peace, who brings good news, who announces salvation, who says to Zion, “Your God reigns.” Is 51:7
+However, the Israelites were expecting a King – who would fight and destroy the nations that are keeping them captive. However God’s ways are not our ways, we will eventually be given Jesus who conquered with love. He did not come to destroy the people who were keeping Israelites' captives but to save them. He would come not to dominate and rule with force, but to submit himself even unto death, to show us 'the way of love' and 'the way of peace'.
+Just as there were many who were astonished at him —so marred was his appearance, beyond human semblance, and his form beyond that of mortals— 15 so he shall startle many nations; kings shall shut their mouths because of him; for that which had not been told them they shall see, and that which they had not heard they shall contemplate. Is 51:14,15
+He was the suffering servant, marred beyond recognition. Even though Jesus is God, He accepted torture at the hands of his creation. He loves us to the point where He took on our sins and our death. He suffered in our place so that we can be saved.
+Your feet will be beautiful to this hurting world if you can carry this good news to them. The news that Jesus loves them dearly, even unto death.
+May the Holy Spirit lead us. 🙏
