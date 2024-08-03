@@ -9,6 +9,9 @@
   * [August 02,2024](#august-022024)
     + [False Prophets](#false-prophets)
     + [Day #215 How beautiful are the feet of the messenger who announces peace](#day-%23215-how-beautiful-are-the-feet-of-the-messenger-who-announces-peace)
+  * [August 03,2024](#august-032024)
+    + [The Suffering Servant](#the-suffering-servant)
+    + [Day #216 By his bruises we are healed](#day-%23216-by-his-bruises-we-are-healed)
 
 <!-- tocstop -->
 
@@ -64,3 +67,22 @@ Just as there were many who were astonished at him —so marred was his appearan
 He was the suffering servant, marred beyond recognition. Even though Jesus is God, He accepted torture at the hands of his creation. He loves us to the point where He took on our sins and our death. He suffered in our place so that we can be saved.
 Your feet will be beautiful to this hurting world if you can carry this good news to them. The news that Jesus loves them dearly, even unto death.
 May the Holy Spirit lead us. 🙏
+
+## August 03,2024
+
+### The Suffering Servant
+
+[![The Suffering Servant](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day216.jpg)](https://youtu.be/A86jWg7J1BI "The Suffering Servant")
+
+### Day #216 By his bruises we are healed
+
+When we get sick or hurt, we immediately turn to medicine and the doctors to cure us. The doctors can prescribe medicine, but healing is from the Lord. We are healed by Jesus, by his bruises we are healed. Medicine and faith go hand in hand – doctors are a gift from God, our intelligence is from God, and advancement in science and technology is a blessing if we use it in accordance with God’s will. According to OT Jewish practice sin brought disease and poverty and prosperity and health were due to a holy life. This statement is true but not a hard and fast rule for every situation, for example, the holy saints suffered even though they did very little sin and a dodgy businessman becomes rich because of his corrupt ways. One thing is sure since God is just “Sin brings punishment” however God does not want to punish us for life, he loves us and wants us to be whole. For a brief moment, He may forsake us, but with great compassion, he will comfort us.
+For a brief moment I abandoned you, but with great compassion I will gather you. In overflowing wrath for a moment I hid my face from you, but with everlasting love I will have compassion on you, says the Lord, your Redeemer. Is 53:7-8
+Our Redeemer Jesus has carried our sins and diseases, he was stricken, wounded, and crushed for our transgressions. He that knew no sin, has taken on all the sins of every single person starting from Adam to the last person alive. We are healed because of Jesus’ suffering on the cross, by his bruises we are healed. Even though our sins should cause us sickness and punishment, Jesus took that suffering on himself. If we repent of our sins and ask for forgiveness, Jesus will not only forgive us our sins but also heal our bodies.
+Surely he has borne our infirmities and carried our diseases; yet we accounted him stricken, struck down by God, and afflicted. 5 But he was wounded for our transgressions, crushed for our iniquities; upon him was the punishment that made us whole, and by his bruises we are healed. 6 All we like sheep have gone astray; we have all turned to our own way, and the Lord has laid on him the iniquity of us all.
+Yet it was the will of the Lord to crush him with pain. When you make his life an offering for sin,
+yet he bore the sin of many, and made intercession for the transgressors.
+Is 53:4-6, 10, 12
+The promise that was given to Noah that the earth will never be destroyed again by a flood is extended to all humanity. In Jesus God promises that he will not be angry with us and the covenant of peace will not be removed. Even though the mountains may depart the hills be removed, God’s steadfast love will not depart from us. God looks at humanity through the lens of Jesus, we can always find God’s never-ending love and mercy in the cross of Jesus.
+This is like the days of Noah to me: Just as I swore that the waters of Noah would never again go over the earth, so I have sworn that I will not be angry with you and will not rebuke you. 10 For the mountains may depart and the hills be removed, but my steadfast love shall not depart from you, and my covenant of peace shall not be removed, says the Lord, who has compassion on you.
+May the Holy Spirit lead us
