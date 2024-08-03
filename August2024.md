@@ -12,6 +12,7 @@
   * [August 03,2024](#august-032024)
     + [The Suffering Servant](#the-suffering-servant)
     + [Day #216 By his bruises we are healed](#day-%23216-by-his-bruises-we-are-healed)
+    + [BIAY Day 216 By Cynthia Dsilva](#biay-day-216-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -86,3 +87,38 @@ Is 53:4-6, 10, 12
 The promise that was given to Noah that the earth will never be destroyed again by a flood is extended to all humanity. In Jesus God promises that he will not be angry with us and the covenant of peace will not be removed. Even though the mountains may depart the hills be removed, God’s steadfast love will not depart from us. God looks at humanity through the lens of Jesus, we can always find God’s never-ending love and mercy in the cross of Jesus.
 This is like the days of Noah to me: Just as I swore that the waters of Noah would never again go over the earth, so I have sworn that I will not be angry with you and will not rebuke you. 10 For the mountains may depart and the hills be removed, but my steadfast love shall not depart from you, and my covenant of peace shall not be removed, says the Lord, who has compassion on you.
 May the Holy Spirit lead us
+
+### BIAY Day 216 By Cynthia Dsilva
+
+Isaiah 53:3
+\*He was despised and rejected by others; a man of suffering and acquainted with infirmity; and as one from whom others hide their faces he was despised, and we held him of no account.\*
+
+The Sanhedrin handed Jesus over to Pilate to be crucified so that He could be hung on a tree according to the punishment laid out for criminals (Deuteronomy 21:22-23), not realising that they were fulfilling the prophecy (Isaiah 53:4-5).
+The people despised Jesus because it looked to them as if God was unhappy with Him and therefore He was being punished as He deserved, according to the blessings and curses under the Law (Deuteronomy 27:11-26 & 28:1-68).
+
+Isaiah 53:5
+\*By his stripes we are healed.\*
+
+This is known as "vicarious suffering" which means "suffering in place of another."
+The Romans usually added lead balls and broken bones on the whips in order to rip off the flesh and cause more bleeding, thus making the wounds look like stripes.
+
+By His hard life, suffering and death Jesus paid the price for our sins and gave us His Blood to purify our souls and thus our souls are healed.
+
+Isaiah 54:1-10
+Our relationship with God is like the relationship of a bride and her groom.
+Therefore, God sees sin as spiritual adultery because sin is not just the breaking of a law or commandment; it is the breaking of our relationship with God because when we sin we abandon Jesus and we hold the hand of Satan (our lover).
+
+Exile is not a divorce. It is just a temporary separation between bride and her groom, who is her provider and protector, so that when the bride starts suffering due to separation she will realize her errors, repent and return to her groom.
+
+God doesn't abandon us when we sin; it is we who abandon Him, and we can re-unite with Him only after we examine our conscience, repent, and confess our sins.
+But it seems like it will be a long time before the people will realize their errors and repent because Isaiah assures them that, although the enemy has occupied their territory, their land will not be lost.  It will be recovered by their descendants.  They will be gathered together in the new Covenant when God will come down on earth to stay with His people (Matthew 28:20).
+
+Sometimes our sufferings look like they are never going to end till we die and that may be true because in all that time God is waiting for us to repent and it is we who are delaying.
+
+Ezekiel 14:13-14
+\*When a land sins against me by acting faithlessly, and I stretch out my hand against it, and break its staff of bread and send famine upon it, and cut off from it human beings and animals, even if Noah, Daniel, and Job were in it, they would save neither sons nor daughters; they would save only their own lives by their righteousness, says the Lord God.\*
+
+This warning is not meant to cause us despair. It is meant to be an encouragement for us to pray and evangelize so that our culture does not reach the depths that is followed by judgment, as it happened with Sodom and Gomorrah.
+Let us therefore get busy and spread the Word of God to everyone around us so that we can transform our ungodly culture into a godly one.
+
+🔥🔥🔥🔥🔥🔥🔥
