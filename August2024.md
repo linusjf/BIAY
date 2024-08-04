@@ -13,6 +13,10 @@
     + [The Suffering Servant](#the-suffering-servant)
     + [Day #216 By his bruises we are healed](#day-%23216-by-his-bruises-we-are-healed)
     + [BIAY Day 216 By Cynthia Dsilva](#biay-day-216-by-cynthia-dsilva)
+  * [August 04,2024](#august-042024)
+    + [The Everlasting Covenant](#the-everlasting-covenant)
+    + [Day #217 For my house shall be called a house of prayer for all peoples](#day-%23217-for-my-house-shall-be-called-a-house-of-prayer-for-all-peoples)
+    + [BIAY Day 217 By Cynthia Dsilva](#biay-day-217-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -120,5 +124,60 @@ Ezekiel 14:13-14
 
 This warning is not meant to cause us despair. It is meant to be an encouragement for us to pray and evangelize so that our culture does not reach the depths that is followed by judgment, as it happened with Sodom and Gomorrah.
 Let us therefore get busy and spread the Word of God to everyone around us so that we can transform our ungodly culture into a godly one.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## August 04,2024
+
+### The Everlasting Covenant
+
+[![The Everlasting Covenant](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day217.jpg)](https://youtu.be/6xWpWX7jF4c "The Everlasting Covenant")
+
+### Day #217 For my house shall be called a house of prayer for all peoples
+
+God’s mercy is never ending and his steadfast love will not depart from us. However, in order to receive God’s forgiveness and mercy we need to seek Him, draw near to him and forsake our evil ways. We need to seek the Lord while he may be found, seek him while we are alive, and have an opportunity to repent – once dead we cannot repent.
+Draw near to God, while he is near, whenever you have an opportunity to pray – use it and don’t lose it. If we return to the Lord he will have mercy on us and he will abundantly pardon us for any sin that we have committed. We may feel like running or hiding when we sin, but we should pray and return to God. For his ways are not our ways and his thoughts higher than our thoughts, just return to him while he may be found.
+Seek the Lord while he may be found, call upon him while he is near; 7 let the wicked forsake their way, and the unrighteous their thoughts; let them return to the Lord, that he may have mercy on them, and to our God, for he will abundantly pardon. 8 For my thoughts are not your thoughts, nor are your ways my ways, says the Lord. 9 For as the heavens are higher than the earth, so are my ways higher than your ways and my thoughts than your thoughts. Is 55
+God’s thoughts are higher than our thoughts, we may condemn and put down people but God treats everyone equally. The people in Isaiah’s time would probably put down the Eunuch and the Foreigner. We should never put down people because of their sexual orientation or ethnicity. The church can determine who is in the state to receive communion(those who are in the state of grace) but as far as worshiping at Mass – all are welcome, whether straight or otherwise, whether rich or poor, no matter what nationality one belongs to, the Catholic Church should welcome everyone, and so should every parish. The House of the Lord will be called a house of prayer for all the peoples. The church is a place not for “saints only” but a refuge for sinners too.
+Do not let the foreigner joined to the Lord say, “The Lord will surely separate me from his people”; and do not let the eunuch say, “I am just a dry tree.” 4 For thus says the Lord: To the eunuchs who keep my sabbaths, who choose the things that please me and hold fast my covenant, 5 I will give, in my house and within my walls, a monument and a name better than sons and daughters; I will give them an everlasting name that shall not be cut off.
+7 these I will bring to my holy mountain, and make them joyful in my house of prayer; their burnt offerings and their sacrifices will be accepted on my altar; for my house shall be called a house of prayer for all peoples. Is 55
+Let us remember to love the Word of God, for God’s word will never return empty, it always accomplishes its purpose. Just like the rain that comes down from heaven waters the earth and brings forth sprouts, giving seed to the sower and bread to the eater. God’s word is alive and active, melting our hearts as we read it.
+10 For as the rain and the snow come down from heaven, and do not return there until they have watered the earth, making it bring forth and sprout, giving seed to the sower and bread to the eater, 11 so shall my word be that goes out from my mouth; it shall not return to me empty, but it shall accomplish that which I purpose, and succeed in the thing for which I sent it.
+
+“The Bible is the only book where the author is present whenever anyone reads it. “
+
+May the Holy Spirit lead us. 🙏
+
+### BIAY Day 217 By Cynthia Dsilva
+
+Isaiah 55:1-3
+Earthly food makes us hungry again but the food which God was promising His people was supernatural food, the Bread of the Presence which was one of the key signs of the Covenant (Exodus 25:30; Leviticus 24:8).
+
+In the new Covenant it is the Body of Christ / the consecrated bread, which is not for sale.
+
+God was inviting His people to the Messianic banquet of the new Covenant where He would feed them with the Bread of life (the Body of Christ) which He gave to us in the Upper Room.
+
+Isaiah 55:10–11
+*For as the rain and the snow come down from heaven, and do not return there until they have watered the earth, making it bring forth and sprout, giving seed to the sower and bread to the eater, so shall my word be that goes out from my mouth; it shall not return to me empty, but it shall accomplish that which I purpose, and succeed in the thing for which I sent it.*
+
+The rain that comes down is not unfruitful and it doesn't return back to where it came from. It waters the earth to give seed to the sower so that he can grow the crop and give bread to the eater to nourish his body.
+
+Similarly, God's Word must bear fruit.  God does not withdraw His commands.
+We cannot just read the Bible, meditate on the verses and close the book.  We must put God's Word into action.  God's Word says that we must love one another, and be kind and generous to others.  We must therefore go one step further and share God's love with others by loving them ourselves, being kind and generous with others without expecting any benefits, and living faithful Christian lives so that others will be drawn to Christ by the splendour of our lives.
+
+When God speaks, His Word does something; it brings rain, it created the world in the beginning, it gave Abraham’s barren wife a son, etc. because God's Word has power and it must bear fruit.
+
+Likewise, when Jesus said, "this is my body” and “this is my blood" His words transformed the bread and wine into His mystical Body and Blood (Matthew 26:26-28).
+
+When we are in union with the Lord, our words also have power because we are created in the likeness of God.
+With our words we can bless others or with our words we can destroy others because death and life are in the power of the tongue (Proverbs 18:21).
+
+Isaiah 56:3-7
+In the old Covenant, foreigners and eunuchs were not allowed to enter the sacred areas of the Temple. Only Levites and the Aaronic priests could enter.
+In the new Covenant, the priestly duties will be carried out by foreigners (non-Jews) who will be eunuchs (celebant).
+
+This prophecy has been fulfilled in the Church where almost all priests are of non-Jewish blood and majority of them remain celebant by choice for the sake of the kingdom of Heaven (Matthew 19:12).
+
+As Isaiah foretold, during worship we come to the Lord’s holy mountain, the heavenly Jerusalem, to offer the prescribed sacrifice, acceptable to God, at His Altar (Hebrews 12:22–24, 28).
 
 🔥🔥🔥🔥🔥🔥🔥
