@@ -17,6 +17,9 @@
     + [The Everlasting Covenant](#the-everlasting-covenant)
     + [Day #217 For my house shall be called a house of prayer for all peoples](#day-%23217-for-my-house-shall-be-called-a-house-of-prayer-for-all-peoples)
     + [BIAY Day 217 By Cynthia Dsilva](#biay-day-217-by-cynthia-dsilva)
+  * [August 05,2024](#august-052024)
+    + [Each Will Be Judged](#each-will-be-judged)
+    + [Day #218 True fasting](#day-%23218-true-fasting)
 
 <!-- tocstop -->
 
@@ -181,3 +184,19 @@ This prophecy has been fulfilled in the Church where almost all priests are of n
 As Isaiah foretold, during worship we come to the Lord’s holy mountain, the heavenly Jerusalem, to offer the prescribed sacrifice, acceptable to God, at His Altar (Hebrews 12:22–24, 28).
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## August 05,2024
+
+### Each Will Be Judged
+
+[![Each Will Be Judged](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day218.jpg)](https://youtu.be/jp4cFECtMjw "Each Will Be Judged")
+
+### Day #218 True fasting
+
+Sometimes when we fast we may have the wrong intentions like “losing weight for lent” or “just to tell everyone we are fasting”. We may sometimes fast for an intention and are laser-focused on the intention – although this is not entirely wrong, the most important thing about fasting is to change our souls. If fasting causes you to get nasty and act badly towards others, then the fasting is not serving its purpose. We can be overly focused on the bodily aspects of fasting instead of the spiritual.
+“Why do we fast, but you do not see? Why humble ourselves, but you do not notice?” Look, you serve your own interest on your fast day, and oppress all your workers. 4 Look, you fast only to quarrel and to fight and to strike with a wicked fist. Such fasting as you do today will not make your voice heard on high. 5 Is such the fast that I choose, a day to humble oneself? Is it to bow down the head like a bulrush, and to lie in sackcloth and ashes? Will you call this a fast, a day acceptable to the Lord? Is 58:3-5
+True fasting should make us better people, we should do good things when we fast. Not just be hungry and angry. We should do charity and good works when we fast. That is why the Church recommends prayer, fasting, and almsgiving as a combined formula for lent. When we fast from food we should also fast from evil – no pointing fingers or speaking evil. We should feed the hungry and satisfy the needs of the poor.
+If you remove the yoke from among you, the pointing of the finger, the speaking of evil, 10 if you offer your food to the hungry and satisfy the needs of the afflicted, then your light shall rise in the darkness and your gloom be like the noonday. 11 The Lord will guide you continually, and satisfy your needs in parched places, and make your bones strong; and you shall be like a watered garden, like a spring of water, whose waters never fail. 12 Your ancient ruins shall be rebuilt; you shall raise up the foundations of many generations; you shall be called the repairer of the breach, the restorer of streets to live in. Is 58
+When we do the right fasting with prayer and almsgiving, God will bless our fast and we will be satisfied, our needs will be met, we will grow strong, and we will be built up. We will be like a watered garden whose water never fails. Our light shall break forth like the dawn.
+Let us fast, pray and love - with a genuine heart. Rend our hearts and not our garments. Jesus reminded us to look good when we fast and not let anyone know, but God who sees our hearts will bless us.
+May the Holy Spirit lead us 🙏
