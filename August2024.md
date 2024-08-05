@@ -20,6 +20,7 @@
   * [August 05,2024](#august-052024)
     + [Each Will Be Judged](#each-will-be-judged)
     + [Day #218 True fasting](#day-%23218-true-fasting)
+    + [BIAY Day 218 By Cynthia Dsilva](#biay-day-218-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -200,3 +201,34 @@ If you remove the yoke from among you, the pointing of the finger, the speaking 
 When we do the right fasting with prayer and almsgiving, God will bless our fast and we will be satisfied, our needs will be met, we will grow strong, and we will be built up. We will be like a watered garden whose water never fails. Our light shall break forth like the dawn.
 Let us fast, pray and love - with a genuine heart. Rend our hearts and not our garments. Jesus reminded us to look good when we fast and not let anyone know, but God who sees our hearts will bless us.
 May the Holy Spirit lead us 🙏
+
+### BIAY Day 218 By Cynthia Dsilva
+
+Isaiah 58:1-10
+The people fasted from food and water, covered themselves with ashes and sackcloth, and followed all the rituals required for fasting but they didn’t change their hearts/conscience.  They continued oppressing their poor workers, quarrelling with each other and doing many things which were not pleasing to the Lord.
+The people gave only lip service to God while their hearts were far from God.
+
+We cannot fulfil our obligations only by following religious rituals.
+God is deeply moved when the poor and needy ones cry out to Him for help and God is deeply hurt when we don't give true love to all the people in our lives.
+God desires to share His love with all humanity and to help the less fortunate ones, but He needs the bodies of His baptized children to do all that.  And before we begin helping others, God wants us to change our hearts so that we do everything with love and not as an obligation.
+
+The old Covenant people were clearly told once, and reminded several times, that God desires mercy towards the less fortunate ones (Deut. 15:11; Hosea 6:6) and Jesus also emphasized on the importance of the same (Matthew 9:13; 12:7).
+
+God doesn’t want our worship to be just an item ticked off on our checklist.  Therefore, fasting, praying, reading the Bible, attending daily/weekly Masses, etc. are of no use if we don’t have true love in our hearts for all the people in our lives and compassion for the poor and needy ones.
+
+Ezekiel 18:4 & 20
+God was speaking of spiritual death (Hell) (Ezekiel 18:4) because all humans are anyway subject to physical death.
+
+No one is culpable for another person’s sins but when we commit mortal sins and we are comfortable living with them then we give the devil a foothold in our homes and the devil’s aim is to destroy families because our earthly families were designed by God to be a symbol of the heavenly family.  Therefore, if we have committed a mortal sin then we must confess our sin immediately, without delay, and ensure that we live in obedience to God and keep our souls purified at all times.
+
+If we are leading holy lives and suffering because of the sins of others, it is because we are members of the human family and our sins affect one another in various ways.  And God allows this to happen to us so that His grace can flow through us when we pray for our offenders while we are also spiritually healed.
+
+Ezekiel 18:21-28
+For a Christian, God's condition for judgement may seem fair, and so it is, but for the ancient Israelites it was an unfair judgment.
+
+The ancient Israelites believed that they would receive eternal life if they lived righteous lives for a longer time, even if they  ended up dying in sin, and not according the state of their souls when they died. So, according to them, receiving or losing eternal life depended upon which kind of life they lived on earth for a longer time, that is, righteous or unrighteous.
+Therefore, the people were complaining because they found God’s judgement to be unfair.
+
+Let us check if we also believe what those ancient Israelites believed or whether we accept God's judgement as fair and just.
+
+🔥🔥🔥🔥🔥🔥🔥
