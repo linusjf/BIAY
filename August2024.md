@@ -21,6 +21,8 @@
     + [Each Will Be Judged](#each-will-be-judged)
     + [Day #218 True fasting](#day-%23218-true-fasting)
     + [BIAY Day 218 By Cynthia Dsilva](#biay-day-218-by-cynthia-dsilva)
+  * [August 06,2024](#august-062024)
+    + [Separation from God](#separation-from-god)
 
 <!-- tocstop -->
 
@@ -232,3 +234,9 @@ Therefore, the people were complaining because they found God’s judgement to b
 Let us check if we also believe what those ancient Israelites believed or whether we accept God's judgement as fair and just.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## August 06,2024
+
+### Separation from God
+
+[![Separation from God](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day219.jpg)](https://youtu.be/8q5usBJOvC8 "Separation from God")
