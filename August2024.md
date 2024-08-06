@@ -23,6 +23,7 @@
     + [BIAY Day 218 By Cynthia Dsilva](#biay-day-218-by-cynthia-dsilva)
   * [August 06,2024](#august-062024)
     + [Separation from God](#separation-from-god)
+    + [Day #219 Growing little by little makes one stronger](#day-%23219-growing-little-by-little-makes-one-stronger)
 
 <!-- tocstop -->
 
@@ -240,3 +241,15 @@ Let us check if we also believe what those ancient Israelites believed or whethe
 ### Separation from God
 
 [![Separation from God](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day219.jpg)](https://youtu.be/8q5usBJOvC8 "Separation from God")
+
+### Day #219 Growing little by little makes one stronger
+
+Many people dream to win the lottery, especially those who have a lot of debts. We see poor people spending their money on lottery tickets. Most people will never win big prizes and those who actually win the jackpot will not know how to handle the big money.
+Research shows that Lottery winners are more likely to declare bankruptcy within three to five years than the average American. What’s more, studies have shown that winning the lottery does not necessarily make you happier or healthier.
+This proverb sheds wisdom on this aspect of our lives.
+Wealth hastily gotten will dwindle, but those who gather little by little will increase it. Prov 13:11
+Winning a lot of money won't make us rich, money will usually will dwindle pretty soon. For people are not prepared for it and they don’t know what to do with the money. Of course, there could be expectations that people have managed their finances well after winning a lottery.
+On the other hand, one who slowly accumulates their wealth will know the value of money and will spend it wisely. That is why rich parents are advised to give little money to their kids else they will be spoiled.
+The struggle that we face to climb the ladder of progress is good for us, it will teach us to be humble and wise in our spending. A lot of money will never make anyone happy, they may be happy for a little bit but will soon get bored. True happiness is in the process of struggling and growing.
+It’s the same with our faith life, we cannot suddenly expect to grow and be given all the gifts. We will not know how to use the gifts of the Holy Spirit, that is why we need to slowly discover them. We need to struggle and journey so that we know the value of our spiritual gifts and our faith life. We need to walk daily with the Lord, we need to learn how to deny ourselves and slowly grow. If we fall we should get up and try again, never get disappointed but “keep On keeping ON”. May we receive the strength to follow the Lord closely, every day.
+May the Holy Spirit lead us. 🙏
