@@ -24,9 +24,11 @@
   * [August 06,2024](#august-062024)
     + [Separation from God](#separation-from-god)
     + [Day #219 Growing little by little makes one stronger](#day-%23219-growing-little-by-little-makes-one-stronger)
+    + [BIAY Day 219 By Cynthia Dsilva](#biay-day-219-by-cynthia-dsilva)
   * [August 07,2024](#august-072024)
     + [Prophecy Fulfilled](#prophecy-fulfilled)
     + [Day #220 The oil of gladness instead of mourning](#day-%23220-the-oil-of-gladness-instead-of-mourning)
+    + [BIAY Day 220 By Cynthia Dsilva](#biay-day-220-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -257,6 +259,17 @@ The struggle that we face to climb the ladder of progress is good for us, it wil
 It’s the same with our faith life, we cannot suddenly expect to grow and be given all the gifts. We will not know how to use the gifts of the Holy Spirit, that is why we need to slowly discover them. We need to struggle and journey so that we know the value of our spiritual gifts and our faith life. We need to walk daily with the Lord, we need to learn how to deny ourselves and slowly grow. If we fall we should get up and try again, never get disappointed but “keep On keeping ON”. May we receive the strength to follow the Lord closely, every day.
 May the Holy Spirit lead us. 🙏
 
+### BIAY Day 219 By Cynthia Dsilva
+
+Isaiah 59:1-2
+*The Lord’s hand is not too short to save, nor his ear too dull to hear.  Rather, your iniquities have been barriers between you and your God, and your sins have hidden his face from you so that he does not hear.*
+
+When we confess our sins to the priest and our sins are forgiven, the barrier between God and us is removed and we are reconciled with God.
+
+Therefore, if our prayers have not been answered for a long time, we need to examine ourselves and check if we have been obedient to God, or not.  If not, then we need to repent and correct our errors.
+
+🔥🔥🔥🔥🔥🔥🔥
+
 ## August 07,2024
 
 ### Prophecy Fulfilled
@@ -275,3 +288,14 @@ I will greatly rejoice in the Lord, my whole being shall exult in my God; for he
 Jesus clothes us in garments of holiness, by the blood of His sacrifice. We are called to the wedding banquet of the Eucharist where the Bridegroom - Jesus rejoices over His bride the Church.
 For as a young man marries a young woman, so shall your builder marry you, and as the bridegroom rejoices over the bride, so shall your God rejoice over you. Is 62:5
 May the Holy Spirit lead us 🙏
+
+### BIAY Day 220 By Cynthia Dsilva
+
+Isaiah 62:1-5
+The bride will have a name change after marriage.
+Most communities follow this tradition after marriage. But this is only a reflection of our spiritual marriage to Jesus during Mass in the new Covenant.
+After her marriage with God, the new name of Jerusalem (the bride/the Church) will be "married/Mrs." ("Beulah" in Hebrew).  She will no longer be called abandoned / forsaken ("Azubah" in Hebrew) or barren / desolate ("Shemamah" in Hebrew) because after her marriage with God (the Son) during Mass she will have a spouse (Jesus) and she will go forth and evangelize to increase and multiply and fill the Church with souls.
+
+Therefore, whenever we go to Church to attend Mass/the marriage feast of the Lamb, we must always dress modestly, as is also required of a bride, because we, the brides of Christ, are going to Church to marry the Holy King.
+
+🔥🔥🔥🔥🔥🔥🔥
