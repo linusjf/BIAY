@@ -29,6 +29,9 @@
     + [Prophecy Fulfilled](#prophecy-fulfilled)
     + [Day #220 The oil of gladness instead of mourning](#day-%23220-the-oil-of-gladness-instead-of-mourning)
     + [BIAY Day 220 By Cynthia Dsilva](#biay-day-220-by-cynthia-dsilva)
+  * [August 08,2024](#august-082024)
+    + [Walking with Wise Men](#walking-with-wise-men)
+    + [Day #221 There is none to stand in the breach before God](#day-%23221-there-is-none-to-stand-in-the-breach-before-god)
 
 <!-- tocstop -->
 
@@ -299,3 +302,20 @@ After her marriage with God, the new name of Jerusalem (the bride/the Church) wi
 Therefore, whenever we go to Church to attend Mass/the marriage feast of the Lamb, we must always dress modestly, as is also required of a bride, because we, the brides of Christ, are going to Church to marry the Holy King.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## August 08,2024
+
+### Walking with Wise Men
+
+[![Walking with Wise Men](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day221.jpg)](https://youtu.be/vVGz1ffIhZ8 "Walking with Wise Men")
+
+### Day #221 There is none to stand in the breach before God
+
+We read about this pitiful condition of the Israelites in exile. The prophets who are supposed to be God’s mouthpiece are speaking as they like, they are giving out messages that they did not receive, they speak of false visions. The people in the land are practicing extortion and committing robbery, the poor are oppressed and the needy neglected.
+Its prophets have smeared whitewash on their behalf, seeing false visions and divining lies for them, saying, “Thus says the Lord God,” when the Lord has not spoken. 29 The people of the land have practiced extortion and committed robbery; they have oppressed the poor and needy, and have extorted from the alien without redress. 30 And I sought for anyone among them who would repair the wall and stand in the breach before me on behalf of the land, so that I would not destroy it; but I found no one. 31 Therefore I have poured out my indignation upon them; I have consumed them with the fire of my wrath; I have returned their conduct upon their heads, says the Lord God. Eze 22: 28-31
+There is no one to stand in the breach and intercede for these people. No one, not even one is found to pray for the nation.
+This seems the case with the world even today, sin, violence and Godlessness are very common, and people are losing their faith. We need leaders to speak the truth to the people, not just being poetically correct but being a mouthpiece of the Lord. We need "prayer warriors" to stand in the gap between mankind and God and pray for this world. Just like Abraham prayed for the city of Sodom, we should plead to the Lord for our cities even to the very last person – even if there is one righteous person the Lord will save the whole city.
+We are not alone in the breech; Jesus is with us carrying one side of the yoke. Jesus is the great interceder who not only prays for the people but also sacrificed himself for our sins.
+33 Who will bring any charge against God’s elect? It is God who justifies. 34 Who is to condemn? It is Christ Jesus, who died, yes, who was raised, who is at the right hand of God, who indeed intercedes for us Rom 8:33,34
+Jesus is at the right hand of the Father, praying for us and interceding for us, we just need to partner with Jesus in prayer, praying for the world to change.
+May the Holy Spirit lead us. 🙏
