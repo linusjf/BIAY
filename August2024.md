@@ -32,6 +32,9 @@
   * [August 08,2024](#august-082024)
     + [Walking with Wise Men](#walking-with-wise-men)
     + [Day #221 There is none to stand in the breach before God](#day-%23221-there-is-none-to-stand-in-the-breach-before-god)
+  * [August 09,2024](#august-092024)
+    + [Idolatry and Adultery](#idolatry-and-adultery)
+    + [Day #222 Indifferent toward God](#day-%23222-indifferent-toward-god)
 
 <!-- tocstop -->
 
@@ -319,3 +322,19 @@ We are not alone in the breech; Jesus is with us carrying one side of the yoke. 
 33 Who will bring any charge against God’s elect? It is God who justifies. 34 Who is to condemn? It is Christ Jesus, who died, yes, who was raised, who is at the right hand of God, who indeed intercedes for us Rom 8:33,34
 Jesus is at the right hand of the Father, praying for us and interceding for us, we just need to partner with Jesus in prayer, praying for the world to change.
 May the Holy Spirit lead us. 🙏
+
+## August 09,2024
+
+### Idolatry and Adultery
+
+[![Idolatry and Adultery](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day222.jpg)](https://youtu.be/mztKHw5OKqk "Idolatry and Adultery")
+
+### Day #222 Indifferent toward God
+
+The prophet Ezekiel is called to act out the prophecy in a very real way, he is also called the performance arts prophet. Because he not only prophecies with his words He also acts out/performs actions so that the Israelites will vividly remember the prophesies when it comes to pass.
+The Lord will take away the prophet Ezekiel’s wife, the delight of his eye, the woman he truly loved. When someone loses their life partner, they would go into mourning and feel as though everything is lost, especially if the death is sudden. Everyone knew that Ezekiel loved his wife and just could not understand why he was not mourning for her. He was enacting what the Lord asked him to do, this was just a foreshadowing of what the Israelites would do when the temple would be destroyed. The temple was the pride of Israel, the delight of their eye.
+15 The word of the Lord came to me: 16 Mortal, with one blow I am about to take away from you the delight of your eyes; yet you shall not mourn or weep, nor shall your tears run down. 17 Sigh, but not aloud; make no mourning for the dead. Bind on your turban, and put your sandals on your feet; do not cover your upper lip or eat the bread of mourners.18 So I spoke to the people in the morning, and at evening my wife died. And on the next morning I did as I was commanded.
+19 Then the people said to me, “Will you not tell us what these things mean for us, that you are acting this way?” 20 Then I said to them: The word of the Lord came to me: 21 Say to the house of Israel, Thus says the Lord God: I will profane my sanctuary, the pride of your power, the delight of your eyes, and your heart’s desire; and your sons and your daughters whom you left behind shall fall by the sword. 22 And you shall do as I have done; you shall not cover your upper lip or eat the bread of mourners.23 Your turbans shall be on your heads and your sandals on your feet; you shall not mourn or weep, but you shall pine away in your iniquities and groan to one another. 24 Thus Ezekiel shall be a sign to you; you shall do just as he has done. When this comes, then you shall know that I am the Lord God. Eze 24:15-24
+This indifference towards God can be seen even today in our generation. We do not seem to be moved when we see people doing evil things. Even if God and Holy things are desecrated, we tend to not even bother. When there is evil within the church we just want to brush it under the carpet and. When there are evil laws passed, we just ignore them. When our kids don’t go to church we don’t correct them. When people are living scandalous lives we are okay with it. We cannot be indifferent to the poor, the hungry, the evildoers. We need to take a stand for Christ in this ungodly world. We cannot be indifferent but have to be concerned and pray for this world. We cannot be lukewarm, since we are neither hot nor cold the Lord is about to spit us out of His mouth.
+15 “I know your works; you are neither cold nor hot. I wish that you were either cold or hot. 16 So, because you are lukewarm, and neither cold nor hot, I am about to spit you out of my mouth.Rev 3:15-16
+May the Holy Spirit lead us.🙏
