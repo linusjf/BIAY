@@ -35,6 +35,9 @@
   * [August 09,2024](#august-092024)
     + [Idolatry and Adultery](#idolatry-and-adultery)
     + [Day #222 Indifferent toward God](#day-%23222-indifferent-toward-god)
+  * [August 10,2024](#august-102024)
+    + [Responding Well](#responding-well)
+    + [Day #223 The New Covenant](#day-%23223-the-new-covenant)
 
 <!-- tocstop -->
 
@@ -338,3 +341,19 @@ The Lord will take away the prophet Ezekiel’s wife, the delight of his eye, th
 This indifference towards God can be seen even today in our generation. We do not seem to be moved when we see people doing evil things. Even if God and Holy things are desecrated, we tend to not even bother. When there is evil within the church we just want to brush it under the carpet and. When there are evil laws passed, we just ignore them. When our kids don’t go to church we don’t correct them. When people are living scandalous lives we are okay with it. We cannot be indifferent to the poor, the hungry, the evildoers. We need to take a stand for Christ in this ungodly world. We cannot be indifferent but have to be concerned and pray for this world. We cannot be lukewarm, since we are neither hot nor cold the Lord is about to spit us out of His mouth.
 15 “I know your works; you are neither cold nor hot. I wish that you were either cold or hot. 16 So, because you are lukewarm, and neither cold nor hot, I am about to spit you out of my mouth.Rev 3:15-16
 May the Holy Spirit lead us.🙏
+
+## August 10,2024
+
+### Responding Well
+
+[![Responding Well](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day223.jpg)](https://youtu.be/-7vNY3fhsrk "Responding Well")
+
+### Day #223 The New Covenant
+
+Even though Israel was the chosen people of God the story does not end there. Everyone is a child of God whether Israelite or Pagan. God reveals this new covenant through the prophet Isaiah. God is making a new covenant with humanity, expanding "all flesh" to be part of his kingdom. A new heaven and a new earth God is making, Jesus will establish this kingdom and this kingdom will never end, and everyone is welcome. The priesthood is now opened up to everyone – not just the tribe of levities.
+For as the new heavens and the new earth, which I will make, shall remain before me, says the Lord; so shall your descendants and your name remain. From new moon to new moon, and from sabbath to sabbath, all flesh shall come to worship before me, says the Lord. Is 66: 22,23
+This new kingdom will be a kingdom of abundance – an abundance of Mercy, Love, and Peace. This kingdom will be a prosperous Kingdom, flowing like a river and wealth like an overflowing stream. God will comfort us with the new covenant – just as a mother comforts her child.
+For thus says the Lord: I will extend prosperity to her like a river, and the wealth of the nations like an overflowing stream; and you shall nurse and be carried on her arm, and dandled on her knees. 13 As a mother comforts her child, so I will comfort you; you shall be comforted in Jerusalem. Is 66:12,13
+In this new covenant, we can find endless streams of God’s mercy flowing from Jesus’s side on the cross. We have access to the richest food, which is God Himself – Jesus’ Body and blood. The Holy Spirit has been poured out into our hearts, the living waters which never dry up.
+Let us be thankful and rejoice that we are in the new covenant. Thank you, Jesus.
+May the Holy Spirit lead us 🙏
