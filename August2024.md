@@ -39,6 +39,9 @@
     + [Responding Well](#responding-well)
     + [Day #223 The New Covenant](#day-%23223-the-new-covenant)
     + [BIAY Day 223 By Cynthia Dsilva](#biay-day-223-by-cynthia-dsilva)
+  * [August 11,2024](#august-112024)
+    + [The Weeping Prophet](#the-weeping-prophet)
+    + [Day #224 Jeremiah’s call is our call](#day-%23224-jeremiahs-call-is-our-call)
 
 <!-- tocstop -->
 
@@ -367,3 +370,24 @@ Jesus chose Paul to fulfill this prophecy.  Paul went far and wide to the gentil
 Paul later ordained many of them to serve as priests and deacons/Levites in the Church (Acts 20:28).
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## August 11,2024
+
+### The Weeping Prophet
+
+[![The Weeping Prophet](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day224.jpg)](https://youtu.be/mJ0TsNpvk6Y "The Weeping Prophet")
+
+### Day #224 Jeremiah’s call is our call
+
+Just reading Jeremiah’s call gives me goosebumps. Our dear “Abba” - Father God knew us before we were born, He formed us in our mother's womb and appointed us to be a prophet to the nations.
+Now the word of the Lord came to me saying,
+5 “Before I formed you in the womb I knew you, and before you were born I consecrated you; I appointed you a prophet to the nations.”
+6 Then I said, “Ah, Lord God! Truly I do not know how to speak, for I am only a boy.” 7 But the Lord said to me,
+“Do not say, ‘I am only a boy’; for you shall go to all to whom I send you, and you shall speak whatever I command you. 8 Do not be afraid of them, for I am with you to deliver you, says the Lord.”
+9 Then the Lord put out his hand and touched my mouth; and the Lord said to me,
+“Now I have put my words in your mouth. 10 See, today I appoint you over nations and over kingdoms, to pluck up and to pull down, to destroy and to overthrow, to build and to plant.” Jer 1:4-10
+We are all called to evangelize, to let our light shine before all. There is no exception to this calling, every Christian is called to bear Christ – that is why we are called Christians (Christian means Christ-bearer). We are supposed to be the salt of the earth and the light of the world.
+It can seem frightening to Evangelize as we may not feel prepared to do so.
+Jeremiah was but a boy and the Lord knew that Jeremiah would not feel ready to be a prophet, to speak God’s word. That is why in the call itself God told him not to fear or feel inferior to anyone. God reminds us as we read this, that we should not fear anything or anyone – but rely on God fully. We should only speak what the Lord is guiding us to speak.
+Just as the Lord touched the tongue of Jeremiah and anointed and appointed him to be a prophet to the nations. Jesus touches our tongues every time we receive Communion. At the end of Mass, we are commissioned by the priest (Jesus in the person of the priest) to go out and announce the Good news of the Lord. We can go out boldly knowing that God is with us, wherever we go and He will confirm the Good news we announce with signs and wonders. Let us not fear, but step out in faith, for the God who formed us in our mother’s womb is with us, till the end of times.
+May the Holy Spirit lead us. 🙏
