@@ -47,6 +47,10 @@
     + [Our Will vs. God's Will](#our-will-vs-gods-will)
     + [Day #225 Cracked cisterns instead of fountains of living water](#day-%23225-cracked-cisterns-instead-of-fountains-of-living-water)
     + [BIAY Day 225 By Cynthia Dsilva](#biay-day-225-by-cynthia-dsilva)
+    + [DAY 225 By Sheila](#day-225-by-sheila)
+  * [August 13,2024](#august-132024)
+    + [Unfaithful Israel](#unfaithful-israel)
+    + [Day #226 True freedom is found in a Christ-centered life.](#day-%23226-true-freedom-is-found-in-a-christ-centered-life)
 
 <!-- tocstop -->
 
@@ -460,3 +464,41 @@ If we lead a busy life, with so many worldly activities which are not connected 
 Angels don’t have the option to repent for their sins and therefore Lucifer and his minions will remain permanently out of Heaven.  But we, humans, are so blessed that God, in His love for us, has given us, in the Sacrament of Reconciliation, the option to repent and renew the Covenant, which we break with our sins.  Therefore, let us not ignore or reject God’s mercy; let us ensure to repent and confess our sins and receive the Sacraments of Reconciliation & Eucharist regularly so that we can remain in a Covenant relation with God at all times.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+### DAY 225 By Sheila
+
+JEREMIAH speaks of the intimacy of the Covenant Relationship between God and Israel denoting love, loyalty and a devotion like a young bride to the Lord. Israel was God's first fruit of the Nature.
+
+According to the Old Testament, first fruit of the harvest belonged to God. The lsraelites had the full resources to God, the Living Water, yet took roads to broken cisterns or a black river. As Verse 37 "Your hands on your heads" Indicates, subject to foreign power.
+EZEKIEL emphasized the gravity of sins of the King of Tyre. Verse 18 Fire represents God's Judgment.
+PROVERBS speaks of the right way that leads to success and happiness and obedience to the Will of God. Sin is often able to hide its own character, an easy path that leads to an early death.
+
+## August 13,2024
+
+### Unfaithful Israel
+
+[![Unfaithful Israel](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day226.jpg)](https://youtu.be/8j4wGdi7jWE "Unfaithful Israel")
+
+### Day #226 True freedom is found in a Christ-centered life.
+
+This proverb is so relevant to our times where everyone just wants the freedom to do as they please. We are a generation that doesn’t like restraints, borders, or limitations. We fight for rights and demand that everyone is given an opportunity to do as they please with their bodies/lives. We don’t like moderate living or many rules but are rebellious and careless.
+The wise are cautious and turn away from evil, but the fool throws off restraint and is careless. Prov 14:16
+Freedom seems to be misunderstood in our generation, freedom does not mean that we get to be God, we get to do what we want. Freedom means we choose what is good, and hold onto what is good.
+Christ has set us free, by His life, death, and resurrection. A heavy price was paid for our freedom.
+Our Salvation is free, not cheap,
+Christ paid for our sins. We are called to Freedom and not to misuse our freedom.
+13 For you were called to freedom, brothers and sisters; only do not use your freedom as an opportunity for self-indulgence, but through love become slaves to one another. 14 For the whole law is summed up in a single commandment, “You shall love your neighbor as yourself.”Rom 5:13,14
+Our Freedom should lead us to a holy life, a Christ-Centered life, not a Live where we are free to do what we want. We will never be satisfied if we just do what we want, in fact, the one who throws away restraint is called a fool in the proverb. No one can ride a horse without a bit/bridle in its mouth or control a ship without a rudder and wheel. A life without restraint is like riding a wild horse.
+Let us find true freedom in Christ, the freedom to love our neighbor as we love ourselves.
+May the Holy Spirit lead us. 🙏
+Day#227 Circumcise yourselves to the Lord and remove the foreskin of your hearts.
+Sometimes our faith life can get limited to the outward following of rituals instead of heart-filled worship. We can be going through the motions in our spiritual life and not even know it. We may be praying but our heart is far from the Lord. The Jewish people have lost the true essence of the covenant they had with the Lord. They needed a wake-up call, a great awakening. The Lord is trying to get His people back, prophet after prophet is calling out to the people to repent. Prophet Jeremiah has been preaching repentance for years now, he cries out.
+Circumcise yourselves to the Lord, remove the foreskin of your hearts Jer 4:4
+It is very important to be cut to the heart, each time we repent. Just following the customs or babbling prayers may make us just like the Pharisees and teachers of the Law who stood on street corners and prayed lengthy prayers and made a big show of the charity they did.
+We are called to make humble prayers, prayers of a child to the Father. For God will hear those prayers that come from the heart.
+But when you pray, go into your room, close the door and pray to your Father, who is unseen. Then your Father, who sees what is done in secret, will reward you. Mat 6:6
+When we make a confession, we are usually listing out all the sins that we committed. Along with confessing those sins, we should also take resolve, to avoid them in the future. The Change has to be in the heart, truly sincere and genuine. A contrite heart the Lord will not despise.
+The heart is where all sin originates and then becomes actions. Jesus reminds us that outward customs of washing of hands is not as important as having a clean heart.
+Then he said, “Are you also still without understanding? 17 Do you not see that whatever goes into the mouth enters the stomach, and goes out into the sewer? 18 But what comes out of the mouth proceeds from the heart, and this is what defiles. 19 For out of the heart come evil intentions, murder, adultery, fornication, theft, false witness, slander. 20 These are what defile a person, but to eat with unwashed hands does not defile.” Mat 15:16-19
+So let us examine our hearts and circumcise ourselves to the Lord, remove the foreskin of the heart(Speaking metaphorically like the Scripture.). Let us rend our hearts and not our garments.
+May the Holy Spirit lead us. 🙏
