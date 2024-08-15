@@ -56,6 +56,9 @@
   * [August 14,2024](#august-142024)
     + [The Towering Cedar](#the-towering-cedar)
     + [Day #227 Circumcise yourselves to the Lord and remove the foreskin of your hearts.](#day-%23227-circumcise-yourselves-to-the-lord-and-remove-the-foreskin-of-your-hearts-1)
+  * [August 15,2024](#august-152024)
+    + [The Watchman's Duty](#the-watchmans-duty)
+    + [Day #228 A Sentinel just cannot keep quiet when he sees the sword coming](#day-%23228-a-sentinel-just-cannot-keep-quiet-when-he-sees-the-sword-coming)
 
 <!-- tocstop -->
 
@@ -550,3 +553,23 @@ The heart is where all sin originates and then becomes actions. Jesus reminds us
 Then he said, “Are you also still without understanding? 17 Do you not see that whatever goes into the mouth enters the stomach, and goes out into the sewer? 18 But what comes out of the mouth proceeds from the heart, and this is what defiles. 19 For out of the heart come evil intentions, murder, adultery, fornication, theft, false witness, slander. 20 These are what defile a person, but to eat with unwashed hands does not defile.” Mat 15:16-19
 So let us examine our hearts and circumcise ourselves to the Lord, remove the foreskin of the heart(Speaking metaphorically like the Scripture.). Let us rend our hearts and not our garments.
 May the Holy Spirit lead us.
+
+## August 15,2024
+
+### The Watchman's Duty
+
+[![The Watchman's Duty](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day228.jpg)](https://youtu.be/ny2lKJJNRhI "The Watchman's Duty")
+
+### Day #228 A Sentinel just cannot keep quiet when he sees the sword coming
+
+This is such a beautiful read, a good reminder to speak up and warn this world. It is worth reading God’s word one more time. It’s explained in such clarity that we need not add much of an explanation.
+
+The word of the LORD came to me: 2 O Mortal, speak to your people and say to them, If I bring the sword upon a land, and the people of the land take one of their number as their sentinel; 3 and if the sentinel sees the sword coming upon the land and blows the trumpet and warns the people; 4 then if any who hear the sound of the trumpet do not take warning, and the sword comes and takes them away, their blood shall be upon their own heads. 5 They heard the sound of the trumpet and did not take warning; their blood shall be upon themselves. But if they had taken warning, they would have saved their lives. 6 But if the sentinel sees the sword coming and does not blow the trumpet, so that the people are not warned, and the sword comes and takes any of them, they are taken away in their iniquity, but their blood I will require at the sentinel’s hand.
+7 So you, mortal, I have made a sentinel for the house of Israel; whenever you hear a word from my mouth, you shall give them warning from me. 8 If I say to the wicked, “O wicked ones, you shall surely die,” and you do not speak to warn the wicked to turn from their ways, the wicked shall die in their iniquity, but their blood I will require at your hand. 9 But if you warn the wicked to turn from their ways, and they do not turn from their ways, the wicked shall die in their iniquity, but you will have saved your life. Ezekiel 33:1-9
+We can sometimes try to be politically correct or avoid confrontation. But we are the Sentinel who needs to blow the trumpet, if we don’t speak up the blood of the innocent will be on our hands. For Example: If we do not take a stand for abortion rights, we will be accountable for the innocent babies. If we fail to correct our children who want to cohabitate before marriage, we are liable for their sins. If we allow evil to enter this society without any pushback we will be held responsible for future generations.
+We not only need to speak up but have to live a just life. We cannot be a hypocrite, speak against sin and commit it ourselves. If we live bad lives and call ourselves Christians, we are actually leading others to sin – it’s the sin of scandal.
+
+The Catechism of the Catholic Church defines scandal as “an attitude or behavior which leads another to do evil. The person who gives scandal becomes his neighbor’s tempter. He damages virtue and integrity; he may even draw his brother into spiritual death.” Our Lord militates against scandal, and even ties a curse to those who promote it: “Whoever causes one of these little ones who believe in me to sin, it would be better for him to have a great millstone fastened round his neck and to be drowned in the depth of the sea” (Matt 18:6).
+
+Let us be a good Sentinel/Watchman and warn this generation of the evil we are committing. It does not matter if they listen or not, we just need to speak the truth in love.
+May the Holy Spirit lead us. 🙏
