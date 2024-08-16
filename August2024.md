@@ -59,6 +59,9 @@
   * [August 15,2024](#august-152024)
     + [The Watchman's Duty](#the-watchmans-duty)
     + [Day #228 A Sentinel just cannot keep quiet when he sees the sword coming](#day-%23228-a-sentinel-just-cannot-keep-quiet-when-he-sees-the-sword-coming)
+  * [August 16,2024](#august-162024)
+    + [Shepherds of Israel](#shepherds-of-israel)
+    + [Day #229 The Lord will be our Shepherd](#day-%23229-the-lord-will-be-our-shepherd)
 
 <!-- tocstop -->
 
@@ -572,4 +575,22 @@ We not only need to speak up but have to live a just life. We cannot be a hypocr
 The Catechism of the Catholic Church defines scandal as “an attitude or behavior which leads another to do evil. The person who gives scandal becomes his neighbor’s tempter. He damages virtue and integrity; he may even draw his brother into spiritual death.” Our Lord militates against scandal, and even ties a curse to those who promote it: “Whoever causes one of these little ones who believe in me to sin, it would be better for him to have a great millstone fastened round his neck and to be drowned in the depth of the sea” (Matt 18:6).
 
 Let us be a good Sentinel/Watchman and warn this generation of the evil we are committing. It does not matter if they listen or not, we just need to speak the truth in love.
+May the Holy Spirit lead us. 🙏
+
+## August 16,2024
+
+### Shepherds of Israel
+
+[![Shepherds of Israel](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day229.jpg)](https://youtu.be/aPLc49xQNBE "Shepherds of Israel")
+
+### Day #229 The Lord will be our Shepherd
+
+As we read through the OT we see that the Spiritual leaders were not really doing what they were called to. They are not taking good care of those entrusted to their care.
+The word of the Lord came to me: 2 “Son of man, prophesy against the shepherds of Israel; prophesy and say to them: ‘This is what the Sovereign Lord says: Woe to you shepherds of Israel who only take care of yourselves! Should not shepherds take care of the flock? 3 You eat the curds, clothe yourselves with the wool and slaughter the choice animals, but you do not take care of the flock. 4 You have not strengthened the weak or healed the sick or bound up the injured. You have not brought back the strays or searched for the lost. You have ruled them harshly and brutally. 5 So they were scattered because there was no shepherd, and when they were scattered they became food for all the wild animals. 6 My sheep wandered over all the mountains and on every high hill. They were scattered over the whole earth, and no one searched or looked for them. Eze 34:1-6
+Sometimes parishes can face this problem when the pastor does not be a shepherd to the flock. This could be the case when a Parent does not care for the children. This could be the case when a teacher does not really take care of her class. Everyone is called to serve in some capacity or the other and when we fail to live up to our calling, we end up like the shepherds of Israel. Failing in our responsibility is actually okay as long as we want to do better and try to improve. As long as we are not like the shepherds of Israel who only took care of themselves, who ate and cloth themselves well and ignored the people under their care. Who did not bind up the wounds properly.
+They have treated the wound of my people carelessly, saying, “Peace, peace,” when there is no peace. Jer 6:14
+Let us not tell people that all is good when things are not good, we should be genuine in our message and care for others. The shepherds of Israel would give false hope to the people telling them that everything is fine when it actually was not. They would say Peace when there was no peace.
+Let the bad example of the shepherds of Israel lead us to become good shepherds. Good shepherds after the heart of Jesus “The Good Shepherd”.
+Jesus the Good shepherd fulfilled this promise that God made us through the prophet Ezekiel.
+11 “‘For this is what the Sovereign Lord says: I myself will search for my sheep and look after them. 12 As a shepherd looks after his scattered flock when he is with them, so will I look after my sheep. I will rescue them from all the places where they were scattered on a day of clouds and darkness. 13 I will bring them out from the nations and gather them from the countries, and I will bring them into their own land. I will pasture them on the mountains of Israel, in the ravines and in all the settlements in the land. 14 I will tend them in a good pasture, and the mountain heights of Israel will be their grazing land. There they will lie down in good grazing land, and there they will feed in a rich pasture on the mountains of Israel. 15 I myself will tend my sheep and have them lie down, declares the Sovereign Lord. 16 I will search for the lost and bring back the strays. I will bind up the injured and strengthen the weak, but the sleek and the strong I will destroy. I will shepherd the flock with justice. Eze 33: 11-16
 May the Holy Spirit lead us. 🙏
