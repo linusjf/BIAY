@@ -62,9 +62,11 @@
   * [August 16,2024](#august-162024)
     + [Shepherds of Israel](#shepherds-of-israel)
     + [Day #229 The Lord will be our Shepherd](#day-%23229-the-lord-will-be-our-shepherd)
+    + [BIAY Day 229 By Cynthia Dsilva](#biay-day-229-by-cynthia-dsilva)
   * [August 17,2024](#august-172024)
     + [A New Heart](#a-new-heart)
     + [Day #230 I will remove from you your heart of stone and give you a heart of flesh.](#day-%23230-i-will-remove-from-you-your-heart-of-stone-and-give-you-a-heart-of-flesh)
+    + [BIAY Day 230 By Cynthia Dsilva](#biay-day-230-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -598,6 +600,25 @@ Jesus the Good shepherd fulfilled this promise that God made us through the prop
 11 “‘For this is what the Sovereign Lord says: I myself will search for my sheep and look after them. 12 As a shepherd looks after his scattered flock when he is with them, so will I look after my sheep. I will rescue them from all the places where they were scattered on a day of clouds and darkness. 13 I will bring them out from the nations and gather them from the countries, and I will bring them into their own land. I will pasture them on the mountains of Israel, in the ravines and in all the settlements in the land. 14 I will tend them in a good pasture, and the mountain heights of Israel will be their grazing land. There they will lie down in good grazing land, and there they will feed in a rich pasture on the mountains of Israel. 15 I myself will tend my sheep and have them lie down, declares the Sovereign Lord. 16 I will search for the lost and bring back the strays. I will bind up the injured and strengthen the weak, but the sleek and the strong I will destroy. I will shepherd the flock with justice. Eze 33: 11-16
 May the Holy Spirit lead us. 🙏
 
+### BIAY Day 229 By Cynthia Dsilva
+
+Jeremiah 6:17
+*I raised up sentinels for you, “Give heed to the sound of the trumpet!”*
+
+Sentinels are watchmen who must remain awake and alert, without a break, while on duty.  They are put in charge of the four towers above the city gate to watch for any possible enemies and alert the king and his people of any possible danger.
+A prophet functions in a similar manner.  His duty is to protect God's people from the spiritual enemy (Satan).
+
+Ezekiel 34:11-12
+*For thus says the Lord God: I myself will search for my sheep, and will seek them out.  As a shepherd seeks out his flock when some of his sheep have been scattered abroad, so will I seek out my sheep; and I will rescue them from all places where they have been scattered on a day of clouds and thick darkness.*
+
+There were many false shepherds in ancient Israel who led God’s people astray.  During the time of Jesus the false shepherds were king Herod (he was not from the Davidic family) and the High Priests Annas and Caiaphas (they were not from the Aaronic family).  Whichever families they came from, in their role as king and priests their duty was to lead the people to God but they became rich by abusing the people, they led ungodly lives themselves and led the people away from God.
+
+God promised that He would rescue His lost sheep on the day of the crucifixion of Jesus, in the presence of Jews from all over the world, when there would be clouds and thick darkness due to an eclipse (Matthew 27:45).
+
+As commanded by God, through Moses, all Jewish men had to celebrate Passover and Pentecost once a year “only in Jerusalem.”  This was planned by God so that every Jewish man would be present on Passover day when Jesus would die on the Cross to save them and the rest of the world.  They later gathered again in Jerusalem on Pentecost Sunday, 50 days after the Resurrection of Jesus, and 3,000 Jews, from all over the world, were baptized that day and thus they were rescued (Acts 2:7-11 & 37-41).
+
+🔥🔥🔥🔥🔥🔥🔥
+
 ## August 17,2024
 
 ### A New Heart
@@ -613,3 +634,45 @@ Even though we live in a country that allows us to practice our religion, our he
 He will take away our hearts of stone and give us a heart of flesh, a heart that loves God and neighbor. We may be led by our own spirit or worldly spirits – God will fill us with the Holy Spirit that will lead us to all truth. We will be washed by the blood of the lamb, made holy and pure. The new Spirit that we receive will help us to follow God’s ways, the Holy Spirit our helper will empower us to live holy lives.
 Let us return to the Lord, trade our hearts of stone for a heart of flesh, and be filled by His Spirit.
 May the Holy Spirit lead us.
+
+### BIAY Day 230 By Cynthia Dsilva
+
+Jeremiah 7:13-14
+*And now, because you have done all these things, says the Lord, and when I spoke to you persistently, you did not listen, and when I called you, you did not answer, therefore I will do to the house that is called by my name, in which you trust, and to the place that I gave to you and to your ancestors, just what I did to Shiloh.*
+
+Even if we have been spending long hours in praise and worship and prayer, we can still be spiritually indifferent if our hearts are not with the Lord.
+
+Jeremiah 7:16
+*As for you, do not pray for this people, do not raise a cry or prayer on their behalf, and do not intercede with me, for I will not hear you.*
+
+Constantly interceding for the people was one of the important duties of a prophet.
+
+Jeremiah 7:18
+*Queen of Heaven.*
+
+This was the goddess Ishtar who was believed by the people to be a goddess of fertility, love and war.
+
+Jeremiah 7:22-23
+*For in the day that I brought your ancestors out of the land of Egypt, I did not speak to them or command them concerning burnt offerings and sacrifices.  But this command I gave them, “Obey my voice, and I will be your God, and you shall be my people; and walk only in the way that I command you, so that it may be well with you.”*
+
+Our sacrifices and offerings have no value when we live in disobedience to God.
+Although this command was given to the Israelites during the time of Moses (Exodus 19:5), the same command is applicable to us too.
+
+Ezekiel 36:23-24
+*I will sanctify my great name, which has been profaned among the nations, and which you have profaned among them; and the nations shall know that I am the Lord, says the Lord God, when through you I display my holiness before their eyes.  I will take you from the nations, and gather you from all the countries, and bring you into your own land.*
+
+In the old Covenant, Israel was supposed to glorify God’s name by being a light to the world but, instead, they allowed the darkness of idolatry to seep into their own lifestyle.  Therefore, they were being prepared for exile.  But exile was not meant for God to get His back at the people. Exile was how God got His people back to Him.
+
+In the new Covenant, Christians are supposed to glorify God’s name by being a light to the world (Matthew 5:16).  So let us not make the same mistake by allowing the darkness of idolatry (wealth, power, comfort and pleasures of this world) to seep into our lifestyles.  Let us focus more on God, and not on accumulating wealth and possessions, or else we too may have to face a similar exile (physical or spiritual or maybe both).
+
+Ezekiel 36:25-28
+*I will sprinkle clean water upon you, and you shall be clean from all your uncleanesses, and from all your idols I will cleanse you.  A new heart I will give you, and a new spirit I will put within you; and I will remove from your body the heart of stone and give you a heart of flesh.  I will put my spirit within you, and make you follow my statutes and be careful to observe my ordinances.  Then you shall live in the land that I gave to your ancestors; and you shall be my people, and I will be your God.*
+
+In the old Covenant, ritual washing with water was only a symbol of baptism. The water just cleaned their bodies externally.  It never cleansed anyone of their sins.
+Ezekiel was prophesying about baptism in the new Covenant.  God promised to give us His divine Spirit through our baptism, which was inaugurated when the Holy Spirit anointed Jesus during His baptism.
+
+In the new Covenant, baptism is not an upgraded ritual of the past.  Baptism gives us the Spirit of God, that is, divine life, thus making us members of God's family, but the actual grace of baptism comes to us from Jesus through the baptized humans who baptize us, as it does with all the other sacraments as well.
+
+The Holy Spirit was released to the world only once, on Pentecost Sunday, and it is the same Spirit which is given to each one of us individually through the sacraments.
+
+🔥🔥🔥🔥🔥🔥🔥
