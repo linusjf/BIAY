@@ -67,6 +67,8 @@
     + [A New Heart](#a-new-heart)
     + [Day #230 I will remove from you your heart of stone and give you a heart of flesh.](#day-%23230-i-will-remove-from-you-your-heart-of-stone-and-give-you-a-heart-of-flesh)
     + [BIAY Day 230 By Cynthia Dsilva](#biay-day-230-by-cynthia-dsilva)
+  * [August 18,2024](#august-182024)
+    + [The Valley of Dry Bones](#the-valley-of-dry-bones)
 
 <!-- tocstop -->
 
@@ -676,3 +678,9 @@ In the new Covenant, baptism is not an upgraded ritual of the past.  Baptism giv
 The Holy Spirit was released to the world only once, on Pentecost Sunday, and it is the same Spirit which is given to each one of us individually through the sacraments.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## August 18,2024
+
+### The Valley of Dry Bones
+
+[![The Valley of Dry Bones](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day231.jpg)](https://youtu.be/Byot48ZgGaE "The Valley of Dry Bones")
