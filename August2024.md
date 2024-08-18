@@ -69,6 +69,7 @@
     + [BIAY Day 230 By Cynthia Dsilva](#biay-day-230-by-cynthia-dsilva)
   * [August 18,2024](#august-182024)
     + [The Valley of Dry Bones](#the-valley-of-dry-bones)
+    + [BIAY Day 231 By Cynthia Dsilva](#biay-day-231-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -684,3 +685,15 @@ The Holy Spirit was released to the world only once, on Pentecost Sunday, and it
 ### The Valley of Dry Bones
 
 [![The Valley of Dry Bones](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day231.jpg)](https://youtu.be/Byot48ZgGaE "The Valley of Dry Bones")
+
+### BIAY Day 231 By Cynthia Dsilva
+
+Jeremiah 8:18-22
+Gilead was known for its world famous herbal treatments.
+God had been silent when the people were suffering and it didn't look like any help was going to come from Heaven.  The only option left was for the prophet to weep continuously for his people because although they were suffering due to the calamity he was more hurt because of their spiritual blindness (v. 19-20).  They ignored or took for granted all the blessings and miracles which God had done in their lives.
+Jeremiah cried for his people just as Jesus cried for His people because His people refused to follow Him (Luke 19:41).
+
+Ezekiel 37:1-6
+The dry bones will be the in-gathering of the Jews without the Holy Spirit because of their unbelief.  The Holy Spirit will breathe divine life into them only when they will believe in Christ and accept to be baptized.
+
+🔥🔥🔥🔥🔥🔥🔥
