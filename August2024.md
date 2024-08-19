@@ -70,6 +70,8 @@
   * [August 18,2024](#august-182024)
     + [The Valley of Dry Bones](#the-valley-of-dry-bones)
     + [BIAY Day 231 By Cynthia Dsilva](#biay-day-231-by-cynthia-dsilva)
+  * [August 19,2024](#august-192024)
+    + [Glory in Knowing God](#glory-in-knowing-god)
 
 <!-- tocstop -->
 
@@ -697,3 +699,9 @@ Ezekiel 37:1-6
 The dry bones will be the in-gathering of the Jews without the Holy Spirit because of their unbelief.  The Holy Spirit will breathe divine life into them only when they will believe in Christ and accept to be baptized.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## August 19,2024
+
+### Glory in Knowing God
+
+[![Glory in Knowing God](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day232.jpg)](https://youtu.be/KcMEjYAAY9g "Glory in Knowing God")
