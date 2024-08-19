@@ -72,6 +72,7 @@
     + [BIAY Day 231 By Cynthia Dsilva](#biay-day-231-by-cynthia-dsilva)
   * [August 19,2024](#august-192024)
     + [Glory in Knowing God](#glory-in-knowing-god)
+    + [BIAY Day 232 By Cynthia Dsilva](#biay-day-232-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -705,3 +706,17 @@ The dry bones will be the in-gathering of the Jews without the Holy Spirit becau
 ### Glory in Knowing God
 
 [![Glory in Knowing God](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day232.jpg)](https://youtu.be/KcMEjYAAY9g "Glory in Knowing God")
+
+### BIAY Day 232 By Cynthia Dsilva
+
+Jeremiah 9:11-16
+Why must judgement fall on God's people?
+Because of their defiant attitude towards God, rejection of God's Law, preference for false gods and refusal to repent.
+
+Let us check if we are any different from those people.
+
+*If you listen to my voice, and do all that I command you, then you shall be my people, and I will be your God.*
+
+This was the covenantal condition since the beginning of time and will be the same until the end of time.
+
+🔥🔥🔥🔥🔥🔥🔥
