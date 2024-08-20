@@ -67,12 +67,17 @@
     + [A New Heart](#a-new-heart)
     + [Day #230 I will remove from you your heart of stone and give you a heart of flesh.](#day-%23230-i-will-remove-from-you-your-heart-of-stone-and-give-you-a-heart-of-flesh)
     + [BIAY Day 230 By Cynthia Dsilva](#biay-day-230-by-cynthia-dsilva)
+    + [Day#230 By Michael Eltham](#day%23230-by-michael-eltham)
   * [August 18,2024](#august-182024)
     + [The Valley of Dry Bones](#the-valley-of-dry-bones)
     + [BIAY Day 231 By Cynthia Dsilva](#biay-day-231-by-cynthia-dsilva)
+    + [Day#231 By Michael Eltham](#day%23231-by-michael-eltham)
   * [August 19,2024](#august-192024)
     + [Glory in Knowing God](#glory-in-knowing-god)
     + [BIAY Day 232 By Cynthia Dsilva](#biay-day-232-by-cynthia-dsilva)
+    + [Day#232 By Michael Eltham](#day%23232-by-michael-eltham)
+  * [August 20,2024](#august-202024)
+    + [Correct me, O Lord](#correct-me-o-lord)
 
 <!-- tocstop -->
 
@@ -683,6 +688,17 @@ The Holy Spirit was released to the world only once, on Pentecost Sunday, and it
 
 🔥🔥🔥🔥🔥🔥🔥
 
+### Day#230 By Michael Eltham
+
+I will remove from you your heart of stone and give you a heart of flesh.
+The Love of the Lord is so great that even though the people of Israel left for idols and fake gods, God never forgot them. God promises to deliver Israel from exile and bring them back to their own land.
+“‘For I will take you out of the nations; I will gather you from all the countries and bring you back into your own land. 25 I will sprinkle clean water on you, and you will be clean; I will cleanse you from all your impurities and from all your idols. 26 I will give you a new heart and put a new spirit in you; I will remove from you your heart of stone and give you a heart of flesh. 27 And I will put my Spirit in you and move you to follow my decrees and be careful to keep my laws. 28 Then you will live in the land I gave your ancestors; you will be my people, and I will be your God. 29 I will save you from all your uncleanness. Eze 36:24-29
+There is something more than being brought back to the own land. We all can relate to the warm feeling we get when we get back home. Home is a known safe place where we find comfort and rest. Just as the Israelites we can be living in exile – spiritually.
+Even though we live in a country that allows us to practice our religion, our hearts may be far from home. Our spiritual home is in God and we find rest, comfort, and peace only in His arms. We may have been living in an exile state of mind, when we sin we move away from God and our hearts become harder, if we continually sin our hearts become like stone. God wants to restore our stony hearts today, we are invited to go back to Him.
+He will take away our hearts of stone and give us a heart of flesh, a heart that loves God and neighbor. We may be led by our own spirit or worldly spirits – God will fill us with the Holy Spirit that will lead us to all truth. We will be washed by the blood of the lamb, made holy and pure. The new Spirit that we receive will help us to follow God’s ways, the Holy Spirit our helper will empower us to live holy lives.
+Let us return to the Lord, trade our hearts of stone for a heart of flesh, and be filled by His Spirit.
+May the Holy Spirit lead us.
+
 ## August 18,2024
 
 ### The Valley of Dry Bones
@@ -700,6 +716,23 @@ Ezekiel 37:1-6
 The dry bones will be the in-gathering of the Jews without the Holy Spirit because of their unbelief.  The Holy Spirit will breathe divine life into them only when they will believe in Christ and accept to be baptized.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+### Day#231 By Michael Eltham
+
+The Valley of dry bones – hope in the Lord
+The best way to read this is to place yourself in the field of dry bones. Let us try to prayerfully read this scripture – try to imagine that you are present in the valley.
+The hand of the Lord was on me, and he brought me out by the Spirit of the Lord and set me in the middle of a valley; it was full of bones. 2 He led me back and forth among them, and I saw a great many bones on the floor of the valley, bones that were very dry. 3 He asked me, “Son of man, can these bones live?”
+I said, “Sovereign Lord, you alone know.”
+4 Then he said to me, “Prophesy to these bones and say to them, ‘Dry bones, hear the word of the Lord! 5 This is what the Sovereign Lord says to these bones: I will make breath enter you, and you will come to life. 6 I will attach tendons to you and make flesh come upon you and cover you with skin; I will put breath in you, and you will come to life. Then you will know that I am the Lord.’”
+7 So I prophesied as I was commanded. And as I was prophesying, there was a noise, a rattling sound, and the bones came together, bone to bone. 8 I looked, and tendons and flesh appeared on them and skin covered them, but there was no breath in them.
+9 Then he said to me, “Prophesy to the breath; prophesy, son of man, and say to it, ‘This is what the Sovereign Lord says: Come, breath, from the four winds and breathe into these slain, that they may live.’” 10 So I prophesied as he commanded me, and breath entered them; they came to life and stood up on their feet—a vast army.Eze 37:1-10
+This vision of Ezekiel would have been so hard to preach because Israel was in a state of despair, they had no hope. They were in exile in a place of no return. They would have found the prophecy to hard to believe.
+We could sometimes be in a situation where there seems to be no hope, death is all around us and we feel that there is no redemption, there is no return. This could be the state of someone we love, a spouse/parent/child/friend – we know for a fact that this person will never change or will never accept Christ – before we rule it out, let us remember that our God can do anything. Let us not lose faith, but pray unceasingly for these dead situations.
+The Lord that created this world from nothing, can bring life back to things that seem dead. It may take a process, but we need to walk with the Lord and follow His instructions – like Ezekiel we may have to prophesy a few times until the bones become fully alive. The God who put breath in Adam is able to also put breath back in dead bones. He is able to bring the dead(Lazarus) to life again.
+Then he said to me: “Son of man, these bones are the people of Israel. They say, ‘Our bones are dried up and our hope is gone; we are cut off.’ 12 Therefore prophesy and say to them: ‘This is what the Sovereign Lord says: My people, I am going to open your graves and bring you up from them; I will bring you back to the land of Israel. 13 Then you, my people, will know that I am the Lord, when I open your graves and bring you up from them. 14 I will put my Spirit in you and you will live, and I will settle you in your own land. Then you will know that I the Lord have spoken, and I have done it, declares the Lord.’”Eze 36:11-14
+The meaning of the prophecy is clear, God will bring back life to Israel and put His breath in them again, they will come back to the promised land and He will be their God and they shall be His people.
+It is so with us as well, if you find yourself in a place of no hope, due to sin or sickness just return to the Lord who is able to restore you to life. He will put His breath in you and He will be your God and you shall be his child.
+May the Holy Spirit lead us. 🙏
 
 ## August 19,2024
 
@@ -720,3 +753,25 @@ Let us check if we are any different from those people.
 This was the covenantal condition since the beginning of time and will be the same until the end of time.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+### Day#232 By Michael Eltham
+
+Let us not boast in our wisdom, might or wealth but in the knowledge of Christ.
+There are many wise, wealthy, and mighty people in this world. Many people are in a rat race to become wise, wealthy, and mighty and spend their entire lives perusing these things. Wisdom, wealth, and Might are good things and we should peruse them and be prosperous. There is nothing wrong is learning, accumulating wealth and building your strength. But we should not boast in them, we should only use them as created things and always treat them as dirt in comparison to our faith life.
+23 Thus says the Lord: Do not let the wise boast in their wisdom, do not let the mighty boast in their might, do not let the wealthy boast in their wealth; 24 but let those who boast boast in this, that they understand and know me, that I am the Lord; I act with steadfast love, justice, and righteousness in the earth, for in these things I delight, says the Lord.
+Let us never boast in our accomplishments but rather boast in our relationship with the Lord. Let us remember that all good comes from the Lord and that we and our attributes are nothing but a gift from the Lord. All human wisdom is nothing but foolishness to God.
+18 Do not deceive yourselves. If any of you think you are wise by the standards of this age, you should become “fools” so that you may become wise. 19 For the wisdom of this world is foolishness in God’s sight. As it is written: “He catches the wise in their craftiness”; 20 and again, “The Lord knows that the thoughts of the wise are futile.”21 So then, no more boasting about human leaders! 1 Cor 3:18-21
+We should not boast in our wisdom as the wisdom of the world is foolishness in God's sight. We should boast in the knowledge of the Lord, for knowing God is the greatest thing that can ever happen to us, and having a relationship with God is the greatest achievement that one can have. St Paul was a learned Jew who was persecuting the Christians and finally converted, his letters are so filled with wisdom and he achieved many things in his life.
+7 Yet whatever gains I had, these I have come to regard as loss because of Christ. 8 More than that, I regard everything as loss because of the surpassing value of knowing Christ Jesus my Lord. For his sake I have suffered the loss of all things, and I regard them as rubbish, in order that I may gain Christ 9 and be found in him, not having a righteousness of my own that comes from the law, but one that comes through faith in Christ, the righteousness from God based on faith. 10 I want to know Christ and the power of his resurrection and the sharing of his sufferings by becoming like him in his death, 11 if somehow I may attain the resurrection from the dead.
+We like St Paul should consider everything as rubbish in comparison to the value of knowing Christ. Our wisdom, might, and wealth are all utter rubbish compared to our dear Lord Jesus.
+May the Holy Spirit lead us. 🙏
+
+## August 20,2024
+
+### Correct me, O Lord
+
+[![Correct me, O Lord](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day233.jpg)](https://youtu.be/XnEP_hePAcs "Correct me, O Lord")
+
+Day 233: Correct me, O Lord — The Bible in a Year (with Fr. Mike Schmitz)
+
+Fr. Mike reflects on Jeremiah’s sorrow for the people of Israel while reminding us that the one thing we ought to find glory in, is in understanding and knowing God. In our reading of Ezekiel, we hear about God's ongoing promise to restore Israel. Today’s readings are Jeremiah 9, Ezekiel 39, and Proverbs 15:1-4.
