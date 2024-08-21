@@ -79,6 +79,10 @@
   * [August 20,2024](#august-202024)
     + [Correct me, O Lord](#correct-me-o-lord)
     + [Day #233 By Michael Eltham](#day-%23233-by-michael-eltham)
+  * [August 21,2024](#august-212024)
+    + [Jeremiah Complains](#jeremiah-complains)
+    + [Day #234 By Michael Eltham](#day-%23234-by-michael-eltham)
+    + [BIAY Day 234 By Cynthia Dsilva](#biay-day-234-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -796,3 +800,46 @@ I think that the new idolatry that we will encounter a lot is not worshiping an 
 Let us seek the Lord in all truth and let Him be Lord.
 
 May the Holy Spirit lead us. 🙏
+
+## August 21,2024
+
+### Jeremiah Complains
+
+[![Jeremiah Complains](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day234.jpg)](https://youtu.be/vUnrOcUy81s "Jeremiah Complains")
+
+Fr. Mike teaches us about recognizing our limitations especially when trying to compete with God. We also see how the Lord listens to Jeremiah’s complaints and responds to him in a peculiar but hopeful way. Today’s readings are Jeremiah 12-13, Ezekiel 41-42, and Proverbs 15:9-12.
+
+### Day #234 By Michael Eltham
+
+A scoffer does not like to be reproved
+
+Now people can be broadly categorized into two types, those who will listen and those who just won’t. Some people can float in between the two states. The type A group who just does not listen to advice and does not want guidance – the Bible calls them fools/foolish. Those who listen and take advice, those who seek the Lord and His teachings will be saved, the kind who are led by the Spirit.
+
+“Scoffers do not like to be rebuked; they will not go to the wise.” Proverbs 15:12
+
+The path of listening to the Spirit will bring a lot of discipline, we will need to avoid the ways of the world. It will take a lot of attentiveness to the Lord, a lot of active listening and learning, and praying. It’s a journey of a lifetime, where we read God’s word and apply it, if we fail we will try again and again, and the Lord will bless our effort. He will empower us and strengthen us to do His will.
+
+But the path of the wicked will not prosper, those who do not want to listen will perish. We have many people who think thoughts like “If I just do enough of charity, I can get away with living a sinful life”.
+
+The way of the wicked is an abomination to the Lord, but he loves the one who pursues righteousness. “There is severe discipline for one who forsakes the way, but one who hates a rebuke will die.” Prov 15:9,10
+
+Sometimes it can be frustrating when we try to correct people or teach them the right way and they just do not listen. Like Jeremiah, we may want to complain to the Lord.
+
+Why does the way of the guilty prosper? Why do all who are treacherous thrive? “You plant them, and they take root; they grow and bring forth fruit; you are near in their mouths yet far from their hearts.” Jer 12:2-3
+
+It is okay to bring our complaints to the Lord, God knows our hearts and will understand our frustration. Just get your thoughts captive and have a conversation with the Lord. Sometimes those who won’t listen need to be taught the hard way, that is when problems creep into their lives and it makes them humble and docile.
+
+Let us pray that we can be open to the Lord and others, especially those in authority in our lives like our parents, pastor, teachers, and leaders.
+
+May we have hearts that are teachable and may we be good learners.
+
+May the Holy Spirit lead us. 🙏
+
+### BIAY Day 234 By Cynthia Dsilva
+
+Jeremiah 13:25
+*This is your lot, the portion I have measured out to you, says the Lord, because you have forgotten me and trusted in lies.*
+
+The Biblical understanding of "forgotten" is not about losing memory. It is about knowingly and deliberately ignoring or neglecting by choice (Deut. 4:23).
+
+🔥🔥🔥🔥🔥🔥🔥
