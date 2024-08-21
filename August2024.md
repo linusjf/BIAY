@@ -83,6 +83,8 @@
     + [Jeremiah Complains](#jeremiah-complains)
     + [Day #234 By Michael Eltham](#day-%23234-by-michael-eltham)
     + [BIAY Day 234 By Cynthia Dsilva](#biay-day-234-by-cynthia-dsilva)
+  * [August 22,2024](#august-222024)
+    + [Lying Prophets](#lying-prophets)
 
 <!-- tocstop -->
 
@@ -843,3 +845,9 @@ Jeremiah 13:25
 The Biblical understanding of "forgotten" is not about losing memory. It is about knowingly and deliberately ignoring or neglecting by choice (Deut. 4:23).
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## August 22,2024
+
+### Lying Prophets
+
+[![Lying Prophets](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day235.jpg)](https://youtu.be/utj95QAQB90 "Lying Prophets")
