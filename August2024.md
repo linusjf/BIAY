@@ -86,6 +86,8 @@
   * [August 22,2024](#august-222024)
     + [Lying Prophets](#lying-prophets)
     + [BIAY Day 235 By Cynthia Dsilva](#biay-day-235-by-cynthia-dsilva)
+  * [August 23,2024](#august-232024)
+    + [Rich in Love](#rich-in-love)
 
 <!-- tocstop -->
 
@@ -887,3 +889,9 @@ God gives each one of us too the grace to accept His Will but it always depends 
 The prince was a type of Christ.  Christ alone passed through the womb of Mary.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## August 23,2024
+
+### Rich in Love
+
+[![Rich in Love](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day236.jpg)](https://youtu.be/MroAzlhcBSI "Rich in Love")
