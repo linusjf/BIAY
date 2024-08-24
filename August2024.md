@@ -89,6 +89,10 @@
   * [August 23,2024](#august-232024)
     + [Rich in Love](#rich-in-love)
     + [BIAY Day 236 By Cynthia Dsilva](#biay-day-236-by-cynthia-dsilva)
+    + [Day #236 By Michael Eltham](#day-%23236-by-michael-eltham)
+  * [August 24,2024](#august-242024)
+    + [Water from the Temple](#water-from-the-temple)
+    + [Day #237 By Michael Eltham](#day-%23237-by-michael-eltham)
 
 <!-- tocstop -->
 
@@ -911,3 +915,57 @@ Like those trees, if we are deeply rooted in Christ, the living water, then we w
 Jesus comes to us through the sacraments, and stays with us to help us walk through the storms.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+### Day #236 By Michael Eltham
+
+Our hearts are deceitful above all things
+
+We know our hearts and are fully aware of the type of person we are. We can put on a mask for the world to see and hide stuff from our family but not from God. For God searches the minds and tries the hearts. Our God is our maker and is fully aware of us – through and through.
+
+The heart is deceitful above all things and desperately corrupt; who can understand it? “I the Lord search the mind and try the heart, to give every man according to his ways, according to the fruit of his doings.” Jer 17:9-10
+
+Our hearts are corrupt, and we make it hard every time we sin. We keep fighting our conscience, and our minds become dull to do the right thing. From the heart come all sorts of evil, which are translated into actions.
+From within, from the human heart, evil intentions come fornication, theft, murder, 22 adultery, avarice, wickedness, deceit, licentiousness, envy, slander, pride, and folly. 23 All these evil things come from within, and they defile a person.” Mark 7:21-23
+
+As Jesus taught, all evil starts in the hearts and then becomes thoughts and actions. Let us do some self-evaluation of our hearts and prayerfully discern to see if our hearts have any of those evils mentioned above.
+
+As we pray and discover the evil within us, we cannot help but cry out for healing. Let us join Jeremiah in this earnest prayer.
+Heal me, O Lord, and I shall be healed; save me, and I shall be saved; Jer 17:14
+
+It’s a good practice to pray this prayer several times a day and ask God for healing of hearts.
+
+Another prayer that can help in healing the heart is the “Jesus prayer” – The Easter Christians have used this prayer to great advantage – praying this simple yet effective prayer repeatably
+
+"Lord Jesus Christ, Son of God, have mercy on me, a sinner." Some practice praying this with every breath, and many saints have prayed this prayer until their last breath. Joan of Arc died with the one word Jesus on her lips.
+
+Let us practice praying this many times a day, this prayer will bring healing to our deceitful hearts.
+
+"Lord Jesus Christ, Son of God, have mercy on me, a sinner."
+
+May the Holy Spirit lead us. 🙏
+
+## August 24,2024
+
+### Water from the Temple
+
+[![Water from the Temple](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day237.jpg)](https://youtu.be/ItGIk1bAC6U "Water from the Temple")
+
+Fr. Mike guides us through the last two chapters of Ezekiel, explaining the biblical significance of the water flowing from the right side of the temple, and how it foreshadows Christ's passion. He also emphasizes the imagery of the clay and the potter in Jeremiah, signifying how our lives are meant to be open for God to mold and shape, according to his will. Today's readings are Jeremiah 18-19, Ezekiel 47-48, and Proverbs 15:21-24.
+
+### Day #237 By Michael Eltham
+
+The Potter and the clay
+
+The best way to understand this reading is to imagine walking with Jeremiah to the potter’s house. The clay cannot make itself, it cannot even decide what shape it wants to be. Left on its own the clay will just stay spinning, however when the potter starts shaping the clay that is when it becomes a masterpiece of the potter. The potter would make it for whatever purpose he desired.
+
+The word that came to Jeremiah from the Lord: 2 “Arise, and go down to the potter’s house, and there I will let you hear my words.” 3 So I went down to the potter’s house, and there he was working at his wheel. 4 And the vessel he was making of clay was spoiled in the potter’s hand, and he reworked it into another vessel, as it seemed good to the potter to do. 5 Then the word of the Lord came to me: 6 “O house of Israel, can I not do with you as this potter has done? says the Lord. Behold, like the clay in the potter’s hand, so are you in my hand, O house of Israel. 7 If at any time I declare concerning a nation or a kingdom, that I will pluck up and break down and destroy it, 8 and if that nation, concerning which I have spoken, turns from its evil, I will repent of the evil that I intended to do to it. Jer 18:1-8
+
+Just as the potter of the clay can make the clay into the shape that he desires, God is in control of our lives and shapes us. It does not matter how much of a mess we are in, the Potter can make it beautiful. If the vessel that the potter was making was spoiled in the potter’s hand, and he reworked it into another vessel, as it seemed good to the potter to do. In the same way, if we have ruined the opportunities that the Lord gave us, we can always trust the Lord to rebuild us and rework us to do something new and make us a valuable vessel for His service. The important thing is to remain in the hands of the potter. God calls us to do something, but we fail as we are frail humans like frail clay. Even if we fail, all is not lost because our creator can remake us, if He made us from dust He can recreate us into something beautiful.
+
+On the other hand, we cannot say that we have been good and demand a good future. Again the reason we are good or blessed is due to the grace of God, all we can do is Thank God for what we had and just trust Him for the future. We are just clay, we cannot demand that the potter use us for royal use only.
+
+It does not matter what shape we are in spiritually or how good or bad we are, the important thing is to be humble and to be in the hands of the potter. We must abandon ourselves to the Lord and His will in our lives. Just as the clay is molded by the potter, we need to be led and shaped by the Holy Spirit.
+
+The Holy Spirit is the water flowing from the side of Christ, the temple described in Ezekiel is the Body of Christ. The water that is flowing from the east(right) side of the temple (Eze 47) is the Blood and water flowing from the right side of the Christ as depicted on the Crucifix. The water flowing from the temple brings life in all seasons in abundance. Let us be clay in the hands of the Lord being watered by the Holy Spirit, recreated every day, and renewed in our spirits.
+
+May the Holy Spirit lead us 🙏
