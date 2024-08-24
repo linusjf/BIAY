@@ -93,6 +93,7 @@
   * [August 24,2024](#august-242024)
     + [Water from the Temple](#water-from-the-temple)
     + [Day #237 By Michael Eltham](#day-%23237-by-michael-eltham)
+    + [BIAY Day 237 By Cynthia Dsilva](#biay-day-237-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -969,3 +970,39 @@ It does not matter what shape we are in spiritually or how good or bad we are, t
 The Holy Spirit is the water flowing from the side of Christ, the temple described in Ezekiel is the Body of Christ. The water that is flowing from the east(right) side of the temple (Eze 47) is the Blood and water flowing from the right side of the Christ as depicted on the Crucifix. The water flowing from the temple brings life in all seasons in abundance. Let us be clay in the hands of the Lord being watered by the Holy Spirit, recreated every day, and renewed in our spirits.
 
 May the Holy Spirit lead us 🙏
+
+### BIAY Day 237 By Cynthia Dsilva
+
+Jeremiah 18:1-6
+God told Jeremiah to go to the house of a Potter who was trying to make a pot with a specific design. Every time the design flopped the Potter tried again. This went on for several attempts until he finally got the required design.
+
+There are many "Potter and clay" analogies in the Bible (Romans 9:21; Isaiah 29:16 and 45:9; Sirach 33:13).  While in the other "Potter and clay" oracles God says that He has the right to do what He wants with the piece of clay in His hands, what Jeremiah learnt here was that in all the attempts, the Potter did not discard the original clay.  He used the same clay to try over and over again.
+
+Through the activities of daily life God was teaching Jeremiah a lesson, as He does with all of us.  God was showing Jeremiah how He deals with people who fail in their given mission but want to try again.
+
+When God chooses us for His mission we are bound to fall several times because of our pride and weak faith.  When we do good works for God, it is actually God working through us and God does not work through us when pride rules our lives.
+God therefore wants us to humble ourselves and keep our souls purified at all times by receiving the Sacraments of Reconciliation & Eucharist regularly.  In the meanwhile, God allows us to experience failures to mold us into a better person who will be spiritually capable of carrying out His mission. Our failures should therefore not be the cause of our depression.  If we start doing God's work it is not necessary that we will see instant success.
+
+Before we start strenuous exercise we must warm up our cold bodies or else the exercise can be harmful to us.
+Similarly, our failures are a warm up for us to learn from them and to purify us while practicing patience.  If there is a delay it means we are not yet spiritually ready to start the mission in full swing.
+
+The clay did not resist the Potter’s molding and shaping.  It lay still.
+Let us therefore remain still like the clay and allow God to mold and shape us as He wills.  Let us not resist God’s Will for us.  In the meanwhile, let us make sure to humble ourselves and keep our souls purified regularly so that we can be spiritually prepared to do whatever work God wants us to do.
+
+Jeremiah 19:6-9
+This old curse (Deut. 28:53 & Leviticus 26:29) fell upon the Jews during the Aramean war (2 Kings 6:26) and also in Jerusalem in AD 70.
+Let us make sure that we live our lives in total obedience to God and teach our children to do the same so that this curse may not befall us or our descendants.
+
+Jeremiah 19:10-11
+Ancient Egypt followed a rite in which they wrote the names of their enemies (persons or cities) on a jug before smashing it to symbolize what the fate of their enemies would be.
+
+Ezekiel 47:1-2
+*Then he brought me back to the entrance of the temple; there, water was flowing from below the threshold of the temple toward the east (for the temple faced east); and the water was flowing down from below the south end of the threshold of the temple, south of the altar.  Then he brought me out by way of the north gate, and led me around on the outside to the outer gate that faces toward the east; and the water was coming out on the south side.*
+
+Ezekiel saw the Garden of Eden of which the old Jerusalem Temple was a replica, and the Temple was also a shadow of the Body of Christ.
+However, the Garden of Eden in Ezekiel's vision, had only water flowing from the south east as in the original Garden of Eden, before sin entered the earth (Genesis 2:10), whereas, from the Jerusalem Temple, water flowed out from the south side (Gihon spring) along with the blood from the slaughtered animals because sin had entered the earth.
+
+On the Cross, from the Body of Christ, water flowed out along with Blood (John 19:34) so that we can receive the Holy Spirit through the river of the sacraments to bring life to the whole world; water to be used for our Baptism, and Blood to be offered in atonement for our sins after our Baptism till our death.
+The Temple was decorated with images of animals and flowers to resemble the Garden of Eden.
+
+🔥🔥🔥🔥🔥🔥🔥
