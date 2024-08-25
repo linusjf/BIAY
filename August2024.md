@@ -97,6 +97,7 @@
   * [August 25,2024](#august-252024)
     + [Our Moral Conscience](#our-moral-conscience)
     + [Day #238 By Michael Eltham](#day-%23238-by-michael-eltham)
+    + [BIAY Day 238 By Cynthia Dsilva](#biay-day-238-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -1038,3 +1039,58 @@ This act of faith helped Daniel to have more faith when we accepted to interpret
 Once God revealed the mystery to Daniel and Daniel explained it to the King. Daniel and his companions were elevated to great positions. Let us take courage from this and have faith even when all prospects seem low. Have Faith and the Lord will do Miracles.
 
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 238 By Cynthia Dsilva
+
+Jeremiah 21:14
+
+*I will kindle a fire in its forest.*
+
+Jerusalem does not have any forests.
+A section of the palace of Solomon was known as "the house of the forest of Lebanon" (1 Kings 7:2-4).
+Therefore, this was a warning about the destruction of Solomon’s palace.
+
+Daniel 1:7
+
+*The palace master / chief chamberlain changed their names:*
+*Daniel to Belteshazzar, Hananiyah to Shadrach, Mishael to Meshach, and Azariyah to Abednego.*
+
+Why the name change?
+The young men's Hebrew names were unacceptable to the Babylonians because the meaning of their Hebrew names centered on the one true God:
+DaniEl = Elohim is my judge;
+HananiYah = Yahweh has been gracious;
+MishaEl = who is what Elohim is;
+AzariYah = Yahweh has helped.
+(“El” is short for Elohim, and “Yah” is short for Yahweh.  Both are Hebrew names speaking of or praising God)
+
+The king of Babylon had the names of Daniel and his companions changed to represent the names of the pagan gods.
+The meanings of their “new” names centered on the false Babylonian gods:
+Bel tashazzar = Bel will protect;
+ShadrAch = inspired of Aku;
+MeshAch = belonging to Aku;
+AbedNego = servant of Nego.
+
+The king changed their God-given identity to reflect the pagan identity.
+Assigning new names was a common court practice in the ancient world. Its intention was to change the entire identity of the bearers, by training them, until their lives matched their names.
+The pagan kings followed this practice to change the identity of the Jews to absorb them into the pagan culture.
+
+What about us?
+When we were baptized, we took on the name "Christian" which means “follower of Christ.”
+How serious are we, as Christians, to change our identities until our life matches the meaning of our identity "follower of Christ"?
+
+Have we tried to evangelize the people around us and shine our light (Matthew 5:16) to change the ungodly culture into a godly one or have we blended with the ungodly culture ourselves?
+
+Daniel and his three companions were, however, never absorbed themselves into Babylonian culture. They neither worshipped the gods of the Babylonians nor did they eat unforbidden foods.  They remained faithful to their God all through their time in Babylon.
+
+Daniel 2:31-45
+According to Daniel’s prophecy, the Messiah (the little stone) would bring the Kingdom of Heaven on earth (the Church) when the fourth kingdom (the Roman empire / iron) would be in power, the first 3 kingdoms being the Babylonian (gold), the Persian (silver) and the Greek (bronze) empires.
+
+The Babylonian empire was in power from around 2000 BC upto the 6th century BC when it was taken over by Persia around 539 BC;
+the Persian empire was in power upto the 4th century BC when it was taken over by Greece around 334 BC;
+and the Greek empire was in power upto the 2nd century BC when it was taken over by Rome around 146 BC.
+
+According to this prophecy the stone Kingdom would be universal and would spread all over the globe, but this does not mean that every single human would accept Christ.
+
+When Christianity entered the world the pagan Roman kingdom vanished because majority of the pagans converted to Christianity by the 4th century AD.
+
+🔥🔥🔥🔥🔥🔥🔥
