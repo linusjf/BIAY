@@ -98,6 +98,8 @@
     + [Our Moral Conscience](#our-moral-conscience)
     + [Day #238 By Michael Eltham](#day-%23238-by-michael-eltham)
     + [BIAY Day 238 By Cynthia Dsilva](#biay-day-238-by-cynthia-dsilva)
+  * [August 26,2024](#august-262024)
+    + [Fall of Jerusalem](#fall-of-jerusalem)
 
 <!-- tocstop -->
 
@@ -1094,3 +1096,9 @@ According to this prophecy the stone Kingdom would be universal and would spread
 When Christianity entered the world the pagan Roman kingdom vanished because majority of the pagans converted to Christianity by the 4th century AD.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## August 26,2024
+
+### Fall of Jerusalem
+
+[![Fall of Jerusalem](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day239.jpg)](https://youtu.be/FfHCjnYcnXI "Fall of Jerusalem")
