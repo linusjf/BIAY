@@ -1018,7 +1018,7 @@ The Temple was decorated with images of animals and flowers to resemble the Gard
 
 ### Fall of Jerusalem
 
-[![Fall of Jerusalem](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day239.jpg)](https://youtu.be/FfHCjnYcnXI "Fall of Jerusalem")
+[![Fall of Jerusalem](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day238.jpg)](https://youtu.be/FfHCjnYcnXI "Fall of Jerusalem")
 
 ### Day #238 By Michael Eltham
 
