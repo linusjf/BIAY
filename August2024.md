@@ -101,9 +101,6 @@
   * [August 26,2024](#august-262024)
     + [Hananiah, Mishael, and Azariah](#hananiah-mishael-and-azariah)
     + [Day #239 When you walk through fire you shall not be burned](#day-%23239-when-you-walk-through-fire-you-shall-not-be-burned)
-  * [August 26,2024](#august-262024-1)
-    + [Hananiah, Mishael, and Azariah](#hananiah-mishael-and-azariah-1)
-    + [Day #239 When you walk through fire you shall not be burned](#day-%23239-when-you-walk-through-fire-you-shall-not-be-burned-1)
 
 <!-- tocstop -->
 
@@ -1100,28 +1097,6 @@ According to this prophecy the stone Kingdom would be universal and would spread
 When Christianity entered the world the pagan Roman kingdom vanished because majority of the pagans converted to Christianity by the 4th century AD.
 
 🔥🔥🔥🔥🔥🔥🔥
-
-## August 26,2024
-
-### Hananiah, Mishael, and Azariah
-
-[![Hananiah, Mishael, and Azariah](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day239.jpg)](https://youtu.be/GSucQRQMA_E "Hananiah, Mishael, and Azariah")
-
-### Day #239 When you walk through fire you shall not be burned
-
-King Nebuchadnezzar made a golden statue and commanded everyone to worship it, however, Shadrach, Meshach, and Abednego refused to worship this false god.
-Then Nebuchadnezzar was so filled with rage against Shadrach, Meshach, and Abednego that his face was distorted. He ordered the furnace heated up seven times more than was customary, 20 and ordered some of the strongest guards in his army to bind Shadrach, Meshach, and Abednego and to throw them into the furnace of blazing fire. 21 So the men were bound, still wearing their tunics, their trousers, their hats, and their other garments, and they were thrown into the furnace of blazing fire. 22 Because the king’s command was urgent and the furnace was so overheated, the raging flames killed the men who lifted Shadrach, Meshach, and Abednego. 23 But the three men, Shadrach, Meshach, and Abednego, fell down, bound, into the furnace of blazing fire. Daniel 3:19-23
-Can you imagine how hot this furnace must have been that even the men who tried to throw these 3 into it got burnt. The King and the audience would have expected these three to become toast in seconds, however, the fire did not affect them. They started walking around singing hymns and praising God.
-They walked around in the midst of the flames, singing hymns to God and blessing the Lord. 25 Then Azariah stood still in the fire and prayed aloud:
-26 “Blessed are you, O Lord, God of our ancestors, and worthy of praise; and glorious is your name forever! 27 For you are just in all you have done; all your works are true and your ways right, and all your judgments are true. Dan 3:24-27
-Now the King got even more furious and ordered that the fire be stoked.
-Now the king’s servants who threw them in kept stoking the furnace with naphtha, pitch, tow, and brushwood. 47 And the flames poured out above the furnace forty-nine cubits, 48 and spread out and burned those Chaldeans who were caught near the furnace. 49 But the angel of the Lord came down into the furnace to be with Azariah and his companions, and drove the fiery flame out of the furnace, 50 and made the inside of the furnace as though a moist wind were whistling through it. The fire did not touch them at all and caused them no pain or distress. Dan 3:46-50
-The three praised God in the midst of the fire and the Lord sent an angel to their rescue. The inside of the furnace became moist, and the fire did not touch them. This reminds me of the promise we received in Isaiah that when we go through the fire we will not be burnt, and the flames will not consume us.
-“Fear not, for I have redeemed you; I have called you by name, you are mine. 2 When you pass through the waters I will be with you; and through the rivers, they shall not overwhelm you; when you walk through fire you shall not be burned, and the flame shall not consume you. 3 For I am the Lord your God, the Holy One of Israel, your Savior. Is 43:1-3
-King Nebuchadnezzar’s heart changed – when he witnessed this great Miracle.
-And the satraps, the prefects, the governors, and the king’s counselors gathered together and saw that the fire had not had any power over the bodies of those men; the hair of their heads was not singed, their tunics were not harmed, and not even the smell of fire came from them. 95 Nebuchadnezzar said, “Blessed be the God of Shadrach, Meshach, and Abednego, who has sent his angel and delivered his servants who trusted in him. They disobeyed the king’s command and yielded up their bodies rather than serve and worship any god except their own God. 96 Therefore I make a decree: Any people, nation, or language that utters blasphemy against the God of Shadrach, Meshach, and Abednego shall be torn limb from limb, and their houses laid in ruins; for there is no other god who is able to deliver in this way.” 97 Then the king promoted Shadrach, Meshach, and Abednego in the province of Babylon. Dan 3: 94-97
-So the next time you face a situation where you feel that you are thrown into the fire, remember that you will not be burnt. Just praise God and sing hymns to the Lord, He will send angels to be with us and protect us. The people who threw us into the fire will see this great Miracle and change and praise God.
-May the Holy Spirit lead us. 🙏
 
 ## August 26,2024
 
