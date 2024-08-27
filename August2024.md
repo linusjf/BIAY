@@ -102,6 +102,10 @@
     + [Hananiah, Mishael, and Azariah](#hananiah-mishael-and-azariah)
     + [Day #239 When you walk through fire you shall not be burned](#day-%23239-when-you-walk-through-fire-you-shall-not-be-burned)
     + [BIAY Day 239 By Cynthia Dsilva](#biay-day-239-by-cynthia-dsilva)
+  * [August 27,2024](#august-272024)
+    + [Remaining Humble](#remaining-humble)
+    + [Day #240 Commit your work to the Lord, and your plans will be established.](#day-%23240-commit-your-work-to-the-lord-and-your-plans-will-be-established)
+    + [BIAY Day 240 By Cynthia Dsilva](#biay-day-240-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -1165,5 +1169,34 @@ Daniel was a righteous man.  When Daniel prayed God heard his prayer on day 1 bu
 When the Canaanite woman prayed for her daughter's deliverance from bondage Jesus was sitting near her and He heard her prayer but He did not respond to her request immediately.  He wanted to test her faith before answering her prayer (Matthew 15:21-28).
 
 God does hear the prayers of the righteous ones but the answers may not always be "yes" and the response may not always be instant.  If there is a delay we need to first examine ourselves to check if we are living our lives according to God's Will or whether we have any intention to do so.  If we are, then maybe God is teaching us patience, or testing our faith, or maybe we are asking for the wrong things.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## August 27,2024
+
+### Remaining Humble
+
+[![Remaining Humble](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day240.jpg)](https://youtu.be/bPhv87fcq1I "Remaining Humble")
+
+### Day #240 Commit your work to the Lord, and your plans will be established.
+
+We often want to serve the Lord and are willing to serve His people. But find it hard to decide what to do. There are so many good things to do, give to the poor, spend time with the lonely, preach God’s word, sing songs of praise, take care of the sick, visit the prisoners, and the list goes on.
+There are unlimited things that we can do, but we find it hard to decide. The best way to do it is to commit our ways to the Lord and be led by the Spirit. We should do everything to glorify the Lord, we should always seek His plans and that is when our work will be fruitful.
+All one’s ways may be pure in one’s own eyes, but the Lord weighs the spirit. 3 Commit your work to the Lord, and your plans will be established. Prov 16:2,3
+We should not be like the Prophets that we read about in today’s reading. They thought their ways were good in their own eye, but we read that it was not so in the eyes of the Lord.
+Thus says the Lord of hosts: “Do not listen to the words of the prophets who prophesy to you, filling you with vain hopes; they speak visions of their own minds, not from the mouth of the Lord. 17 They say continually to those who despise the word of the Lord, ‘It shall be well with you’; and to every one who stubbornly follows his own heart, they say, ‘No evil shall come upon you.’” Jer 23: 16-17
+These prophets did as they wanted, they spoke what they wanted. They did not listen to the voice of the Lord, they never waited on the Lord for guidance.
+Let us learn not to be like them, we should always be docile and teachable, we should always be humble to speak whatever the Lord tells us, and we should also be bold to speak the truth when we have to correct people. Let us commits our ways to the Lord and be led by the Holy Spirit. For unless the Lord builds the house, the builders work in vain. Let us take all our thoughts and ideas to the Lord in prayer, seeking His will, then will our plans be established. The Lord will be on our side and nothing can come against us. No weapons formed against us shall prosper.
+May the Holy Spirit lead us 🙏
+
+### BIAY Day 240 By Cynthia Dsilva
+
+Jeremiah 23:1-6
+God allowed the Assyrians to conquer and scatter the 10 tribes because their Shepherds (the priests) led the people away from God by introducing idolatry and evil practices.
+
+While the scattering of the Israelites was for the purpose of punishing them for their sins, God was also doing this so that the Israelites would spread the Word of God to other countries and bring the gentiles into God’s Kingdom.
+If we have been forced to leave our comfort zone for any reason whatsoever, we need to thoroughly examine ourselves first, for any unconfessed sins, and then check if we have been doing God’s Will or whether we have only spent our time focusing on our own will.
+
+In the new Covenant, in fulfillment of this prophecy (v.4-5), Jesus, the descendant of David, replaced the old shepherds (the old priesthood) by inaugurating a new priesthood (the 12 Apostles/Bishops) (John 13), who thereafter ordained more men (Jews and gentiles) to join the priesthood, to shepherd the Lord’s flock and lead them on the right path.
 
 🔥🔥🔥🔥🔥🔥🔥
