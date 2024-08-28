@@ -106,6 +106,9 @@
     + [Remaining Humble](#remaining-humble)
     + [Day #240 Commit your work to the Lord, and your plans will be established.](#day-%23240-commit-your-work-to-the-lord-and-your-plans-will-be-established)
     + [BIAY Day 240 By Cynthia Dsilva](#biay-day-240-by-cynthia-dsilva)
+  * [August 28,2024](#august-282024)
+    + [Daniel and the Den of Lions](#daniel-and-the-den-of-lions)
+    + [Day #241 God will save us from all the conspiracy plotted against us.](#day-%23241-god-will-save-us-from-all-the-conspiracy-plotted-against-us)
 
 <!-- tocstop -->
 
@@ -1200,3 +1203,26 @@ If we have been forced to leave our comfort zone for any reason whatsoever, we n
 In the new Covenant, in fulfillment of this prophecy (v.4-5), Jesus, the descendant of David, replaced the old shepherds (the old priesthood) by inaugurating a new priesthood (the 12 Apostles/Bishops) (John 13), who thereafter ordained more men (Jews and gentiles) to join the priesthood, to shepherd the Lord’s flock and lead them on the right path.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## August 28,2024
+
+### Daniel and the Den of Lions
+
+[![Daniel and the Den of Lions](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day241.jpg)](https://youtu.be/cOI53sGZx6A "Daniel and the Den of Lions")
+
+### Day #241 God will save us from all the conspiracy plotted against us.
+
+People will go to any extent to get power and authority, we see this very relevant in today’s politics, in office structures, and even in our Christian circles. There is a lot of backbiting, character bashing, plots, schemes, and negative grouping that happens when someone is doing well. People try their very best to bring down another person, we act like crabs in a bucket – trying to pull the other one down.
+We see a similar situation here against Daniel. Daniel found favor with the King.
+It pleased Darius to set over the kingdom one hundred twenty satraps, stationed throughout the whole kingdom, 2 and over them three presidents, including Daniel; to these the satraps gave account, so that the king might suffer no loss. 3 Soon Daniel distinguished himself above all the other presidents and satraps because an excellent spirit was in him, and the king planned to appoint him over the whole kingdom. 4 So the presidents and the satraps tried to find grounds for complaint against Daniel in connection with the kingdom. But they could find no grounds for complaint or any corruption, because he was faithful, and no negligence or corruption could be found in him. Dan 6:1-4
+The other presidents and satraps could not find any corruption in Daniel, so they plotted against him. They made the king sign a document/order to throw to the Lions anyone who did not worship the King's god. They wanted to have Daniel thrown to the Lions by this plot.
+Although Daniel knew that the document had been signed, he continued to go to his house, which had windows in its upper room open toward Jerusalem, and to get down on his knees three times a day to pray to his God and praise him, just as he had done previously. Dan 6:10
+Daniel did not hesitate to continue his prayer 3 times a day where they could see him (Sometimes we need to be as courageous as Daniel) – they brought this to the Kings attention and the King was forced to follow the order that he instituted.
+16 Then the king gave the command, and Daniel was brought and thrown into the den of lions. The king said to Daniel, “May your God, whom you faithfully serve, deliver you!” 17 A stone was brought and laid on the mouth of the den, and the king sealed it with his own signet and with the signet of his lords, so that nothing might be changed concerning Daniel. 18 Then the king went to his palace and spent the night fasting; no food was brought to him, and sleep fled from him.
+19 Then, at break of day, the king got up and hurried to the den of lions. 20 When he came near the den where Daniel was, he cried out anxiously to Daniel, “O Daniel, servant of the living God, has your God whom you faithfully serve been able to deliver you from the lions?” 21 Daniel then said to the king, “O king, live forever! 22 My God sent his angel and shut the lions’ mouths so that they would not hurt me, because I was found blameless before him; and also before you, O king, I have done no wrong.” 23 Then the king was exceedingly glad and commanded that Daniel be taken up out of the den. So Daniel was taken up out of the den, and no kind of harm was found on him, because he had trusted in his God. 24 The king gave a command, and those who had accused Daniel were brought and thrown into the den of lions—they, their children, and their wives. Before they reached the bottom of the den the lions overpowered them and broke all their bones in pieces. Daniel 6: 16-24
+This is such a beautiful faith story, the Lord saved Daniel from the Lions. The Lord saved Daniel from the evil plots made against him. And the Lord blessed Daniel with a higher position in the Kingdom.
+Let us learn a life lesson from Daniel, to never fear the evil plots against us. To continue to pray and trust in the Lord, knowing that God will shut the mouths of the Lions and those who plot against us will be caught in their own nets.
+Although a better prayer would be for those who plot to change if you are frustrated you can pray the below psalm as a genuine prayer from the heart. Not that we want others to be harmed, but hopefully "changed".
+Contend, LORD, with those who contend with me; fight against those who fight against me. Since they hid their net for me without cause and without cause dug a pit for me, may ruin overtake them by surprise— may the net they hid entangle them, may they fall into the pit, to their ruin. Ps 35
+
+May the Holy Spirit lead us. 🙏
