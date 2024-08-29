@@ -109,6 +109,10 @@
   * [August 28,2024](#august-282024)
     + [Daniel and the Den of Lions](#daniel-and-the-den-of-lions)
     + [Day #241 God will save us from all the conspiracy plotted against us.](#day-%23241-god-will-save-us-from-all-the-conspiracy-plotted-against-us)
+  * [August 29,2024](#august-292024)
+    + [King Nebuchadnezzar's Role](#king-nebuchadnezzars-role)
+    + [Day #242 God is in control of the nations.](#day-%23242-god-is-in-control-of-the-nations)
+    + [BIAY Day 242 By Cynthia Dsilva](#biay-day-242-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -1226,3 +1230,50 @@ Although a better prayer would be for those who plot to change if you are frustr
 Contend, LORD, with those who contend with me; fight against those who fight against me. Since they hid their net for me without cause and without cause dug a pit for me, may ruin overtake them by surprise— may the net they hid entangle them, may they fall into the pit, to their ruin. Ps 35
 
 May the Holy Spirit lead us. 🙏
+
+## August 29,2024
+
+### King Nebuchadnezzar's Role
+
+[![King Nebuchadnezzar's Role](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day242.jpg)](https://youtu.be/Mnfevb5Ih7Q "King Nebuchadnezzar's Role")
+
+### Day #242 God is in control of the nations.
+
+We can sometimes be fearful when we look at the world news, powerful nations in conflict with each other, the threat of nuclear weapons, and nations threatening each other with missile testing. This could be overwhelming and cause a lot of fear. When we read today’s readings of Daniel’s visions – we have consolation that God knows what is happening and knows the future.
+In the third year of the reign of King Belshazzar a vision appeared to me, Daniel, after the one that had appeared to me at first. 2 In the vision I was looking and saw myself in Susa the capital, in the province of Elam, and I was by the river Ulai.3 I looked up and saw a ram standing beside the river. It had two horns. Both horns were long, but one was longer than the other, and the longer one came up second. 4 I saw the ram charging westward and northward and southward. All beasts were powerless to withstand it, and no one could rescue from its power; it did as it pleased and became strong.
+5 As I was watching, a male goat appeared from the west, coming across the face of the whole earth without touching the ground. The goat had a horn between its eyes. 6 It came toward the ram with the two horns that I had seen standing beside the river, and it ran at it with savage force. 7 I saw it approaching the ram. It was enraged against it and struck the ram, breaking its two horns. The ram did not have power to withstand it; it threw the ram down to the ground and trampled upon it, and there was no one who could rescue the ram from its power. 8 Then the male goat grew exceedingly great; but at the height of its power, the great horn was broken, and in its place there came up four prominent horns toward the four winds of heaven. Daniel 8:1-8
+Of Course, Daniel did not understand the vision of the rams and the goats. But God sends angel Gabriel to explain the visions to Daniel, remember Angel Gabriel is the one who always brings messages from God. We should pray and ask got help from God to understand the times and the tension between the nations. God will send Angel Gabriel to help us understand what’s going on.
+As for the ram that you saw with the two horns, these are the kings of Media and Persia. 21 The male goat is the king of Greece, and the great horn between its eyes is the first king. 22 As for the horn that was broken, in place of which four others arose, four kingdoms shall arise from his nation, but not with his power. Dan 8
+Also, God will show us the right path to take and tell us who to listen to, sometimes like Jeremiah we may be asked to listen to the ruler who to us seems evil. The Babylonian kings were the ones who invaded Israel and took them captive. It must have been strange when the prophet Jeremiah prophecies that the people should listen to him and live. But God’s ways are not our ways, He knows the future and can change any situation, nation, or King. Let us just trust the Lord and His message for us.
+17 Do not listen to them; serve the king of Babylon and live. Jer 17:7
+Let us not fear, but pray and trust in the Lord, for God holds the nations.
+May the Holy Spirit lead us. 🙏
+
+### BIAY Day 242 By Cynthia Dsilva
+
+Jeremiah 26:1-9
+Shiloh was the place where the Ark of the Covenant was kept so the people in Jerusalem thought that as long as the Ark was with them they could do whatever they wanted because they had the protection of the Ark and so no enemy could touch them.
+Shiloh was ultimately destroyed by the Philistines.
+
+Jeremiah was reminding the people that the Ark did not have some kind of magic to repel their enemies. Their ancestors were protected by the Ark because they were humble and obedient to God's commandments. But since disobedience is the result of pride, whenever pride ruled the hearts of the people God left them and they fell into the hands of the evil forces because sin separates us from God and thus opens the door for the entry of the devil.
+
+Baptism, spending long hours in prayer, doing works of charity, involving ourselves in Charismatic activities, etc. are all good but they are not a guarantee that we will receive eternal life. As long as pride rules our hearts, everything that we do will be in vain.  We must therefore always be humble and obedient to God and try to live in a state of grace.
+
+The priests and all the people were angry with Jeremiah and wanted to kill him because he spoke of the destruction of the Temple. But Jeremiah was not cursing the Temple; he was only warning the people.
+
+Some centuries later the priests and all the people were angry with Jesus and wanted to kill him because he spoke of the destruction of the Temple. But Jesus too was not cursing the Temple; he was only warning the people.
+
+Daniel 9:1-2
+*In the first year of Darius son of Ahasuerus, by birth a Mede, who became king over the realm of the Chaldeans, in the first year of his reign, I, Daniel, perceived in the books the number of years that, according to the word of the Lord to the prophet Jeremiah, must be fulfilled for the devastation of Jerusalem, namely, seventy years.*
+
+Exile would be for 70 years because the people of God had lived in the promised land for 490 years but neglected to observe the Sabbatical years, that is, rest for the land every 7 years. Therefore the land would receive its rest by moving the people out of the land.
+
+The purpose of sending the people into exile was, however, so that they will turn back to the Lord by repenting and purifying themselves.  But unfortunately the exile didn't make any difference to them.
+
+When our hearts are hardened and we go through sufferings and problems because of our sinful way of life, we usually try to get rid of our sufferings and problems by adopting new sinful methods and we ignore our spiritual purity.  Thus we end up sinking deeper in sin.
+
+Daniel was not selfishly asking for forgiveness only for himself. He was not looking only for *his* freedom from exile.  Daniel, in his humility, was repenting on behalf of *his sinful nation*.
+
+Like Daniel, we too must make it a regular practice to pray for all sinners that they may return back to God.
+
+🔥🔥🔥🔥🔥🔥🔥
