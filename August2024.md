@@ -113,6 +113,8 @@
     + [King Nebuchadnezzar's Role](#king-nebuchadnezzars-role)
     + [Day #242 God is in control of the nations.](#day-%23242-god-is-in-control-of-the-nations)
     + [BIAY Day 242 By Cynthia Dsilva](#biay-day-242-by-cynthia-dsilva)
+  * [August 30,2024](#august-302024)
+    + [The Lord's Plans](#the-lords-plans)
 
 <!-- tocstop -->
 
@@ -1277,3 +1279,9 @@ Daniel was not selfishly asking for forgiveness only for himself. He was not loo
 Like Daniel, we too must make it a regular practice to pray for all sinners that they may return back to God.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## August 30,2024
+
+### The Lord's Plans
+
+[![The Lord's Plans](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day243.jpg)](https://youtu.be/VQfD3oPeRX4 "The Lord's Plans")
