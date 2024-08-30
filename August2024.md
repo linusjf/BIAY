@@ -116,6 +116,7 @@
   * [August 30,2024](#august-302024)
     + [The Lord's Plans](#the-lords-plans)
     + [Day #243 God’s plan for us is for our welfare not for evil.](#day-%23243-gods-plan-for-us-is-for-our-welfare-not-for-evil)
+    + [BIAY Day 243 By Cynthia Dsilva](#biay-day-243-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -1301,3 +1302,59 @@ Through the process of purification, we may get so frustrated with the yoke/suff
 Many times this verse is misused to mean that God will give us great earthly fortunes and prosper us, this may be the case sometimes. But we should not focus on earthly riches and abundance our focus should be on our spiritual life. The only way to be satisfied is to be in love with Jesus, connected to the Vine we will receive all the necessary nutrients. We need not worry about tomorrow or the earthly things – for the Lord feeds the birds of the air and clothes the lilies of the valley. Instead of dreaming of riches we should focus on the Lord and knowing Him more.
 When we suffer like the people of Israel, let us remember that God has plans for us, to restore us to himself. We will go home like the Israelites, even though sin has held us captive, as were repent the Lord will deliver us and prosper us. Once we come into a state of spiritual wholeness, we won’t even bother about the other things that much. We will also receive an abundance of earthly riches because we will know how to use them properly and not be attached to them.
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 243 By Cynthia Dsilva
+
+Jeremiah 29:11
+*For I know the plans I have for you declares the lord, plans to prosper you, not to harm you; plans to give you a future with hope.*
+
+This message from God was not a promise to prosper each person separately.  The promise was meant for the whole community of God’s people for a better future.  When God said “you” it was a plural “you,” not a singular “you.”  God was giving the whole community an assurance of a better future because of the bad news they heard regarding the long exilic period.
+This message was, however, not meant only for the old Israel.  It is the same message for the new Israel (the Church).  It is a message for the community of believers until the end of time.
+
+In the present time, even if we have been prosperous in this material world, this promise is not for individual material prosperity. It is not about “I, me, myself.”  It is about “us.”  God is speaking to the whole community of believers. God sees all believers as one family, and no loving father will protect and prosper only a few of his children from his family and leave the others to suffer.
+
+Physical exile caused the people to go through much suffering and distress because their mortal sins separated them from God, and this put them in the custody of Satan.
+But physical exile was just a shadow of spiritual exile, which is spiritual separation from God due to mortal sins.  Spiritual exile also leads to suffering and distress.
+
+When we commit mortal sins we choose the devil over God and although our mortal sins separate us from God, God does not abandon us.  God promised that if we call out to Him and pray to Him, He will hear us (v.12).  God also promised that if we seek Him with all our hearts He will let us find Him and He will lift us up from our suffering and bring us back from our spiritual exile (v.13).
+
+This was a promise of hope when God would come down to earth to dwell with His people in the new Covenant through the Sacraments, until the end of time, and thus bring all His children back from their spiritual exile.
+
+We may be suffering as a community because of our own sins or because of the sins of others.  We may be going through persecutions or oppression because of our faith.
+Since the whole Body (of Christ) suffers when any one part is out of order, we need to pray for each other as a community.
+
+Let us therefore meet together at God’s appointed place of worship (the Church), call out to Him and pray to Him as one community, as one family, as one Body of Christ (Matthew 6:9-13) and He will hear us.
+
+Let us not delay in seeking the Lord with all our hearts during Mass so that He can let us find Him (Luke 11:9 & 13; Luke 18:7-8) and He can lift us up from our suffering and bring us back from our spiritual exile through the Sacraments.
+
+Daniel 10:2
+*At that time I, Daniel, had been mourning for three weeks. I had eaten no rich food, no meat or wine had entered my mouth, and I had not anointed myself at all, for the full three weeks.*
+
+This is known as "Daniel fasting."
+This is the type of fasting we observe during the season of Lent.
+
+A person observing “Daniel fasting” must avoid all delicious food including meat, fish and any kind of alcohol, and must eat only simple food.
+We deny our body the pleasure of the foods and drinks which we love. We sacrifice them.  We don’t lose out on anything but instead we gain the grace of controlling the desires of our flesh.
+During the season of Lent we must eat to live and not live to eat.
+
+But giving up our favorite/delicious foods and drinks is not fasting unless the fasting is accompanied with praying, reading the scriptures, confessing our sins, etc.
+
+Daniel 10:12-20
+"Prince of Persia" and "prince of Greece" are demons assigned to these regions. Just as God has separate angels assigned to different regions and people (Revelation 2:1, 8, 12, etc.), Satan also has separate demons assigned to different regions and people.  The angels and demons are in constant battle and they are represented by the people to whom they are assigned (Revelation 16:13-14).
+
+The accumulation of mortal sins makes Satan’s army stronger and more powerful, thus making it difficult for our angels to protect us.  Wars, pestilence, famines, earthquakes, etc. are all results of unforgiven mortal sins of God’s people (the Israelites & the Christians).
+
+Israel was sinking deep in sin (Daniel 9:11-14) and Daniel seemed to be the only one man in the whole of Israel who was pleasing to God because he was asking for forgiveness not only for his sins but also for the sins of his people (Daniel 10:11 & 19), but God still heard his prayer on day one and sent an answer.
+
+When we pray, God hears our prayers the very first day, whether one person is praying or many, but how long it takes for the angel to reach us with God’s answer depends on what we are asking for and how strong our angelic army is.  The answer may or may not be in our favour therefore we must not expect a positive response from God.
+While he was waiting for God’s answer (Daniel 9:12-13), Daniel repented for his sins and for the sins of his nation.  He also did penance for the sins by fasting, mourning and praying.
+
+While we are waiting for God to answer our prayers, God may be expecting something from us.  God is well aware of each and every thing that is happening on the earth.  Satan cannot harm God’s people without God’s permission and God allows problems in our lives for a reason.  Therefore, whenever we are in distress, while we ask the Lord to save us, let us not forget to examine ourselves for any unforgiven sins and repent, if any, while we also ask Him to help us know His Will for us.  In the meanwhile, let us ensure that we obey God’s commandments and wait patiently for Him to send us His answer, whether positive or negative.
+
+On the other hand, if we know someone who is living in sin and has not repented then, like Daniel, let us intercede for them and ask the Lord to have mercy on them, instead of being quick to point our finger and highlight their sins.
+
+“The prince of Persia” was the demon over Persia who was battling with Michael and impeding Gabriel, but success came by way of the Persian kings who eventually allowed Israel to rebuild the Temple and the city. However, the prince of Greece (the demon power over Greece) would prove more formidable and would later inspire Antiochus to desecrate the temple and devastate the city. This is about the spiritual warfare going on in the spiritual realm, and mirrors and brings about the battles we see in the material realm, depending on whom we serve, God or Satan.
+
+Gabriel was speaking of the Persian demon as a current event and of the Greek demon as a future event.
+
+🔥🔥🔥🔥🔥🔥🔥
