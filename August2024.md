@@ -117,6 +117,8 @@
     + [The Lord's Plans](#the-lords-plans)
     + [Day #243 God’s plan for us is for our welfare not for evil.](#day-%23243-gods-plan-for-us-is-for-our-welfare-not-for-evil)
     + [BIAY Day 243 By Cynthia Dsilva](#biay-day-243-by-cynthia-dsilva)
+  * [August 31,2024](#august-312024)
+    + [Susanna's Righteousness](#susannas-righteousness)
 
 <!-- tocstop -->
 
@@ -1358,3 +1360,9 @@ On the other hand, if we know someone who is living in sin and has not repented 
 Gabriel was speaking of the Persian demon as a current event and of the Greek demon as a future event.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## August 31,2024
+
+### Susanna's Righteousness
+
+[![Susanna's Righteousness](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day244.jpg)](https://youtu.be/J_sr52dXJHE "Susanna's Righteousness")
