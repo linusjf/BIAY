@@ -5,6 +5,9 @@
     + [The Faithfulness of Daniel](#the-faithfulness-of-daniel)
     + [Day #245 Man Made gods](#day-%23245-man-made-gods)
     + [BIAY Day 245 By Cynthia Dsilva](#biay-day-245-by-cynthia-dsilva)
+  * [September 02,2024](#september-022024)
+    + [Rejoice in Doing Good](#rejoice-in-doing-good)
+    + [Day #246 God does not resentfully help us but rejoices in doing good to us.](#day-%23246-god-does-not-resentfully-help-us-but-rejoices-in-doing-good-to-us)
 
 <!-- tocstop -->
 
@@ -64,3 +67,19 @@ Jeremiah 31:34
 God will not remember our sins which have been forgiven by His priests, but the sins which are not confessed and those which are not forgiven ((John 20:23)), till we die, will be remembered on Judgment Day.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## September 02,2024
+
+### Rejoice in Doing Good
+
+[![Rejoice in Doing Good](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day246.jpg)](https://youtu.be/Mwmk2EmKf8M "Rejoice in Doing Good")
+
+### Day #246 God does not resentfully help us but rejoices in doing good to us.
+
+When we commit sin our natural tendency is to stop praying or to run away from God. One tries to avoid a God encounter because we have hurt our all-loving God. We feel that God is upset with us and is very angry with us, we try to associate the experience that we had as children. Children tend to avoid their parents when they have made a mistake, knowing that they will be punished for the wrongs. This has been written so deep into us that we try to run away from God when we sin, we try to hide like Adam and Eve. We try to cover up our shame and hide our mistakes from God, but God knows it all. God knows us better than we know ourselves, we may run but can never escape God.
+On the contrary, we should run to God, because He is a loving, merciful, and forgiving God. When Adam and eve committed sin, they were hiding but God came in search of them. Jesus the good shepherd leaves the 99 and goes in search of the Lost sheep. When Peter denied Jesus 3 times, Jesus did not rebuke him but offered him another chance, he entrusted him with being the shepherd of the flock again. Our God is different from anything we have ever experienced, God wants to forgive us and give us another chance. God does not do this out of reluctance but rejoices to do us good.
+I will rejoice in doing them good and will assuredly plant them in this land with all my heart and soul.Jer 32:14
+There is great rejoicing when one sinner repents than over 99 who did not need to repent. God loves the sinner and understands us, Jesus took on this weak human nature and knows how frail we truly are.
+The next time you need forgiveness, do not run away but run towards the Lord. He is waiting with arms wide open.
+Let us then approach God’s throne of grace with confidence, so that we may receive mercy and find grace to help us in our time of need. Heb 4:19
+May the Holy Spirit lead us. 🙏
