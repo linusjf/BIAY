@@ -8,6 +8,10 @@
   * [September 02,2024](#september-022024)
     + [Rejoice in Doing Good](#rejoice-in-doing-good)
     + [Day #246 God does not resentfully help us but rejoices in doing good to us.](#day-%23246-god-does-not-resentfully-help-us-but-rejoices-in-doing-good-to-us)
+    + [BIAY Day 246 By Cynthia Dsilva](#biay-day-246-by-cynthia-dsilva)
+  * [September 03,2024](#september-032024)
+    + [True Repentance](#true-repentance)
+    + [DAY #247 TRUE REPENTANCE BRINGS CHANGE](#day-%23247-true-repentance-brings-change)
 
 <!-- tocstop -->
 
@@ -82,4 +86,37 @@ I will rejoice in doing them good and will assuredly plant them in this land wit
 There is great rejoicing when one sinner repents than over 99 who did not need to repent. God loves the sinner and understands us, Jesus took on this weak human nature and knows how frail we truly are.
 The next time you need forgiveness, do not run away but run towards the Lord. He is waiting with arms wide open.
 Let us then approach God’s throne of grace with confidence, so that we may receive mercy and find grace to help us in our time of need. Heb 4:19
+May the Holy Spirit lead us. 🙏
+
+### BIAY Day 246 By Cynthia Dsilva
+
+Jeremiah 32:40
+*I will make an everlasting covenant with them.*
+
+The old Covenant did not have a provision for renewal because a price has to be paid by a priest, with holy blood, to make atonement, whenever God's Covenant is broken. Therefore it was not an everlasting Covenant.
+
+The new Covenant is everlasting because Jesus, our High Priest, paid the price by offering His physical holy blood, once for all. Thereafter, whenever we break the new Covenant with our sins, God renews it through the Sacrament of Reconciliation and when we receive the sacramental Body and Blood of Christ (Communion), which was offered by an Apostolic priest, in atonement for our sins.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## September 03,2024
+
+### True Repentance
+
+[![True Repentance](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day247.jpg)](https://youtu.be/brdYj4UPNfw "True Repentance")
+
+### DAY #247 TRUE REPENTANCE BRINGS CHANGE
+
+The people of Israel were under siege, and they had limited supplies, they were finding it hard to feed their families and the slaves. When the word of the Lord came to free the slaves, they readily accepted it but not out of obedience but because this was convenient for them in the time of famine. Once the enemies left, they decided to take back the slaves to do their hard work.
+Let us take a read.
+The word came to Jeremiah from the Lord after King Zedekiah had made a covenant with all the people in Jerusalem to proclaim freedom for the slaves. 9 Everyone was to free their Hebrew slaves, both male and female; no one was to hold a fellow Hebrew in bondage. 10 So all the officials and people who entered into this covenant agreed that they would free their male and female slaves and no longer hold them in bondage. They agreed, and set them free. 11 But afterward they changed their minds and took back the slaves they had freed and enslaved them again.
+12 Then the word of the Lord came to Jeremiah: 13 “This is what the Lord, the God of Israel, says: I made a covenant with your ancestors when I brought them out of Egypt, out of the land of slavery. I said, 14 ‘Every seventh year each of you must free any fellow Hebrews who have sold themselves to you. After they have served you six years, you must let them go free.’ Your ancestors, however, did not listen to me or pay attention to me. 15 Recently you repented and did what is right in my sight: Each of you proclaimed freedom to your own people. You even made a covenant before me in the house that bears my Name. 16 But now you have turned around and profaned my name; each of you has taken back the male and female slaves you had set free to go where they wished. You have forced them to become your slaves again.
+17 “Therefore this is what the Lord says: You have not obeyed me; you have not proclaimed freedom to your own people. So I now proclaim ‘freedom’ for you, declares the Lord—‘freedom’ to fall by the sword, plague and famine. Jeremiah 34: 8-17
+The Lord knows the hearts of these people, they freed the slaves for their convenience and took them back when they wanted. This is just unfair to the slaves, and the people who committed this sin brought upon themselves sword, plague and famine.
+Sometimes we tend to make this kind of half-hearted confession, we may not truly repent from our sin but make a confession because we want to get away from the punishment. We happily pick up the same sin again when we feel like it. Our repentance is short-lived and we go back into the same old filth. Repentance is not just about confessing our sins, but about changing our ways as well.
+Jesus always told people to sin no more.
+After Jesus healed the man at the pool, he found him and told him not to sin anymore.
+Later Jesus found him in the temple and said to him, “See, you have been made well! Do not sin any more, so that nothing worse happens to you.” John 5:14
+Jesus also gave the same instruction to others who He healed and delivered.
+Let us take this instruction to heart today, and try to even avoid the near occasion of sin. May God the Holy Spirit help us in our weakness. And if we ever fall back into sin, let us sincerely repent and walk again in truth.
 May the Holy Spirit lead us. 🙏
