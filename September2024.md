@@ -15,6 +15,9 @@
   * [September 04,2024](#september-042024)
     + [Cut to the Heart](#cut-to-the-heart)
     + [Day #248 Does suffering make you bitter or better?](#day-%23248-does-suffering-make-you-bitter-or-better)
+  * [September 05,2024](#september-052024)
+    + [Prayer of Judith](#prayer-of-judith)
+    + [Day #249 Setting a deadline for our petitions is like putting God to the test.](#day-%23249-setting-a-deadline-for-our-petitions-is-like-putting-god-to-the-test)
 
 <!-- tocstop -->
 
@@ -162,3 +165,30 @@ But does your suffering make you bitter or better?
 Don’t worry if you answered bitter, you could get better. You will have many more chances of suffering and testing and hopefully we can become better. When we encounter suffering let us praise God and offer up our suffering for those who need our prayers. Our bitter will slowly become better.
 
 May the Holy Spirit lead us 🙏
+
+## September 05,2024
+
+### Prayer of Judith
+
+[![Prayer of Judith](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day249.jpg)](https://youtu.be/f27psD92Kv8 "Prayer of Judith")
+
+### Day #249 Setting a deadline for our petitions is like putting God to the test.
+
+Who said beauty, wisdom, and goodness cannot be found together in a woman, we have a heroine from the Old Testament “Judith” who has all these qualities.
+
+We are all aware of the long-suffering they were going through, people are fainting due to lack of drinking water. Uzziah come up with a hack of an idea to wait for 5 more days and if God does not come to their aid, they would surrender. Judith was witnessing all this commotion and holds them to the truth.
+Judith and the Elders
+
+9 When Judith heard the harsh words spoken by the people against the ruler, because they were faint for lack of water, and when she heard all that Uzziah said to them, and how he promised them under oath to surrender the town to the Assyrians after five days, 10 she sent her maid, who was in charge of all she possessed, to summon Uzziah and Chabris and Charmis, the elders of her town. 11 They came to her, and she said to them:
+“Listen to me, rulers of the people of Bethulia! What you have said to the people today is not right; you have even sworn and pronounced this oath between God and you, promising to surrender the town to our enemies unless the Lord turns and helps us within so many days. 12 Who are you to put God to the test today, and to set yourselves up in the place of God in human affairs? 13 You are putting the Lord Almighty to the test, but you will never learn anything! 14 You cannot plumb the depths of the human heart or understand the workings of the human mind; how do you expect to search out God, who made all these things, and find out his mind or comprehend his thought? No, my brothers, do not anger the Lord our God. 15 For if he does not choose to help us within these five days, he has power to protect us within any time he pleases, or even to destroy us in the presence of our enemies. 16 Do not try to bind the purposes of the Lord our God; for God is not like a human being, to be threatened, or like a mere mortal, to be won over by pleading. 17 Therefore, while we wait for his deliverance, let us call upon him to help us, and he will hear our voice, if it pleases him. Judith 8:9-17
+
+Yes, indeed we cannot set a timeline for God to work, they were setting a timeline of 5 days for God to answer their prayers. Which is nothing but putting God to the test, it’s like throwing God a challenge – if you don’t answer our prayers in 5 days we will surrender. Judith in her wisdom brought out this aspect of testing God and saved the Israelites from going into slavery.
+Sometimes we need to be aware that we are putting God to the test when we pray prayers like, “Please give me a job within this month” or “Heal me at service today”.
+
+Our attitude should be more like – “Lord I offer my prayer to you and know you can do things instantly but if you want me to bear this cross longer so be it."
+
+We should not be making prayers like bribes – “If you answer this petition, I will donate $1000”.
+Our prayers should be prayers of faith, thanking God for what we are asking for, and knowing that He will grant what is best for us in His time. -Michael Eltham
+
+We should stop putting deadlines to our prayers to be answered, building character, faith and trust is more important than results.
+May the Holy Spirit lead us. 🙏
