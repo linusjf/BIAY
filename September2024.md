@@ -18,6 +18,7 @@
   * [September 05,2024](#september-052024)
     + [Prayer of Judith](#prayer-of-judith)
     + [Day #249 Setting a deadline for our petitions is like putting God to the test.](#day-%23249-setting-a-deadline-for-our-petitions-is-like-putting-god-to-the-test)
+    + [BIAY Day 249 By Cynthia Dsilva](#biay-day-249-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -192,3 +193,15 @@ Our prayers should be prayers of faith, thanking God for what we are asking for,
 
 We should stop putting deadlines to our prayers to be answered, building character, faith and trust is more important than results.
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 249 By Cynthia Dsilva
+
+Jeremiah 38:4–6
+*Then the princes said to the king, “Let this man be put to death, for he is weakening the hands of the soldiers who are left in this city, and the hands of all the people, by speaking such words to them. For this man is not seeking the welfare of this people, but their harm.”  King Zedekiah said, “Behold, he is in your hands; for the king can do nothing against you.”  So they took Jeremiah and cast him into the cistern of Malchiah, the king’s son, which was in the court of the guard, letting Jeremiah down by ropes. And there was no water in the cistern, but only mire, and Jeremiah sank in the mire.*
+
+Jeremiah was a foreshadow of Jesus.
+Some centuries later Jesus also went through a similar experience.
+Like Jeremiah and Jesus, Christians also may have to go through a similar experience during their lifetime.
+When the Word of God is preached the evil one gets very disturbed and he therefore stirs up his disciples to block the Word from reaching millions of people by getting rid of the preachers.
+
+🔥🔥🔥🔥🔥🔥🔥
