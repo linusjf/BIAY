@@ -19,6 +19,9 @@
     + [Prayer of Judith](#prayer-of-judith)
     + [Day #249 Setting a deadline for our petitions is like putting God to the test.](#day-%23249-setting-a-deadline-for-our-petitions-is-like-putting-god-to-the-test)
     + [BIAY Day 249 By Cynthia Dsilva](#biay-day-249-by-cynthia-dsilva)
+  * [September 06,2024](#september-062024)
+    + [Final Wave of Exile](#final-wave-of-exile)
+    + [Day #250 Choosing God’s will or the easy way out?](#day-%23250-choosing-gods-will-or-the-easy-way-out)
 
 <!-- tocstop -->
 
@@ -205,3 +208,22 @@ Like Jeremiah and Jesus, Christians also may have to go through a similar experi
 When the Word of God is preached the evil one gets very disturbed and he therefore stirs up his disciples to block the Word from reaching millions of people by getting rid of the preachers.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## September 06,2024
+
+### Final Wave of Exile
+
+[![Final Wave of Exile](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day250.jpg)](https://youtu.be/U8IW-EHokos "Final Wave of Exile")
+
+### Day #250 Choosing God’s will or the easy way out?
+
+We are reading about the final exile of the Israelites, the fall of Jerusalem. Now the captain of the guard of Jeremiah must have seen something in him or must have recognized that this prophet is truly from God. He offers to take Jeremiah with him and to keep him comfortable.
+2 The captain of the guard took Jeremiah and said to him, “The Lord your God threatened this place with this disaster; 3 and now the Lord has brought it about, and has done as he said, because all of you sinned against the Lord and did not obey his voice. Therefore this thing has come upon you. 4 Now look, I have just released you today from the fetters on your hands. If you wish to come with me to Babylon, come, and I will take good care of you; but if you do not wish to come with me to Babylon, you need not come. See, the whole land is before you; go wherever you think it good and right to go. 5 If you remain, then return to Gedaliah son of Ahikam son of Shaphan, whom the king of Babylon appointed governor of the towns of Judah, and stay with him among the people; or go wherever you think it right to go.” So the captain of the guard gave him an allowance of food and a present, and let him go. 6 Then Jeremiah went to Gedaliah son of Ahikam at Mizpah, and stayed with him among the people who were left in the land. Jeremiah 40:2-6
+If anyone of us were given this offer, we may have chosen to go with the captain. Now Jeremiah was not a person to seek out an easy life, all he wanted to do was "the will of God". He decides to stay with the poor in desolate Jerusalem.
+Let us learn a life lesson from this prophet Jeremiah, that the most important thing to do is the will of the Lord. In life, we will be given multiple options, and more often than not, we tend to pick what is easy over the right thing to do.
+Let’s look at a couple of examples.
+
+1. If you go to the store and your kid hides a toy and does not check it out, would you go back to the store and tell them what happened or just say “these stores overcharge us – it’s good we got to take something from them”
+2. If your teenage kid comes back to you and says she is pregnant, would you allow her to have an abortion or ask her to raise the kid and learn a life lesson.
+   Hopefully, we will have the courage to do the will of God, when we are faced with these hard decisions in our lives.
+   May the Holy Spirit lead us. 🙏
