@@ -22,6 +22,9 @@
   * [September 06,2024](#september-062024)
     + [Final Wave of Exile](#final-wave-of-exile)
     + [Day #250 Choosing God’s will or the easy way out?](#day-%23250-choosing-gods-will-or-the-easy-way-out)
+  * [September 07,2024](#september-072024)
+    + [Judith and Holofernes](#judith-and-holofernes)
+    + [Day #251 Drunkenness can cause you to let your guard down.](#day-%23251-drunkenness-can-cause-you-to-let-your-guard-down)
 
 <!-- tocstop -->
 
@@ -227,3 +230,25 @@ Let’s look at a couple of examples.
 2. If your teenage kid comes back to you and says she is pregnant, would you allow her to have an abortion or ask her to raise the kid and learn a life lesson.
    Hopefully, we will have the courage to do the will of God, when we are faced with these hard decisions in our lives.
    May the Holy Spirit lead us. 🙏
+
+## September 07,2024
+
+### Judith and Holofernes
+
+[![Judith and Holofernes](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day251.jpg)](https://youtu.be/vPnfDIwTaZY "Judith and Holofernes")
+
+### Day #251 Drunkenness can cause you to let your guard down.
+
+It’s worth reading the whole episode on how Judith kills Holofernes.
+Judith Attends Holofernes’ Banquet
+10 On the fourth day Holofer′nes held a banquet for his slaves only, and did not invite any of his officers. 11 And he said to Bago′as, the eunuch who had charge of all his personal affairs, “Go now and persuade the Hebrew woman who is in your care to join us and eat and drink with us. 12 For it will be a disgrace if we let such a woman go without enjoying her company, for if we do not embrace her she will laugh at us.” 13 So Bago′as went out from the presence of Holofer′nes, and approached her and said, “This beautiful maidservant will please come to my lord and be honored in his presence, and drink wine and be merry with us, and become today like one of the daughters of the Assyrians who serve in the house of Nebuchadnez′zar.” 14 And Judith said, “Who am I, to refuse my lord? Surely whatever pleases him I will do at once, and it will be a joy to me until the day of my death!” 15 So she got up and arrayed herself in all her woman’s finery, and her maid went and spread on the ground for her before Holofer′nes the soft fleeces which she had received from Bago′as for her daily use, so that she might recline on them when she ate.
+16 Then Judith came in and lay down, and Holofer′nes’ heart was ravished with her and he was moved with great desire to possess her; for he had been waiting for an opportunity to deceive her, ever since the day he first saw her. 17 So Holofer′nes said to her. “Drink now, and be merry with us!” 18 Judith said, “I will drink now, my lord, because my life means more to me today than in all the days since I was born.” 19 Then she took and ate and drank before him what her maid had prepared. 20 And Holofer′nes was greatly pleased with her, and drank a great quantity of wine, much more than he had ever drunk in any one day since he was born.
+13 When evening came, his slaves quickly withdrew, and Bago′as closed the tent from outside and shut out the attendants from his master’s presence; and they went to bed, for they all were weary because the banquet had lasted long. 2 So Judith was left alone in the tent , with Holofer′nes stretched out on his bed, for he was overcome with wine.
+3 Now Judith had told her maid to stand outside the bedchamber and to wait for her to come out, as she did every day; for she said she would be going out for her prayers. And she had said the same thing to Bago′as. 4 So every one went out, and no one, either small or great, was left in the bedchamber. Then Judith, standing beside his bed, said in her heart, “O Lord God of all might, look in this hour upon the work of my hands for the exaltation of Jerusalem. 5 For now is the time to help thy inheritance, and to carry out my undertaking for the destruction of the enemies who have risen up against us.”
+6 She went up to the post at the end of the bed, above Holofer′nes’ head, and took down his sword that hung there. 7 She came close to his bed and took hold of the hair of his head, and said, “Give me strength this day, O Lord God of Israel!” 8 And she struck his neck twice with all her might, and severed his head from his body. 9 Then she tumbled his body off the bed and pulled down the canopy from the posts; after a moment she went out, and gave Holofer′nes’ head to her maid, 10 who placed it in her food bag. Judith 12: 10-16, 13:1-10
+Although it’s not an explicit sin to drink alcohol, alcohol can open the door to other sins. When you consume alcohol in excess you let down your guard and would do things you wouldn’t normally do. Although drinking alcohol is not a sin, drunkenness is a grave sin that will not permit you to go to heaven.
+Be not deceived: neither fornicators, nor idolaters, nor adulterers, nor effeminate, nor abusers of themselves with mankind, Nor thieves, nor covetous, nor drunkards, nor revilers, nor extortioners, shall inherit the kingdom of God. 1 Cor: 9,10
+We read in today’s readings that Holofernes drank much more than he had ever drunk in any one day since he was born. This led to him letting his guard down and gave Judith an opportunity to strike his head with a sword and kill him.
+Let us all pray for the virtue of temperance, it the virtue that will help us avoid any kind of excess whether it be food drink or tobacco.
+The virtue of temperance disposes us to avoid every kind of excess: the abuse of food, alcohol, tobacco, or medicine. Those incur grave guilt who, by drunkenness or a love of speed, endanger their own and others' safety on the road, at sea, or in the air. CCC 2290
+May the Holy Spirit lead us. 🙏
