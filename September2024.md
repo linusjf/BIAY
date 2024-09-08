@@ -28,6 +28,7 @@
   * [September 08,2024](#september-082024)
     + [Queen of Heaven](#queen-of-heaven)
     + [Day #252 The Queen of Heaven](#day-%23252-the-queen-of-heaven)
+    + [BIAY Day 252 By Cynthia Dsilva](#biay-day-252-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -287,3 +288,41 @@ A great sign appeared in heaven: a woman clothed with the sun, with the moon und
 May we be led to learn more about our dear Mother Mary, she does not want any glory. Her words are “I am a handmaid of the Lord”, “My soul magnifies the Lord”, and “Do as he says, listen to him”. Let us be humble like Mother Mary so God can lift us up to heaven. We cannot understand Mary as Queen of heaven if we put on our 21st-century glasses where the first lady is the wife of the president, we got to put on our OT glasses of the Jewish Kingdom structure where the mother of the King is the Queen.
 May the Queen of heaven intercede for us as we try to understand scripture.
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 252 By Cynthia Dsilva
+
+Jeremiah 43:1-3
+*When Jeremiah finished speaking to all the people all these words of the Lord their God, with which the Lord their God had sent him to them, Azariah son of Hoshaiah and Johanan son of Kareah and all the other insolent men said to Jeremiah, “You are telling a lie. The Lord our God did not send you to say, ‘Do not go to Egypt to settle there’; but Baruch son of Neriah is inciting you against us, to hand us over to the Chaldeans, in order that they may kill us or take us into exile in Babylon.”*
+
+The Jews did not want to obey God's Word and they were afraid to accuse God's anointed prophet (Jeremiah) directly so they accused Jeremiah's secretary, Baruch, of inciting Jeremiah to give them false messages thus making him a false prophet.  This was the only way they could defend their disobedience to God's Word.  This was a hypocritical defence on their part because earlier they had taken an oath that they would obey the Lord always, irrespective of whether the message was easy or difficult to follow (Jeremiah 42:5-6).
+
+Like those Jews, sometimes we too twist the wrong to make it look like the right so that we can defend our wrongdoings, and thus we make the good ones look like the bad ones.
+
+Jeremiah 43:13
+*He shall break the obelisks of Heliopolis, which is in the land of Egypt.*
+
+An obelisk is a tapering stone pillar, typically having a square or rectangular cross section, set up as a monument or landmark.  It was a symbol of the fertility of Egypt.
+
+Jeremiah 44:1-30
+A dispute broke out as to why the city of Jerusalem had been defeated in battle (v. 2-3).  One side (Jeremiah) declared that it was punishment from Yahweh (God) for the sinners who had worshipped the false Queen of Heaven; while another side (the Israelites) insisted that military defeat occurred because people had stopped worshipping the Queen of Heaven.
+The Queen of Heaven was most probably the false goddess Astarte, because the Mesopotamians worshipped the same goddess by offering baked cakes, but they called her “Ishtar.”
+
+It was the idolatry of the people that brought devastation to the nation and their lives, not the cessation of idolatry.
+
+God wants us to worship Him by following a liturgical pattern, which includes offering to Him incense and baked cakes/wafers and pouring out libations to Him as a perpetual statute until the end of time (Exodus 29:38-42).  The Israelites were following the same liturgical pattern but to worship the false goddess (v.17 & 19).
+God is a loving Father and therefore He provides us with our daily needs irrespective of whether we ask Him or not, just as our earthly father would provide for us even if we were unproductive or disobedient.  It is not Satan or the false gods who provide for our survival.
+
+The Israelites connected their earthly pain and gain with the deity they worshipped, but the spiritual reality is opposite.
+
+When we walk on the right path towards God’s Kingdom, worshipping the living God and obeying all His Commandments, Satan is not happy and therefore he works 24x7 to destroy our souls by destroying our peace and happiness with persecution and/or constant suffering (Revelation 12:17), in and out of our homes, to mislead us into believing that our misfortunes are due to the living God who we worship.  But God allows Satan to create those problems and sufferings in our lives to heal us spiritually.
+On the other hand, when we walk on the wrong path Satan is very pleased and therefore he will not create any major crisis in our lives so that we are comfortable and happy.  He may create small problems in our lives to mislead us into believing that those are the crosses which Jesus wants us to carry and we start believing that we are walking on the right path.
+
+If we focus on our earthly peace and happiness, we end up making wrong decisions and moving forward on the wrong path, which is exactly what Satan wants us to do.
+The Israelites were making the same mistake.
+
+The people attributed their prosperity to the queen of Heaven when, in reality, it was God who was blessing them with prosperity.
+
+Sometimes we too are like those people.
+We attribute our success to our benefactors on earth and we forget that it is God who makes it possible for them to help us prosper.  We go out of our way to give them so much importance that we won't even think twice about cancelling our time with God (Sunday Mass, daily prayers, etc.) to attend to our benefactors and please them.
+
+🔥🔥🔥🔥🔥🔥🔥
