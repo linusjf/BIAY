@@ -32,6 +32,9 @@
   * [September 09,2024](#september-092024)
     + [Lamentations of Jeremiah](#lamentations-of-jeremiah)
     + [Day #253 Let our lamentations be prayers to Christ.](#day-%23253-let-our-lamentations-be-prayers-to-christ)
+  * [September 10,2024](#september-102024)
+    + [Judgment of Nations](#judgment-of-nations)
+    + [Day #254 A fool takes no pleasure in understanding, but only in expressing personal opinion.](#day-%23254-a-fool-takes-no-pleasure-in-understanding-but-only-in-expressing-personal-opinion)
 
 <!-- tocstop -->
 
@@ -356,4 +359,28 @@ We should unite our suffering to the suffering of Christ, for the salvation of t
 12 Dear friends, do not be surprised at the fiery ordeal that has come on you to test you, as though something strange were happening to you. 13 But rejoice inasmuch as you participate in the sufferings of Christ, so that you may be overjoyed when his glory is revealed. 1 Pet 4: 12-13
 
 We should not be surprised that we have suffering in our lives, we should rejoice that we are able to participate in the sufferings of Christ. Even if the suffering seems like a lot, we need to remember that the Lord will not permit anything we cannot handle, and there will always be a way out. So let us accept our sufferings, lament and pray, and be united to Christ.
+May the Holy Spirit lead us. 🙏
+
+## September 10,2024
+
+### Judgment of Nations
+
+[![Judgment of Nations](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day254.jpg)](https://youtu.be/AHlUaRhb2Mc "Judgment of Nations")
+
+### Day #254 A fool takes no pleasure in understanding, but only in expressing personal opinion.
+
+Have you ever met those kinds of people, who want their voices heard? They don’t respect the conversation or the person but would cut you off and say only what they want. These are the people who have an opinion and don’t want to change it at any cost. Having an argument with such people is meaningless for they don’t want to understand or listen – they just want to voice their opinions. They will even twist the truth to win an argument. I’m sure you have a list of people who fall under this category, and if you find yourself on the list don’t worry the Holy Spirit will help you.
+Here is some practical advice from the book of James.
+
+Understand this, my dear brothers and sisters: You must all be quick to listen, slow to speak, and slow to get angry. James 1:19
+
+Let us become good listeners, let us not be quick to judge but take time to listen, understand, ask questions, and pray about everything. We should be slow to react, slow to reply and prudent in what we speak.
+Words are like bullets, once shot they will never come back.
+Take your time to polish every word before you speak.
+
+We are God’s children and our words carry weight, just as God’s words bring action even our words can affect positively or negatively. We should be very careful what we say for every word we speak is recorded, we will need to give an account of every careless word we speak.
+
+Matthew 12:36 “But I tell you that every careless word that people speak, they shall give an account for it in the day of judgement.”
+
+Let us clean up our speech, let us speak words that we are comfortable speaking to God. Let us stop all hate speech, gossip, slander, negative talk, and mean words. Let us be slow to speak and quick to listen, let us understand and not just speak our heads off. Let our words be words of love and care, words that will lift up people, and that will build community.
 May the Holy Spirit lead us. 🙏
