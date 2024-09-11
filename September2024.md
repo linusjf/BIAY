@@ -35,6 +35,8 @@
   * [September 10,2024](#september-102024)
     + [Judgment of Nations](#judgment-of-nations)
     + [Day #254 A fool takes no pleasure in understanding, but only in expressing personal opinion.](#day-%23254-a-fool-takes-no-pleasure-in-understanding-but-only-in-expressing-personal-opinion)
+  * [September 11,2024](#september-112024)
+    + [God is Good](#god-is-good)
 
 <!-- tocstop -->
 
@@ -384,3 +386,9 @@ Matthew 12:36 “But I tell you that every careless word that people speak, they
 
 Let us clean up our speech, let us speak words that we are comfortable speaking to God. Let us stop all hate speech, gossip, slander, negative talk, and mean words. Let us be slow to speak and quick to listen, let us understand and not just speak our heads off. Let our words be words of love and care, words that will lift up people, and that will build community.
 May the Holy Spirit lead us. 🙏
+
+## September 11,2024
+
+### God is Good
+
+[![God is Good](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day255.jpg)](https://youtu.be/YcRFYaWZS7I "God is Good")
