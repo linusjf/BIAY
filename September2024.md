@@ -37,6 +37,9 @@
     + [Day #254 A fool takes no pleasure in understanding, but only in expressing personal opinion.](#day-%23254-a-fool-takes-no-pleasure-in-understanding-but-only-in-expressing-personal-opinion)
   * [September 11,2024](#september-112024)
     + [God is Good](#god-is-good)
+  * [September 12,2024](#september-122024)
+    + [Hard Seasons](#hard-seasons)
+    + [Day 256 The Lord is a strong tower](#day-256-the-lord-is-a-strong-tower)
 
 <!-- tocstop -->
 
@@ -392,3 +395,32 @@ May the Holy Spirit lead us. 🙏
 ### God is Good
 
 [![God is Good](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day255.jpg)](https://youtu.be/YcRFYaWZS7I "God is Good")
+
+## September 12,2024
+
+### Hard Seasons
+
+[![Hard Seasons](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day256.jpg)](https://youtu.be/qZ_Bi8I-VXA "Hard Seasons")
+
+### Day 256 The Lord is a strong tower
+
+The safest place in this world is in the arms of Abba Father. There are so many dangers that we face in our life, right from the time we are born till we die – there are dangers on all sides. We can meet with an accident, be part of a shooting on the road, we can get infected by a dangerous virus, can lose our job and livelihood. There are so many things that can go wrong, and bad things can happen to us. There is no need to fear everything around us all that is needed is for us to run to safety, for the Lord is a strong tower those who run to Him will be safe.
+The name of the Lord is a strong tower; the righteous run into it and are safe. Prov 18:10
+The key is "run to God" and to stay in the presence of the Lord, to stay in friendship with God.
+
+You who live in the shelter of the Most High, who abide in the shadow of the Almighty, 2 will say to the Lord, “My refuge and my fortress; my God, in whom I trust.” 3 For he will deliver you from the snare of the fowler and from the deadly pestilence; 4 he will cover you with his pinions, and under his wings you will find refuge; his faithfulness is a shield and buckler. 5 You will not fear the terror of the night, or the arrow that flies by day, 6 or the pestilence that stalks in darkness, or the destruction that wastes at noonday. Ps 91:1-6
+
+We need to live in the shelter of God and abide in the shadow of the Almighty. We can find refuge under his wings and God’s faithfulness will be our shield and buckler. Even if we are faithless the Lord will be faithful and protect us from all harm and danger.
+God will put his angels in charge of us and they will patrol around us – we will not even dash our foot against the stone, and not even a hair will be lost unless the Lord permits it.
+
+11For he will command his angels concerning you to guard you in all your ways. 12 On their hands they will bear you up, so that you will not dash your foot against a stone. Ps 91:11,12
+
+And
+
+The angel of the Lord encamps around those who fear him, and delivers them. Ps 34: 7
+Let us not fear, as we have angels around us protecting us from all harm and danger.
+
+I met with two accidents in my life and on both occasions – I did not get seriously hurt.
+I am sure that God placed angels around me and protected me at the time of those accidents. It’s also important to recognize that we have been saved from many accidents in life even without our own knowledge.
+So let us all run to the Lord our strong tower and be safe in His arms.
+May the Holy Spirit lead us. 🙏
