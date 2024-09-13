@@ -40,6 +40,8 @@
   * [September 12,2024](#september-122024)
     + [Hard Seasons](#hard-seasons)
     + [Day 256 The Lord is a strong tower](#day-256-the-lord-is-a-strong-tower)
+  * [September 13,2024](#september-132024)
+    + [Choose to Love](#choose-to-love)
 
 <!-- tocstop -->
 
@@ -424,3 +426,9 @@ I met with two accidents in my life and on both occasions – I did not get seri
 I am sure that God placed angels around me and protected me at the time of those accidents. It’s also important to recognize that we have been saved from many accidents in life even without our own knowledge.
 So let us all run to the Lord our strong tower and be safe in His arms.
 May the Holy Spirit lead us. 🙏
+
+## September 13,2024
+
+### Choose to Love
+
+[![Choose to Love](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day257.jpg)](https://youtu.be/JqRK-YQxun8 "Choose to Love")
