@@ -42,6 +42,7 @@
     + [Day 256 The Lord is a strong tower](#day-256-the-lord-is-a-strong-tower)
   * [September 13,2024](#september-132024)
     + [Choose to Love](#choose-to-love)
+    + [Day 257 We should try to love our extended family](#day-257-we-should-try-to-love-our-extended-family)
 
 <!-- tocstop -->
 
@@ -432,3 +433,32 @@ May the Holy Spirit lead us. 🙏
 ### Choose to Love
 
 [![Choose to Love](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day257.jpg)](https://youtu.be/JqRK-YQxun8 "Choose to Love")
+
+### Day 257 We should try to love our extended family
+
+The book of Obadiah is the only 1-chapter book of the Old Testament. One of the main things that come up is the enmity between distant family. Jacob and Esau fought and reconciled – however, their descendants grew strangely apart.
+
+For the slaughter and violence done to your brother Jacob,
+shame shall cover you,
+and you shall be cut off forever.
+11 On the day that you stood aside,
+on the day that strangers carried off his wealth,
+and foreigners entered his gates
+and cast lots for Jerusalem,
+you too were like one of them.
+12 But you should not have gloated over your brother
+on the day of his misfortune;
+you should not have rejoiced over the people of Judah
+on the day of their ruin;
+you should not have boasted
+on the day of distress. Ob 1:10-12
+
+This could be the challenge most of us are facing as well, loving family – especially distant family can get tough. It could be something that happened generations ago and the family ends up not talking to each other or rejoicing when the other family fails. If we have this nature of rejoicing over other people's failures, we need to check our hearts for jealousy, hatred and revenge.
+
+Forgiveness is at the heart of the Christian life and we are able to forgive, but the wounds may be deeper.
+
+For Example: If you grew up listening to your Mom saying that your Dad’s side of the family is very sly stay away - it could be hard to know the truth as you have been brainwashed.
+Or For Example: If your single Dad told you to never reach out to your mom because she does not care about you, it could be hard for one to cross that bridge and understand both sides of the story.
+
+We all have a complex history in our families and may never be able to under the negative wiring we have, however, all hope is not lost. We need to allow the Holy Spirit to heal us and make us better people. We should pray for a just heart, a heart that is pure and guided by the Holy Spirit. A heart that cares and does not judge or rejoice when your enemies fail.
+May the Holy Spirit lead us 🙏
