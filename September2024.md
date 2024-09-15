@@ -47,6 +47,9 @@
     + [The Kingdom is Here](#the-kingdom-is-here)
     + [Day 258 St Joseph our model](#day-258-st-joseph-our-model)
     + [BIAY Day 258 By Cynthia Dsilva](#biay-day-258-by-cynthia-dsilva)
+  * [September 15,2024](#september-152024)
+    + [The Sermon on the Mount](#the-sermon-on-the-mount)
+    + [Day 259 Do not be anxious, isn’t life more than food and clothes](#day-259-do-not-be-anxious-isnt-life-more-than-food-and-clothes)
 
 <!-- tocstop -->
 
@@ -610,3 +613,24 @@ Why only fishers and not hunters?
 Jesus called His first disciples “fishers” because He wanted them to first focus on finding the Israelites who were scattered along the coastlines due to their occupations of fishing, farming and animal rearing.  The gentiles/lost tribes, living in the woodlands, would be found later by the “hunters” (Jeremiah 16:16).  After His resurrection Jesus sent Saul/Paul on the mission to bring the gentiles/lost tribes into the Church.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## September 15,2024
+
+### The Sermon on the Mount
+
+[![The Sermon on the Mount](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day259.jpg)](https://youtu.be/fXSy0DsEnak "The Sermon on the Mount")
+
+### Day 259 Do not be anxious, isn’t life more than food and clothes
+
+At the start of the sermon on the mount, Jesus sets the scene when he goes up the mountain and sits down. In the OT going up the mountain was almost always an indication of a God experience – here the people meet God in the person of Jesus Christ. In the OT the teachers would sit down to teach – unlike in our modern culture where they stand up to preach, so when Jesus sat down, they know He will be teaching. Jesus is the new Moses who gives us the new law of love. Moses brought the ten commandments written on stone tablets and Jesus was the word of God himself - the word written on our hearts – he spoke those beautiful beatitudes – not just the law but the life – Jesus tells us what we need to do to be happy.
+One thing that steels happiness is anxiety. We are a generation that is worried and anxious about too many things. We are constantly thinking about tomorrow, what we will eat and what we wear. It seems that we are overly concerned about earthly matters and achievements. We seem to forget the more important things like our soul and our prayer life.
+The Lord reminds us that He is in control of our lives, He feeds us just as He feeds the birds of the air that are there today and gone tomorrow. Would not the Lord cloth us, He would cloths the lilies of the field.
+25 “Therefore I tell you, do not worry about your life, what you will eat or what you will drink, or about your body, what you will wear. Is not life more than food, and the body more than clothing? 26 Look at the birds of the air; they neither sow nor reap nor gather into barns, and yet your heavenly Father feeds them. Are you not of more value than they? 27 And can any of you by worrying add a single hour to your span of life?28 And why do you worry about clothing? Consider the lilies of the field, how they grow; they neither toil nor spin, 29 yet I tell you, even Solomon in all his glory was not clothed like one of these. 30 But if God so clothes the grass of the field, which is alive today and tomorrow is thrown into the oven, will he not much more clothe you—you of little faith?
+31 Therefore do not worry, saying, ‘What will we eat?’ or ‘What will we drink?’ or ‘What will we wear?’ 32 For it is the Gentiles who strive for all these things; and indeed your heavenly Father knows that you need all these things. 33 But strive first for the kingdom of God and his righteousness, and all these things will be given to you as well.
+34 “So do not worry about tomorrow, for tomorrow will bring worries of its own. Today’s trouble is enough for today.
+Mat 6:25-34
+The best way to rid ourselves of anxiety would be to know our relationship with God. He is a Good Father who takes care of his children.
+9 Is there anyone among you who, if your child asks for bread, will give a stone? 10 Or if the child asks for a fish, will give a snake? 11 If you then, who are evil, know how to give good gifts to your children, how much more will your Father in heaven give good things to those who ask him!
+Let us shun all our anxiety because we are children of Abba Father who cares for us. In Jesus we have this beautiful relationship – we are made bold enough to cry out “Abba Father”.
+Our father in heaven will supply every need of ours, let us not forget to pray. We will receive our daily bread.
+May the Holy Spirit lead us 🙏
