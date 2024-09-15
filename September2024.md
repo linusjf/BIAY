@@ -50,6 +50,8 @@
   * [September 15,2024](#september-152024)
     + [The Sermon on the Mount](#the-sermon-on-the-mount)
     + [Day 259 Do not be anxious, isn’t life more than food and clothes](#day-259-do-not-be-anxious-isnt-life-more-than-food-and-clothes)
+    + [DAY 259 By Sheila](#day-259-by-sheila)
+    + [BIAY Day 259 By Cynthia Dsilva\_](#biay-day-259-by-cynthia-dsilva_)
 
 <!-- tocstop -->
 
@@ -634,3 +636,174 @@ The best way to rid ourselves of anxiety would be to know our relationship with 
 Let us shun all our anxiety because we are children of Abba Father who cares for us. In Jesus we have this beautiful relationship – we are made bold enough to cry out “Abba Father”.
 Our father in heaven will supply every need of ours, let us not forget to pray. We will receive our daily bread.
 May the Holy Spirit lead us 🙏
+
+### DAY 259 By Sheila
+
+Matthew: ln Matthew we learn to love our enemies those whom we consider unworthy of our love and affection. It is precisely in loving, the love of God surpasses way beyond human norms of acceptability. The Father's Love is given to the good and the unpleasant and is humbling. God never withdraws His Love for us just because we did something that is not right.
+
+The Our Father we say is To God, Our Father whom we can relate to, with sheer intimacy, veering away from pagan ways of praying. Jesus wants us to come to God as a child approaches his father, a whole new way experience of Divine nearness to burst out our hearts desires.
+
+```text
+Don't worry, don't be anxious and don't be too preoccupied. Set our hearts on the Kingdom of God and all other things will be given.
+
+Sadly, in our faith life, many tend to despise the things which require time. We have become so impatient whenever God seems to delay His response to our prayers. We are accustomed to instant life, an easy way and the urgency to wait. Thus lost the thrill of choosing the Narrow Gate which requires careful discernment, endurance and let God be God.
+```
+
+Proverbs: therefore teaches us to choose life, love, whose price is far above and encourages devotion and perseverance with a deeper loyalty.
+
+### BIAY Day 259 By Cynthia Dsilva\_
+
+Matthew 5:1-12
+Jesus is uniquely qualified to answer what happiness is because, he made us with His divine nature, so he knows what will fulfill us; and with His human nature he experienced the most perfect happiness possible, so we can follow him to the same destination.
+At the dawn of our race, there was a great shipwreck, and among the things that went down with the ship was the human heart. So damaged was the human heart by the wound of original sin that its full potential for happiness and love remained largely unknown until Jesus came with the instruction manual for the human heart, namely, “the Beatitudes.”
+
+While men were vainly seeking happiness in wealth, Jesus came with the instruction “blessed are the poor in spirit.”
+While men were vainly seeking happiness in the fleeting pleasures of the emotions, Jesus came with the instruction “blessed are those who mourn.”
+While men were vainly seeking happiness in the esteem of men, Jesus came with the instruction “blessed are you when men reproach you and persecute you.”
+Truly, the human heart is counterintuitive, and without Jesus we could not have found happiness on our own. We were like flies vainly seeking the light of the sun through a windowpane when the way out was an open door through the darkness right behind us.
+
+In this sermon Jesus teaches us how to live a true Christian life.
+
+In the old Covenant, the righteous people were blessed with material wealth and prosperity.
+In the new Covenant, the righteous people may or may not be blessed with prosperity in this life but they will definitely be blessed with prosperity in Heaven if they take up their cross and endure through their suffering to the end (Matthew 16:24; Mark 8:34; Luke 9:23).
+
+Jesus showed us the meaning of the beatitudes by living His life in accordance with His teaching.  The beatitudes are a spiritual profile of Jesus Himself. He wants us to follow His example.
+The devil has a million ways to drag us into his kingdom. Jesus wants us to be alert to sin in everything we do and say.
+
+Matthew 5:3
+The poor in spirit are those who are humble, and depend upon God completely for everything good, bodily and spiritual. They have three qualities in common:
+
+> > they all trust in God to provide for their needs;
+> > they are all detached from wealth or honor; and
+> > they all love God more than wealth or honor.
+
+Matthew 5:16
+The sanctity of the world depends totally on the sanctity and obedience of Christians to the teachings of Christ, and not so much on the sanctity of non-Christians who have not heard of Jesus but are leading holy lives.
+And when the world is sanctified, God is glorified.
+Jesus did not focus only on maintaining the sanctity of His soul.  While maintaining the sanctity of His soul, Jesus focused on bringing others to God.
+We too must do the same.
+If we live our Christian lives in a state of grace at all times, then the world will be sanctified and God will be glorified because the percentage of faithful Christians will be far greater than the percentage of non-believers.
+
+Jesus came to bring light to the world.
+As followers of Christ we must use the scriptures to dispel our own darkness first and then the darkness in others.
+If we have any confusion we can always ask the Lord for His help.
+
+Like the Olympic Torch bearers, God required the Patriarchs to carry His light  through thousands of years across the world.
+Like the Patriarchs, we too can become torch bearers and carry the light of Christ to the world around us.  We don't need to run several miles like the Olympics Torch bearers. We can do it from where we are.
+
+We don't do good works to gain merits.
+We must do good works because good works are part of God’s plan for salvation of the entire world and God uses His children to accomplish His divine plan.
+When we help or pray for those in need we become the instruments through whom God works. We can enter into God's divine plan for salvation through prayer, good works or suffering.
+
+Matthew 5:17
+The old law was not perfect because it could not purify the souls of the people.
+“He abolished the old (sacrifice) in order to establish the new (sacrifice)” (Hebrews 10:9).
+By His life, death and resurrection, Jesus fulfilled the shadows of the old Religious Law and gives Himself to us through the sacraments to purify our souls.
+
+Matthew 5:20
+Jesus was not speaking against the scribes and Pharisees.
+The righteousness of the Scribes and Pharisees was real but it was earthly, human and natural, and it was based on the Mosaic Law.
+The righteousness of the Scribes and Pharisees could only discipline God's people to make them good citizens of the earthly Jerusalem.  It could not purify their conscience/souls.  But the Law of Christ makes us saints of the heavenly Jerusalem because it purifies our conscience/souls through the sacraments.
+Therefore, as a new Covenant people, our righteousness must go beyond the righteousness of the Scribes and Pharisees, not against it.
+
+Matthew 5:21-22
+The old law said “do not kill” (Exodus 20:13).
+But Jesus did not just forbid murder. Murder was already forbidden in the old law.  Jesus forbade us from using harsh or insulting words when speaking to others so that our anger does not progress to hatred, hatred does not progress to revenge, and revenge does not progress to murder.  Jesus wants us to nip the evil in the bud.
+It is not wrong to be angry when someone has offended us but we must not allow our anger to progress to sinful words and actions.
+
+Matthew 5:23-24
+Before offering our gift / sacrifice at the Altar, Jesus wants us to make peace with everyone around us and change our anger, hatred, enmity into love because we cannot say we love God if we don't love our neighbor (everyone around us).
+If we have anger, hatred, bitterness, unforgiveness against anyone then we cannot have union with the Lord at the Altar and all our fasting, almsgiving, prayer, etc. is all a waste.
+
+Matthew 5: 27-32
+In a Christian marriage, man is a symbol of Jesus and woman is a symbol of the Church.  Physical adultery and divorce are symbols of spiritual adultery and divorce.
+In a spiritually adulterous relation we (the Church) abandon our spouse (Jesus) and join with our lover (Satan) when we commit mortal sins.  Therefore, Jesus forbade adultery and divorce.
+
+Matthew 5:38-39
+*“You have heard that it was said, ‘An eye for an eye and a tooth for a tooth.’ But I say to you, Do not resist an evildoer. But if anyone strikes you on the right cheek, turn the other also;”*
+If God had allowed the ancient form of justice to continue till the end of time then, at the speed with which violence is increasing in today’s world, by the end of time two thirds of humanity would probably have no eyes and teeth.
+Jesus softened the law by introducing forgiveness because retaliation doesn't create peace and security around us.
+
+Development of morality in salvation history:
+After the fall of man, Cain could avenge 7 times.
+Moses could avenge equal times (an eye for an eye).
+Prophets preached that mercy was as important as justice.
+Jesus said, "love your enemies; forget vengeance and forgive 70 times seven; leave the vengeance to God.  If enemy repents then God will forgive them too."
+
+Due to man’s sinful nature, it took thousands of years for God to forbid retaliation totally and bring humanity down to this level.
+
+Matthew 6:1-2
+Hypocrites are not only those who make a public show of their good deeds.
+When we profess our faith in Christ but don’t live our lives like Christ then we are hypocrites.
+When we pray The Lord’s Prayer on one side, and live with a grudge against our offenders and speak ill about them on the other side, then we are hypocrites.
+
+Matthew 6:5
+Synagogues were places where the Law was explained to the people (Acts 13:13-16) and they were taught how to apply it to themselves in their daily lives.  They also sang the psalms.  The Jews never prayed or worshipped God in the Synagogues.  Worship was strictly reserved to be only in the official Temple where the sacrifice was offered (John 4:20).  The hypocrites prayed on the streets and in the Synagogues because those were the places where there were crowds of people and the hypocrites wanted people to see them praying.
+
+There is no harm in praying at home with our families but additionally Jesus wants us to spend time with God in solitude, every day, just as He did.   There is also no harm in gathering with people outside homes to pray as long as we are not making a show of it for personal gain.
+
+Matthew 6:6
+Prayer is not about giving God information. It is an activity he wants us to do because it draws us out of ourselves and builds relationships, with God and with our fellow human beings.
+We don't pray to God to change His mind to do our will.
+We pray to God to change our mind to do His Will.
+By praying to God and on behalf of others, we learn to care about both, thus helping us fulfill the two great commandments: love of God and love of neighbor (Luke 10:27).
+
+Matthew 6:7-8
+Jesus was condemning the heathen's/pagan's repetitive prayers because :
+
+1. their prayers were not made to the living God.
+2. their prayers did not include praise and thanksgiving to the living God.
+3. their prayers did not have any repentance and request for forgiveness.
+   Repetitive prayers made to the living God are not condemned by God (Daniel 3:25-45; Daniel 3:51-90; Psalm 118:1-4; Psalm 136:1-26; Matthew 26:44).
+   Our prayers to the living God must always begin with praise, thanksgiving for blessings received and repentance for sins committed.  This may or may not be followed by our petitions.
+
+Matthew 6:10
+Jesus taught us to pray, “May Thy Kingdom come, Lord, and may Thy Will be done”,
+But how can God's Kingdom (Heaven) come down on earth if we, Christians, remain silent and worry about our own comfort and reputation when we see people around us doing sinful things?
+
+Matthew 6:24
+*You cannot serve two masters.*
+God does not want our divided attention, that is, 50% with the Church and 50% with the world.  He wants us to surrender ourselves to Him totally, which is 100%.
+
+Matthew 6:33
+*Seek FIRST the kingdom of God and his righteousness, and all these things will be given to you.*
+Jesus is NOT telling us to give up our jobs or leave our homes and families and sit in the Church the whole day.
+Jesus does not say, "seek ONLY the tkingdom of God" but He does tell us to give priority to the kingdom of God.
+This means:
+
+1. we must not miss our daily prayers, unless we are in a critical condition and cannot pray).
+2. we must not miss Sunday Mass even if we have important earthly activities on our agenda.
+3. we must confess our sins regularly if we are trying to change our sinful life. In the event of mortal sin we must seek forgiveness for our sins immediately.
+4. whenever we make a decision, we must make sure it is in line with God’s Commandments.
+   These are just some of the ways to give priority to God and seek His righteousness.
+
+Matthew 7:1-5
+When we remove the log from our eye, we will notice that what was in our brother's eye was only a splinter. It is not wrong to hate someone else's sins and expect them to correct themselves. But it is definitely wrong if we are only focusing on correcting others and not correcting our own errors. Our holiness must not be in comparison with other humans. Our holiness must be in comparison with Jesus, which no human can surpass but we must try to get as closer to Him, in holiness, as possible.
+
+Matthew 7:21-23
+*“Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father in heaven.*
+What is the will of our Father in heaven?
+God's Will is that we must worship Him the way He wants us to and to obey all the teachings of Christ which are:
+A)  repentance (Luke 24:47);
+B)  caring for others, specially the poor and needy (Matthew 9:13);
+C)  serving God by serving others (Matthew 20:26-28).
+
+*On that day many will say to me, ‘Lord, Lord, did we not prophesy in your name, and cast out demons in your name, and do many deeds of power in your name?’  Then I will declare to them, ‘I never knew you; go away from me, you evildoers.’*
+Those people had been given the power to prophesy and perform miracles, and yet they were not allowed to enter Heaven.
+
+That is because the Holy Spirit gives us two types of graces:
+(1) charismatic or natural grace, and;
+(2) sanctifying grace.
+Sanctifying grace is the saving grace (Ephesians 2:8) and those who do not have this grace when they die are the ones whom Jesus says He will reject, even though the Lord may have done many good works through them through their charismatic or natural grace.
+We must therefore ensure that we are in a state of grace at all times.
+
+Matthew 7:21
+*Faith and works.*
+Works are not meant to earn our way to Heaven.
+Every Christian has an obligation to allow the Holy Spirit in them to do good works for the growth of the Church and the salvation of the world thus becoming the salt and light of the world while they make sure they maintain their own holiness.
+
+Matthew 7:24-25
+*“Everyone then who hears these words of mine and acts on them will be like a wise man who built his house on rock.  The rain fell, the floods came, and the winds blew and beat on that house, but it did not fall, because it had been founded on rock.*
+There will definitely be storms in the life of a Christian because our faith must be tested.  But the question to ask is not "will there be a storm in my life?" The question to ask is "when the storm hits my life, will I be spiritually ready for it?"
+
+🔥🔥🔥🔥🔥🔥🔥
