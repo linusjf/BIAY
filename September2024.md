@@ -51,7 +51,7 @@
     + [The Sermon on the Mount](#the-sermon-on-the-mount)
     + [Day 259 Do not be anxious, isn’t life more than food and clothes](#day-259-do-not-be-anxious-isnt-life-more-than-food-and-clothes)
     + [DAY 259 By Sheila](#day-259-by-sheila)
-    + [BIAY Day 259 By Cynthia Dsilva\_](#biay-day-259-by-cynthia-dsilva_)
+    + [BIAY Day 259 By Cynthia Dsilva](#biay-day-259-by-cynthia-dsilva)
   * [September 16,2024](#september-162024)
     + [Carrying the Cross](#carrying-the-cross)
     + [Day 260 Faith, Healing, and carrying our cross](#day-260-faith-healing-and-carrying-our-cross)
@@ -655,7 +655,7 @@ Sadly, in our faith life, many tend to despise the things which require time. We
 
 Proverbs: therefore teaches us to choose life, love, whose price is far above and encourages devotion and perseverance with a deeper loyalty.
 
-### BIAY Day 259 By Cynthia Dsilva\_
+### BIAY Day 259 By Cynthia Dsilva
 
 Matthew 5:1-12
 Jesus is uniquely qualified to answer what happiness is because, he made us with His divine nature, so he knows what will fulfill us; and with His human nature he experienced the most perfect happiness possible, so we can follow him to the same destination.
