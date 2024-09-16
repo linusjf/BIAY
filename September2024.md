@@ -52,6 +52,10 @@
     + [Day 259 Do not be anxious, isn’t life more than food and clothes](#day-259-do-not-be-anxious-isnt-life-more-than-food-and-clothes)
     + [DAY 259 By Sheila](#day-259-by-sheila)
     + [BIAY Day 259 By Cynthia Dsilva\_](#biay-day-259-by-cynthia-dsilva_)
+  * [September 16,2024](#september-162024)
+    + [Carrying the Cross](#carrying-the-cross)
+    + [Day 260 Faith, Healing, and carrying our cross](#day-260-faith-healing-and-carrying-our-cross)
+    + [BIAY Day 260 By Cynthia Dsilva](#biay-day-260-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -805,5 +809,193 @@ Every Christian has an obligation to allow the Holy Spirit in them to do good wo
 Matthew 7:24-25
 *“Everyone then who hears these words of mine and acts on them will be like a wise man who built his house on rock.  The rain fell, the floods came, and the winds blew and beat on that house, but it did not fall, because it had been founded on rock.*
 There will definitely be storms in the life of a Christian because our faith must be tested.  But the question to ask is not "will there be a storm in my life?" The question to ask is "when the storm hits my life, will I be spiritually ready for it?"
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## September 16,2024
+
+### Carrying the Cross
+
+[![Carrying the Cross](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day260.jpg)](https://youtu.be/j6PaYtQRu34 "Carrying the Cross")
+
+### Day 260 Faith, Healing, and carrying our cross
+
+We read multiple healings in today’s Gospel of Matthew, one thing that is most common in all of the healings is faith. The best example is that of the centurion, even though he was not a Jew or a person who we can expect faith from, he did set the best example. He used a real-life example of how his soldier listened to every command, that just a word from Jesus would cure his servant. This is such a great revelation, it was eye-opening and even got Jesus' attention, Jesus praised the centurion's faith.
+5 When he entered Capernaum, a centurion came to him, appealing to him 6 and saying, “Lord, my servant is lying at home paralyzed, in terrible distress.” 7 And he said to him, “I will come and cure him.” 8 The centurion answered, “Lord, I am not worthy to have you come under my roof; but only speak the word, and my servant will be healed. 9 For I also am a man under authority, with soldiers under me; and I say to one, ‘Go,’ and he goes, and to another, ‘Come,’ and he comes, and to my slave, ‘Do this,’ and the slave does it.” 10 When Jesus heard him, he was amazed and said to those who followed him, “Truly I tell you, in no one in Israel have I found such faith. 11 I tell you, many will come from east and west and will eat with Abraham and Isaac and Jacob in the kingdom of heaven, 12 while the heirs of the kingdom will be thrown into the outer darkness, where there will be weeping and gnashing of teeth.” 13 And to the centurion Jesus said, “Go; let it be done for you according to your faith.” And the servant was healed in that hour. Mat 8:5-13
+Jesus said that in all of Israel he never found faith like that of the centurion. The centurion recognized the divinity of Jesus. That is why we use this as the prayer before communion. When we pray “Lord I am not worthy to receive you only say the words and I shall be healed” – we are making a prayer of faith – a prayer that recognizes the divinity in the Eucharist. It is not a piece of bread that we consume, but Jesus’s body – Jesus enters the door of our bodies, the mouth. When Jesus comes into our hearts we are healed – physically, mentally and spiritually.
+Although receiving healing is great and we need to have faith for it. The other thing that we need faith for is the cross, sometimes God’s will is not to heal us immediately but permit us to suffer, which will lead us closer to God. Just like healing, even the cross needs faith. We cannot carry the cross without faith, we have to deny ourselves everyday pickup our cross, and follow Him, all of this needs faith. If we only want healing and no cross we are not worthy of the Kingdom of God.
+34 “Do not think that I have come to bring peace to the earth; I have not come to bring peace, but a sword.
+35 For I have come to set a man against his father, and a daughter against her mother, and a daughter-in-law against her mother-in-law; 36 and one’s foes will be members of one’s own household.
+37 Whoever loves father or mother more than me is not worthy of me; and whoever loves son or daughter more than me is not worthy of me; 38 and whoever does not take up the cross and follow me is not worthy of me. 39 Those who find their life will lose it, and those who lose their life for my sake will find it. Mat 10:34-39
+Sometimes to follow Jesus we may have to pay the ultimate price of going against our family/loved ones. Our friendship with Jesus should have priority – nothing or no one should prevent us from following the Lord. No one should prevent us from loving our Lord and loving our neighbor. Our family may something not like that we spend time in prayer or may call it a waste of time. The constant nagging of family members can dampen our spirits, but we should not give up, we should pick up our cross daily and follow Jesus.
+May the Holy Spirit lead us. 🙏
+
+### BIAY Day 260 By Cynthia Dsilva
+
+Matthew 8:1-4
+Leprosy was a symbol of sin.  Leprosy separated the man from his community until he came to Jesus and asked to be healed.
+
+If we have any sins (anger, hatred, envy, etc.) which have separated us from our community or family or relatives, let us go to Jesus today and ask Him to forgive us and heal our souls so that we can reconcile with the ones whom we have been separated from.
+
+*And then a leper approached, did him homage, and said, “Lord, if you wish, you can make me clean.”*
+The man believed that Jesus could heal him, but he surrendered himself to the Will of the Lord because he didn't know what the Lord’s Will was.
+
+During the agony in the garden, Jesus also believed that God the Father could save Him from the torture He was to go through during His passion, but He surrendered himself to the Will of the Father.
+
+When we pray, we ask the Lord for whatever we want because we believe that He can give it to us, but our prayers must always end with our surrender to the Will of the Lord.
+
+*He stretched out his hand, touched him, and said, “I will do it. Be made clean.”*
+By touching the leper Jesus bridged the gap between the holy and the unclean.  In the new Covenant all unclean people would be able to worship God along with the clean ones. The climax was when the Temple curtain was torn in two at the death of Jesus (Mark 15:38).
+
+The touch was, however, only symbolic. The actual healing took place because of God’s Will and the man’s faith. God doesn't have to touch someone to heal the person. His Will is sufficient.
+
+*".... but go, show yourself to the priest, and offer for your cleansing the gift which Moses commanded, as a testimony to them.”*
+Leprosy was a shadow of sin and the leper was a shadow of all sinners.
+God allowed the people to be struck with leprosy, whenever they disobeyed Him, to show them how sin damages the soul.
+
+The Israelites were consecrated to belong to God's family. A leper had to be isolated from God’s family and was also not allowed to enter the Temple until the leprosy was healed.  Quarantine from the community and Temple was to show how sin separates us from God and His heavenly family and thereby brings suffering into our lives.
+Like leprosy, a sinful life also stops us from worshipping God.
+
+Like the unclean man, when we show ourselves to the priest in the Sacrament of Reconciliation, we first go down on our knees to humble ourselves, then we confess our sins to the Lord through the Priest.
+Healing the leper was a shadow of the priest giving us absolution, after forgiving us our sins, to renew the broken Covenant.
+
+Matthew 8:5-7
+*A centurion came to Jesus, and said, “Lord, my servant is lying at home paralyzed, in terrible distress.” And Jesus said to him, “I will come and cure him.”*
+Inspite of knowing fully well that the centurion belonged to the occupation troops of the enemy camp, Jesus did not misuse the centurion's weak moment to make an ungodly deal with him. Jesus did not tell the centurion that He would heal the man's servant if he and his troops left their territory. On the contrary, Jesus, out of compassion, humbled Himself to go all the way to the centurion's house to heal the sick servant.
+Likewise, if our enemy is in distress, we must forget our differences and reach out to them and help them without any condition.
+
+Matthew 8:11-12
+*I tell you, many will come from east and west and will eat with Abraham and Isaac and Jacob in the kingdom of heaven, while the heirs of the kingdom will be thrown into the outer darkness, where there will be weeping and gnashing of teeth.”*
+The kingdom of Heaven will ultimately be occupied by the gentiles who convert to the faith, more than the Jews who became Kingdom members by natural descent, because most of the Jews rejected Christ.
+
+But that does not mean all Christians will go to Heaven.
+The same also applies to the Christians who take the Kingdom for granted and choose to separate themselves from Christ with their mortal sins, thus living in disobedience to God and losing their heavenly inheritance.
+
+Matthew 8:15
+*Now Simon’s mother-in-law lay sick in bed with a fever. They immediately told Jesus about her.  He approached her, took her by her hand, and helped her up. Then the fever left her and she began to serve them.*
+The healing which Jesus brings is meant for serving others.  Therefore, if Jesus has healed us of any illness (physical, spiritual, emotional, etc.), it is because He wants us to start serving others.
+What Jesus has done for Simon’s mother-in-law, He has done for all humanity; He has raised all of us who lay dead through our sins (Ephesians 2:5).
+
+Matthew 8:20
+*And Jesus said to him, “foxes have holes, and birds of the air have nests; but the Son of Man has nowhere to lay his head.”*
+Jesus has nowhere to rest because His resting place is in our hearts.
+
+Matthew 8:23-27
+This was a foreshadow of the Church.
+Likewise there will be many violent storms for the Church on the celestial journey and maybe the boat will be capsized many times due to persecutions, but if we, the sailors/followers obey God’s commandments and have faith that Jesus will always be with us to the end then we will not drown.
+When God is with us it doesn't mean that we will sail in a boat with no storms. It means that we have a boat which no storm can sink.
+
+If we look at the physical side of the scene, it seems like Jesus was asleep and the disciples were awake.
+But if we look at the spiritual side of the scene, Jesus was spiritually awake and the disciples were spiritually asleep.
+Jesus knew that God the Father is aware of everything that happens on earth and that God is in control.  God just wants us to focus on Him and trust in Him. But the disciples forgot that God (Jesus) was right beside them.
+Like the disciples, when we are going through a crisis we too feel that God is asleep.
+
+Matthew 8:28-34
+Jesus and the disciples were faced with a storm at sea on their way to Gadara (Matthew 8:23-27).  Satan knew that Jesus was going to release the demons from the possessed man at Gadara.  That is why Satan caused a storm at sea so that Jesus and his disciples would either be drowned or they would be filled with so much fear  that they would turn and go back.  But Jesus always placed His trust in God so He was not afraid.
+
+When God has a special plan for our lives, Satan always tries to throw rocks and thorns on our path to discourage and stop us from carrying out God’s plan because he knows that every baptized child has been chosen by God for a divine purpose.
+
+The people told Jesus to leave because they were more concerned about their material loss than their spiritual loss. They chose the pigs over Jesus.
+
+The pigs were considered unclean and were therefore a symbol of a materialistic / sinful way of life in this world which is controlled by demons.  And those people were a shadow of those who choose a materialistic life controlled by demons instead of a spiritual life led by Jesus.  Such people will meet with their ultimate destruction.
+
+Matthew 9:1-8
+The paralytic's friends knew what he needed and they knew they couldn't heal him themselves, so, inspite of the obstacles, they brought him to Jesus.
+
+When we know our friends are spiritually paralyzed (going away from God) it is our obligation to try our best to bring them back to God, irrespective of the difficulties and obstacles we may face.  We must not allow anyone's criticism, humiliation, negative opinion, etc. to stand in our way.
+
+There’s no mention of whether the sick man had faith in Jesus or not, but Jesus healed the sick man because the sick man’s friends had faith in Jesus.
+God will answer our prayers even if we pray for the spiritual healing of those who don’t have faith in Him.
+
+The man came for one miracle but Jesus noticed the need for two (physical and spiritual).
+
+Matthew 9:15
+*The days will come when the Bridegroom is taken away from them, and then they will fast.”*
+Our bridegroom is taken away from us whenever we betray Him with our mortal sins because our sins destroy the divine life within us.
+
+That is why we observe one hour fasting before Mass until we receive our bridegroom (Communion).
+
+Matthew 9:18-26
+This passage is about two miracles where Jesus heals a matured woman and a little girl.  The common things about both miracles were that both recipients were females in different age groups, both had a connection with the number 12, and both miracles were performed by Jesus due to someone’s faith in His power.
+When the woman was healed, Jairus’s daughter died.
+
+Twelve years earlier, this woman began to hemorrhage. As a result, the woman would certainly have been excluded from participating in the worship at the synagogue where Jairus was an official, because she was ritually unclean. It is likely that it was Jairus himself who excluded her from the worship at the synagogue, since he was the ruler there. For twelve years this woman was excluded from the house of her heavenly Father, while for twelve years Jairus enjoyed the company of his own daughter in his house.
+
+By causing Jairus to reflect on the condition of his own daughter, and upon the pain he now felt at being separated from her, Jesus willed to arouse in Jairus a new sense of compassion for this woman whom he had not recognized as God’s daughter for 12 years.
+
+If we are God’s children, then we all belong to one spiritual family.
+Let us ensure that we take care of our spiritual family members during their difficult times.
+Let us also ensure to check on those who are missing from among us so that the whole family is present during worship.
+
+The woman was the only one of a multitude to barely touch the hem of Jesus’s garment, yet she alone was healed.
+
+Many people stand in the long queues for Holy Communion, like that crowd bumping into Jesus, but like that woman, very few of them receive the Body of Christ (Communion) with true faith in Him.
+Let us be among those few ones who receive the Lord into our hearts with true faith.
+
+Matthew 9:27-31
+This miracle was a type of the Sacraments of Reconciliation and Eucharist.
+
+*The blind man went to Jesus and asked Him for mercy.*
+We can receive mercy only if we go to Jesus with humility during Confession and Mass, and ask for it.
+
+*When Jesus touched the man he received physical sight.*
+When we receive the sacraments Jesus touches us and gives us the Holy Spirit to open our spiritual eyes to perceive the spiritual reality, thus taking away the blindness which covered our eyes due to sin.
+
+*The man was able to see only because he believed.*
+Similarly, spiritual healing through the sacraments will happen only if we believe that God’s grace flows through the sacraments.
+
+Matthew 9:32-33
+*After they had gone away, a demoniac who was mute was brought to him. And when the demon had been cast out, the one who had been mute, spoke;*
+Today, the mute are those of us who have a tongue but do not discuss or spread the Word of God because the evil spirit inside us makes us feel embarrassed and ashamed when we do so.
+Like the mute man, let us go to Jesus and ask Him to release our tongue so that we may have the courage to spread the Gospel.
+
+Matthew 9:36
+*When Jesus saw the crowds, His heart was moved with compassion for them, because they were harassed and helpless, like sheep without a shepherd.*
+Are our hearts moved with compassion for the less fortunate ones?
+If we are moved, then do we make any attempt to feed the hungry and clothe the naked, etc., as Jesus commanded us to (Matthew 25:34-36)?
+
+Matthew 10:1-4
+Jesus (the new Solomon) and His 12 apostles, of which Peter was chosen to oversee them, were foreshadowed, in the old Covenant, by King  Solomon and His 12 governors/chief ministers and one Prime Minister.
+
+Matthew 10:4
+*Why did Jesus choose Judas Iscariot to be his apostle?*
+To show us that :
+
+1. all bishops and priests are not saints.
+2. there is a Judas in all of us.  When we betray Jesus with our sins we stand in the place of Judas who handed over Jesus to the enemy to be scourged and crucified.
+3. God can call anyone to be a priest, the good ones as well as the bad ones.
+4. on the spiritual battle field, the priests are the ones in the front.  Priests are human like us and they are bound to fall into temptation to work for the enemy, and therefore they need our spiritual support (prayers).
+5. whatever Satan may do to destroy the Church through his Judases, from inside (through scandals, corruption, etc.) and from outside (through persecutions), the Church (the saints) will ultimately reach the promised land (Heaven).
+
+Matthew 10:7-8
+*As you go, proclaim the good news, ‘The kingdom of heaven has come near.’  Cure the sick, raise the dead, cleanse the lepers, cast out demons.*
+The Gospel is the good news because it has overcome the bad news but for most people the Gospel is just "news" because they haven't focused on the bad news.
+The bad news is that, due to the weakness of our souls, we are in captivity of the enemy (Satan and his minions) most of the time through the world, the flesh and the devil (1 John 1:8).  Jesus identified the devil as the ruler of this world (John 12:31; 14:30; 16:11) and Satan’s goods are we humans.  Most of the time Satan and his minions succeed in getting humans to do what they know they shouldn't do, however big or small it may be, because sin is a power.  At other times Satan succeeds in tricking humans into believing his half truths and his new ideologies, etc.  Satan has a million ways to deceive humans.  That is why Michael and his angels are constantly at battle with the evil spirits (Revelation 12:7-11), both types of spirits being represented by humans on earth.
+
+We may not be having the power to cure the sick, raise the dead, cleanse the lepers, and cast out demons physically or dramatically but with our love, generosity, kindness, etc. we can give new life to the people who have lost hope, we can help the sick and the lepers by attending to their needs, and we can help those who live in darkness to get rid of the demons in their lives (anger, hatred, revenge, greed, selfishness, loneliness, addictions, cruelty, etc.) who are holding them in bondage.
+
+By these physical miracles Jesus was demonstrating how He was going to free us of our spiritual suffering through the sacraments and how the power of God works.
+Jesus didn't come to earth to abolish evil and heal us of our physical suffering. He came to heal us of our spiritual suffering (sin) which is the cause of our physical suffering and which thwarts us in our vocation as God’s children.
+
+Matthew 10:28
+"Fear of the Lord" is not about being afraid of God like we would be in the case of a tyrant.  "Fear of the Lord" is fear of losing Him and therefore we choose to follow Him.  We must ask the Lord to give us the grace to stay close to Him always.
+When we fear the Lord we will make sure that whatever we do we will do it to please Him, just as we would do to the one we love.
+
+Matthew 10:31
+*Do not be afraid.*
+Whenever we face a crisis fear grips our hearts  because we have a fallen human nature, and the devil does everything he can to install fear in our hearts so that we despair and seek immediate solutions even if they are ungodly.
+
+Jesus tells us not to fear because if God is truly in our hearts then we will leave all our worries in His hands trusting that He will eventually bring us out of the storm even if we get injured on the way out.
+
+Matthew 10:39
+*Those who find their life will lose it, and those who lose their life for my sake will find it.*
+Those who fear death are the ones who die only once.  Those who live for Christ are the ones who die a thousand deaths before they leave this world.
+
+Whoever focuses on nourishing and saving his natural life will eventually lose his natural life as well as his eternal life because natural life is temporary and he has not prepared himself for his eternal life.
+
+On the other hand, whoever has lost his natural life (maybe because of persecutions) because he was faithfully following Jesus, will receive eternal life because he knew which life was more important and he spent his time on earth preparing himself for eternal life, therefore he was not afraid of losing his natural life.
+
+Matthew 10:40
+Like the Shunammite woman (2 Kings 4:8-35), Jesus wants us to welcome priests in our homes because, by their apostolic ordination, when we welcome them we welcome Jesus and God the Father into our homes.
 
 🔥🔥🔥🔥🔥🔥🔥
