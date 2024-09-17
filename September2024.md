@@ -56,6 +56,10 @@
     + [Carrying the Cross](#carrying-the-cross)
     + [Day 260 Faith, Healing, and carrying our cross](#day-260-faith-healing-and-carrying-our-cross)
     + [BIAY Day 260 By Cynthia Dsilva](#biay-day-260-by-cynthia-dsilva)
+    + [DAY 260. By Sheila](#day-260-by-sheila)
+  * [September 17,2024](#september-172024)
+    + [Ornate Souls](#ornate-souls)
+    + [Day 261 Is religion boring?](#day-261-is-religion-boring)
 
 <!-- tocstop -->
 
@@ -999,3 +1003,41 @@ Matthew 10:40
 Like the Shunammite woman (2 Kings 4:8-35), Jesus wants us to welcome priests in our homes because, by their apostolic ordination, when we welcome them we welcome Jesus and God the Father into our homes.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+### DAY 260. By Sheila
+
+Matthew: The Lord has remembered his Mercy. "Oh Lord I am not worthy to receive You but only say the Word and I shall be healed."  We often say these words right before we take Communion. What do they mean? Essentially, it is an expression of deep faith. Faith is fundamentally an adherence to the Person of Jesus, whose Words bring Life and Healing. Our faith ought to go way beyond our assent to a body of doctrinal teaching but to a relationship with the One who comes to us as a Gift to be taken, Jesus. He is God's Gift, who bore our infirmities and took on Himself, our diseases. Each time, we receive Jesus, we commit to adhere to both, His Message and His Person.
+We go on to live in a World that puts premium in having things at the tip of our fingers. We want to have 'control' over the circumstances of our life. We are no strangers of fear but fear is neither good nor bad. The things we are afraid of pushes us to shout, 'Lord save us! We are lost'. We have the wrong notion that to combat fear, all we need is to summon all the courage we have but in the end, only our faith in Jesus can save us.
+Jesus saw their faith. We are in front of a proof that while faith is a personal adherence to Jesus, it is at the same time communal. The paralytic was cured only because he believed but also because of the faith of those who carried him to Jesus. This should teach us the value of nourishing one another's faith life with our brothers and sisters in Community. The Lord constituted the Church as a Community to encourage and enrich one another in our pilgrim way to Him.
+Vocation to Priesthood and religious life, if we fall short of workers in the Lord's Vineyard, it is also because we have lamentably failed to look for them. This task is given to all members and hence make the daring proposal to the young people we know, who may be just there, near to you and waiting for your gentle prodding.
+"DO NOT BE AFRAID", repeated three times seeks a demonstrate that God will be in charge of those who follow Him and will faithfully carry out His Promise. No amount of human effort can effect change without God by Our Side. Let's head to The House of God's Love where even a strand of hair is left unharmed. Lets only believe and fear no more.
+Proverbs:  The poor, foolish, sinners and all who are righteous and wise makes The Lord their refuge.
+
+## September 17,2024
+
+### Ornate Souls
+
+[![Ornate Souls](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day261.jpg)](https://youtu.be/kSVXwpGupxc "Ornate Souls")
+
+### Day 261 Is religion boring?
+
+Many people complain that Christianity is boring and has a bunch of rules. We hear phrases like “I tried church, it’s not for me” or “I didn’t get anything out of the sermon today”.
+If one doesn’t experience anything it mostly is not a problem with the Church or the Bible or God the problem lies in the person. As we read in the parable of the Sower, the "seed" and the "Sower" are always good there is no problem with them. The Sower is very generous with the seed, He is sowing it on all types of soil – on the paths, the rocky ground, among thorns, and on good soil.
+
+The problem lies in the soil, in the person itself.
+The person does not even listen to the word of God being proclaimed at Church – is like the seed sown on the path that the evil one snatched away. When we are distracted or not paying attention at church or while reading God’s word – the evil one is snatching away all the good seed that is being sown.
+
+We may be the type of person who listens to the word and accepts it with joy, however, it does not take root in us – we easily forget it and move on to the next thing.
+
+Or we may be the third type of soil that grows the seed into a plant but gets choked as it’s growing among thorns, thorns are the care and anxieties and troubles of this world that cause us to lose the Word we have received.
+
+So the next time we try to complain about the word of God or the Church we should also examine ourselves – to see if we were good soil or we let the evil one snatch the seed away or did not let the word take root or let the cares of this world distract us from the word of God.
+Everyone at Mass receives the same Eucharist, yet some turn out to be saints and others, sinners. It's not about what we receive but what we allow Christ to do in us.
+
+As we have dedicated a year to reading God’s word in this BIAY program, I hope and pray that we are all being good soil for the good seed we receive.
+
+I pray that we produce abundant fruit – 30, 60 and a 100 fold fruit and produce.
+
+May we be good soil for the Word of God.
+
+May the Holy Spirit lead us. 🙏
