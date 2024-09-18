@@ -61,6 +61,10 @@
     + [Ornate Souls](#ornate-souls)
     + [Day 261 Is religion boring?](#day-261-is-religion-boring)
     + [BIAY Day 261 By Cynthia Dsilva](#biay-day-261-by-cynthia-dsilva)
+  * [September 18,2024](#september-182024)
+    + [Miracle Worker](#miracle-worker)
+    + [Day #262 Authority – Keys to the Kingdom](#day-%23262-authority-%E2%80%93-keys-to-the-kingdom)
+    + [BIAY Day 262 By Cynthia Dsilva](#biay-day-262-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -1176,5 +1180,141 @@ The kingdom of Heaven cannot be understood unless we understand how the new Test
 In other words, to understand the new Testament we must first understand its Jewish roots.
 
 On one side are the gentiles and on the other side are the Jews and Jesus is the hinge between the two.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## September 18,2024
+
+### Miracle Worker
+
+[![Miracle Worker](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day262.jpg)](https://youtu.be/X_ADBnj9aBk "Miracle Worker")
+
+### Day #262 Authority – Keys to the Kingdom
+
+Jesus and his disciples go on a 29-mile hike – to a place where most Jews would not want to even go. Caesarea Philippi was in a hills country which was the epic center of all pagan worship. In the caves of the big Rocky Mountains were temples to many pagan gods, and there was a lot of pagan sacrifice happening at any given time. Jesus possibly took the disciples to the highest peak and asked them this question “Who do you say that I am?”
+
+“Who do people say that the Son of Man is?” 14 And they said, “Some say John the Baptist, but others Elijah, and still others Jeremiah or one of the prophets.” 15 He said to them, “But who do you say that I am?” 16 Simon Peter answered, “You are the Messiah, the Son of the living God.” 17 And Jesus answered him, “Blessed are you, Simon son of Jonah! For flesh and blood has not revealed this to you, but my Father in heaven. 18 And I tell you, you are Peter, and on this rock I will build my church, and the gates of Hades will not prevail against it. 19 I will give you the keys of the kingdom of heaven, and whatever you bind on earth will be bound in heaven, and whatever you loose on earth will be loosed in heaven.”
+
+When Peter declared Jesus as the Messiah, the son of the living God, Peter was also saying that all of those other pagan religions are nothing but fake earthly idol worship. Jesus in return standing on a big high rock proclaims Peter as the rock on which Jesus would build His church. Unlike the rock in Caesarea Philippi that housed all pagan temples – Jesus is building His church in living people – our bodies will be the temple of the Holy Spirit.
+
+The gates of Hades will not prevail against us – is not a defensive statement but an offensive statement. So we the church should not be fearful of the evil one and his kingdom – but the evil one has to be afraid of us – here the reference is on the gates of Hades – that means we will be able to go to the gates of Hell and defeat the evil one in his own home ground. Even the gates of Hell will not be able to stop us, who bear the light of Christ.
+
+Peter is given authority – the keys to the Kingdom.
+In order to understand the Keys to the Kingdom, we need to put on the lens of the Israeli Kingdom, not this 21st-century lens. The King was the supreme authority, but when he was going away, he would give all governing authority to the “al-habbayit” he would give him this big Key that he would literally carry on his shoulder. He would have the same authority as the king, along with authority he was also given the responsibility to be a father to the people. As we read the below verses we can read about the authority and the role of the al-habbayit/stewart/father over the household.
+
+“In that day I will summon my servant, Eliakim son of Hilkiah. I will clothe him with your robe and fasten your sash around him and hand your authority over to him. He will be a father to those who live in Jerusalem and to the people of Judah. I will place on his shoulder the key to the house of David; what he opens no one can shut, and what he shuts no one can open. I will drive him like a peg into a firm place; he will become a seat of honor for the house of his father. All the glory of his family will hang on him: its offspring and offshoots—all its lesser vessels, from the bowls to all the jars. Is 22:20-25
+
+This prophecy is fulfilled when Jesus instituted Peter as the first Pope(Papa/Father) the “al-habbayit”.
+And I tell you that you are Peter, and on this rock, I will build my church, and the gates of Hades will not overcome it. I will give you the keys of the kingdom of heaven; whatever you bind on earth will be bound in heaven, and whatever you loose on earth will be loosed in heaven.” Then he ordered his disciples not to tell anyone that he was the Messiah. Mat 16:18-20
+The concept of the papacy is not something new that was introduced by the catholic church it’s seen back in Isiah. The al-habbayit who had the key which opened the gates of the kingdom and the treasury, he had the authority to bind and loose. The first pope Peter did this very role, we can see the evidence in the acts of the apostles and other letters – they would always consult Peter on doctrine. This did not end with Peter, it was handed down to Linus, and Clement (who are mentioned in the NT).
+Till this day the present Pope has the authority passed down, to bind and lose. In the OT we have read how the judges and lower and upper courts would sit in judgment. Creating laws and regulations – going back and forth and finally agreeing on what is the law.
+In the same way, the Catholic Church is the universal church that has the authority given by Jesus to define and expand the new law of the Spirit. The Old Testament temple authorities had very heavy laws that they would enforce on the faithful. Jesus abolishes all those man-made requirements and laws – like the washing of hands/cups and eating of certain foods only. Jesus gives this role to Peter and the disciples.
+Jesus takes us back to the heart of the commandments that God gave us to love God and to love our neighbor. Jesus appointed Peter and every succeeding pope to along with the councils to bind into law all the teachings of the Holy Spirit, the Bible is one of the initial things that the catholic church was instrumental in discerning the books that belong and finally authorizing the official books of the Bible. We will learn more about what the CC teaches when we do the catechism in a year. The catechism of the catholic church is the work of the church –inspired by the Holy Spirit.
+May the Holy Spirit lead us 🙏
+
+### BIAY Day 262 By Cynthia Dsilva
+
+Matthew 14:15-20
+This was a demonstration of how God wants to use our bodies to help the poor and needy till all are satisfied physically, which is in imitation of how Jesus generously feeds us, spiritually, with His Body (Communion).
+
+Therefore, after seeking God’s blessings we must generously share whatever we can, with the less fortunate ones, and God will multiply our gifts so that we can share more till all are satisfied, just as Jesus generously multiplies and shares His sacramental Body (Communion) to feed us so that our souls are completely nourished.
+
+*Jesus said to them, “There is no need for them to go away; give them some food yourselves.”*
+Jesus told the Apostles to share whatever they had, and they did, and God multiplied their resources so that everyone's hunger was satisfied.
+Jesus tells us the same “give them what you have.”
+We don’t have to be a Bible scholar to share the Word of God.
+We can share whatever we learnt and God will multiply our resources.
+We don’t have to be a millionaire to help the less fortunate ones.
+We can just share with them whatever we have; whether it is food, clothes, love, prayers, or anything else, but we must share the best what we have and with a clean heart.
+
+Peter gave Jesus only his friendly love (John 21:15-19), and Jesus accepted it, multiplied it and transformed it into sacrificial love, so that Peter ended up giving his life for Jesus.
+In every act of generosity Jesus says, "You do your best and I will do the rest."
+What we do not have, we cannot give and that is where we trust in God.
+Let us therefore offer up to Jesus whatever loaves and fish we can offer, so that Jesus can multiply them and transform them for the growth of His Kingdom.
+
+This miracle was not just about sharing.  This was a miracle of God providing His people with supernatural food.
+By the miraculous multiplication of the bread in the desert, Jesus was echoing the daily miracle of the first Exodus which was the miraculous bread from Heaven (Manna) given to the people by God to nourish their bodies during their physical journey through the desert.
+
+Jesus was also foreshadowing the daily miracle of the new Exodus when God would feed His people with the Heavenly bread (the Eucharist / Communion) to nourish their bodies during their spiritual journey through the desert of earthly exile.
+This miracle was a foreshadow of the Last Supper when Jesus used the same pattern (Matthew  26:26-30 / Mark 14:22-26 / Luke 22:14-20 / 1 Corinth.11:23-25).
+He took the bread, blessed it, broke it and gave it to his disciples to be distributed.
+
+Matthew 14:22-33
+Peter was a fisherman, he knew how to swim (John 21:7) and he knew the destructive force of the storm.  When he looked at Jesus he was able to walk on the water.  But when he looked at the storm he was afraid and started to sink because he took his eyes away from Jesus and focused on the world which only put fear in his heart.  His knowledge of the storm weakened his faith in Christ.
+
+Like Peter, sometimes too much knowledge of worldly matters and impatience, weakens our faith in Christ by creating doubts.  When we are focused on Jesus, we can walk through any storm undisturbed.
+
+When Peter called out to Jesus to save him, Jesus immediately reached out and took Peter by the hand but calmed the strong wind later.
+When we are caught up in the storms of life, if we call out to Jesus “Lord save me” he will reach out his hand and help us through the storm if we obey Him.
+
+Matthew 15:1-6
+*And why do you transgress the commandment of God for the sake of your tradition?”*
+Jesus did not condemn all traditions; he condemned only erroneous traditions, whether doctrines or practices, that undermined God’s truths. He instructed his followers to abide by the traditions that are not contrary to God’s commandments.  And, as the Apostles taught (1 Corinthians 11:2; 2 Thessalonians 2:15), the rest are to be obeyed.
+
+Matthew 15:11
+*Jesus summoned the crowd again and said to them, “Hear me, all of you, and understand.  It is not what goes into a person’s mouth that makes him ritually unclean.  It is the things that come out from his mouth that makes him ritually unclean.”*
+Eating something that is dirty can make our bodies sick but not our souls.  Our souls become sick and weak when negative words come out of our mouths, and this puts both our souls and bodies in the custody of the devil whose aim is to destroy both.
+
+It is therefore always best to speak when our mind is cool, even when we face people whose minds are out of control.  When our mind is heated, the words which come out of our mouths can be physically and emotionally destructive to those around us, and spiritually destructive to our own souls.
+
+The mouth is only one God-given outlet in our body where we can control what comes out of it because whatever words come out of our mouths will always come out by our choice.
+So let us avoid negative words coming out of our mouths (example: gossiping, insulting, ridiculing, speaking ill about others, lying, harsh words, offensive language, etc.).  If we are guilty of this sin then let us ensure to receive the Sacrament of Reconciliation and, thereafter, spread the light of Christ whenever we speak.
+
+Matthew 15:22-23
+*Just then a Canaanite woman from that region came out and started shouting, “Have mercy on me, Lord, Son of David.”  But he did not answer her at all.*
+Sometimes when we pray to God to help our wayward children to come back to Him, we may notice that God remains silent for a long time.
+The silence of God is not His indifference. When God is silent He is secretly planning mercy for the children while He is also planning the spiritual healing of the parents.
+Therefore, while the parents pray for their children, they must also focus on examining themselves.
+
+*And his disciples came and urged him, saying, “Send her away, for she keeps shouting after us.”*
+When we cry to the Lord to have mercy on our children who have gone away from Him, and the people around us try to silence us or discourage us, let us remember that it was the persistent prayer of the Canaanite woman that delivered her daughter from the evil spirit, inspite of facing objection from people.
+
+*He said in reply (to His disciples), “I was sent only to the lost sheep of the house of Israel.”*
+Jesus neither gave His disciples the permission to send her away nor did He tell His disciples to remain silent like Him.
+By telling His disciples that His mission was to preach first to the Jews, Jesus was actually telling her to wait for her turn till later.
+
+*Jesus answered, “It is not fair to take the children’s food and throw it to the dogs.”*
+It may sound like Jesus was being rude to the woman, but that is exactly how it feels when our faith is being tested.
+When Jesus compared the woman to a dog, she had two options :
+
+1. she could allow her pride to control her, take the response of Jesus as an insult and leave Jesus, OR,
+2. she could humble herself and accept that she was not the greatest.
+   If she chose Option 1, then, because of her pride, her daughter would have to live with the demon all her life.
+   But the Cannanite woman made a wise choice.  She chose Option 2, and Jesus healed the child because of the faith, humility and persistent prayer of the mother.
+   Let us learn from the Cannanite woman to humble ourselves and choose our words wisely when we communicate with others.
+
+Matthew 16:15
+*Then he said to them, “But who do you say that I am?”*
+Do we really believe that Jesus is the Messiah and that he can give us eternal life?
+Do our words and actions show that we are true followers of Jesus?
+Would we follow God’s commandments when we are going through suffering?
+To believe that Jesus is the Messiah is to follow His way of self-denial and live for others even if we have to go through suffering.
+
+Matthew 16:16-17
+*Jesus said to Simon in reply, “Blessed are you, Simon, bar-Jonah (or son of Jonah). For flesh and blood (your human brain) has not revealed this to you, but it was given to you by my Father in heaven.”*
+All knowledge and intelligence comes from God because He is the one who created our complex brain and without God we are nothing. Therefore, whenever we make wise decisions in life, it is not because of the power of our brain, but because God opens our mind and makes it possible for us to make those decisions.  Therefore we need to be thankful to God and give Him the glory for all our achievements, instead of boasting about our achievements and enjoying the glory ourselves.
+
+Matthew 16:18
+*Jesus said to Simon, “And so I say to you, you are Peter, and upon this rock I will build my church, and the gates of Hell shall not prevail against it.”*
+By these words Jesus confirmed the guarantee of His perpetual divine assistance to protect the Church (the Eucharist) from Satan.
+By these words Jesus also assured all Christians that as long as we live we will not be deprived of the heavenly Bread (His mystical Body / the Eucharist).
+Jesus, in His humanity, is, and will be, with us in the Eucharist / the consecrated Bread every day, until the end of time (Matthew 28:20),
+
+Jesus confirmed Simon’s office as Pope in the Kingdom of God on earth (the Church):
+
+1. by changing his name;
+2. by declaring that Simon Peter would be the leader of the foundation stones on which the Church would be built (Revelation 21:14);
+3. by giving Simon the spiritual keys to the Kingdom of Heaven, an authority which rested only the Prime Minister in the Davidic Kingdom;
+4. by giving Simon the power to bind and loose (the authority to interpret God’s Law, to absolve or retain sins, to pronounce doctrinal judgements, and to make disciplinary decisions in the Church) (John 20:20-23; Deut. 17:8-13).
+
+Name change was meant to reflect the divine mission of the name owner.
+Jesus was going to make Simon Peter the rock-solid foundation of the Church.
+God does not call the qualified. This means God does not call us for His divine mission on the basis of our expertise but He may use our talents to accomplish His divine mission through us.
+
+Peter himself was the longest reigning Pope, occupying his office from the year of the first Pentecost in 30 AD until around 67 AD.  After Simon Peter’s death, his episcopal office was taken over by his successor, Pope Linus (AD 67), the same Linus who served the Church during the time of Paul (2 Timothy 4:21).  Pope Francis is the 266th Pope since Simon Peter.
+
+Matthew 17:22-27
+Jesus didn't have to pay the Temple tax but He still gave to the Temple.
+Maybe it is time for us to examine the level of our generosity towards the Church.
 
 🔥🔥🔥🔥🔥🔥🔥
