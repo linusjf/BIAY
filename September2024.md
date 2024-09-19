@@ -65,6 +65,9 @@
     + [Miracle Worker](#miracle-worker)
     + [Day #262 Authority – Keys to the Kingdom](#day-%23262-authority-%E2%80%93-keys-to-the-kingdom)
     + [BIAY Day 262 By Cynthia Dsilva](#biay-day-262-by-cynthia-dsilva)
+  * [September 19,2024](#september-192024)
+    + [The Father's Generosity](#the-fathers-generosity)
+    + [Day #263 Forgiveness is a good idea until someone hurts us](#day-%23263-forgiveness-is-a-good-idea-until-someone-hurts-us)
 
 <!-- tocstop -->
 
@@ -1318,3 +1321,45 @@ Jesus didn't have to pay the Temple tax but He still gave to the Temple.
 Maybe it is time for us to examine the level of our generosity towards the Church.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## September 19,2024
+
+### The Father's Generosity
+
+[![The Father's Generosity](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day263.jpg)](https://youtu.be/wVycggMYuBk "The Father's Generosity")
+
+### Day #263 Forgiveness is a good idea until someone hurts us
+
+As we read through all the parables the theme of forgiveness seems to run through all of them.
+The Good shepherd goes after the lost sheep with so much love and forgiveness instead of anger and frustration. If you find yourself in sin today and are feeling down and miserable – don’t worry Jesus the Good Shepherd is coming to seek after you – He loves you and will forgive you – in fact, He will rejoice over you.
+
+What do you think? If a shepherd has a hundred sheep, and one of them has gone astray, does he not leave the ninety-nine on the mountains and go in search of the one that went astray? 13 And if he finds it, truly I tell you, he rejoices over it more than over the ninety-nine that never went astray. 14 So it is not the will of your Father in heaven that one of these little ones should be lost. Mat 18:12-14
+
+Now “Forgiveness is a good idea until someone hurts us” that is why Peter asks how many times should we forgive.
+
+21 Then Peter came and said to him, “Lord, if another member of the church sins against me, how often should I forgive? As many as seven times?” 22 Jesus said to him, “Not seven times, but, I tell you, seventy-seven times. Mat 18:21-22
+
+Jesus gives peter an answer that he didn’t like – did Jesus mean that we should forgive 7\*70 times which is 490 times. No, we need to forgive them the 491st time as well, Jesus was using Hyperbole. Just like we say, “Will be back in a second” – we mean in a few mins don’t we.
+Jesus helps us understand this better with this parable, which shows that we should be forgiving because we have been forgiven.
+
+The Parable of the Unforgiving Servant
+23 “For this reason the kingdom of heaven may be compared to a king who wished to settle accounts with his slaves. 24 When he began the reckoning, one who owed him ten thousand talents was brought to him; 25 and, as he could not pay, his lord ordered him to be sold, together with his wife and children and all his possessions, and payment to be made. 26 So the slave fell on his knees before him, saying, ‘Have patience with me, and I will pay you everything.’ 27 And out of pity for him, the lord of that slave released him and forgave him the debt. 28 But that same slave, as he went out, came upon one of his fellow slaves who owed him a hundred denarii; and seizing him by the throat, he said, ‘Pay what you owe.’ 29 Then his fellow slave fell down and pleaded with him, ‘Have patience with me, and I will pay you.’ 30 But he refused; then he went and threw him into prison until he would pay the debt. 31 When his fellow slaves saw what had happened, they were greatly distressed, and they went and reported to their lord all that had taken place. 32 Then his lord summoned him and said to him, ‘You wicked slave! I forgave you all that debt because you pleaded with me. 33 Should you not have had mercy on your fellow slave, as I had mercy on you?’ 34 And in anger his lord handed him over to be tortured until he would pay his entire debt. 35 So my heavenly Father will also do to every one of you, if you do not forgive your brother or sister from your heart.” Mat 18:23-35
+
+Here the number thousand talents that the servant owed to the King – is actually such a large number when you do the math on it.
+ONE TALENT = 20.4kgs (of Gold or silver)
+Ten thousand Talents = 20.4 x 10,000 = 2,04,000 kgs in measurement
+1 gram of gold is like $50 so for the 2,04,000 kgs – it is like $10,2000,000
+
+So the servant owed the king 100 Million dollars.
+
+The point here is the King knew that the servant will never be able to pay off the debt, so the king forgives the servant and expects the servant to do the same. When the servant did not forgive those who were indebted to him, that is when the King threw the servant into prison. The lesson to learn is we should forgive others as we have been shown great mercy from God. Let us learn to forgive our brothers and sisters from the heart.
+Forgiveness is the "Key" that unlocks God’s super-abundant mercy.
+Even if we don’t like to forgive because it hurts so much, we should pray for the strength to forgive those who hurt us and love them even though it hurts.
+For our salvation depends on our forgiveness. We pray this prayer everyday when we say the Our father.
+
+"Forgive us our trespasses “AS” we forgive those who trespass against us" Mat 6:12
+
+In refusing to forgive our brothers and sisters, our hearts are closed and their hardness makes them impervious to the Father's merciful love; but in confessing our sins, our hearts are opened to his grace. CCC 2840
+
+So let us strive very hard to make things right with everyone, prayer and forgive them.
+May the Holy Spirit lead us. 🙏
