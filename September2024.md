@@ -75,6 +75,7 @@
   * [September 21,2024](#september-212024)
     + [Sins of Omission](#sins-of-omission)
     + [DAY #265 FAITH & WORKS](#day-%23265-faith--works)
+    + [BIAY Day 265 By Cynthia Dsilva](#biay-day-265-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -1524,3 +1525,90 @@ But his master replied, ‘You wicked and lazy slave! You knew, did you, that I 
 
 Let us not be lazy with all the resources that are given to us, let us come to the aid of those in need. Let us do as much charity as we can and bless those who are struggling.
 May the Holy Spirt lead us 🙏
+
+### BIAY Day 265 By Cynthia Dsilva
+
+Matthew 25:13
+*Jesus said, “stay awake, for you know neither the day nor the hour when the Lord will come.”*
+Forewarned is forearmed.
+In our day-to-day life many such situations arise when we have to be prepared in advance for a crisis, but we ignore them or put them off for another day, thinking we know better.
+God has given us freedom of choice to obey Him always and live in a state of grace at all times so that when Jesus knocks at the door we will be ready to go with Him.
+Let us, therefore, stay alert, be aware and be prepared at all times.
+
+Matthew 25:34-36
+The sheep go to Heaven, not just because they did the works of mercy and checked off the item on their checklist but, because they did those works out of love and compassion for their neighbour.  The Gospel is a message of love and compassion, the kind of heart that God has.  And because God's kingdom is a holy kingdom it is important that all the subjects/children keep themselves sanctified by receiving the sacraments of Reconciliation & Eucharist, regularly.
+
+Matthew 26:1-5
+*It was now two days before the Passover and the feast of Unleavened Bread.*
+God had given these two festivals to the Israelites as two separate feasts but during the time of Jesus they were both being celebrated together as desired by God.
+Both feasts of the old Covenant were shadows of the Unleavened Bread (Communion) and Passover (Mass) of the new Covenant which Jesus inaugurated in the Upper Room and finished on Calvary and thereafter gave them to the Church to be celebrated until the end of time.
+
+*The chief priests and the scribes were looking for a way to arrest Jesus by stealth and kill him; for they said, “Not during the festival, or there may be a riot among the people.”*
+The normal population of Jerusalem was around 40,000 but during the Passover it would be around 200,000, because God had mandated that every male Jew must go to Jerusalem to celebrate the old Passover, so that, without their knowledge, every male Jew would be a witness to the sacrifice of the Lamb (of God) on the Cross for the first Passover of the new Covenant, in atonement for their sins.
+
+Everything was going according to God's divine plan and God allowed the evil ones to go ahead with their plan so that God’s plan would be fulfilled.
+
+On the day and hour when the hour earthly lambs would be slaughtered for the old Passover to commemorate the physical liberation of the people of the old Israel from the evil Pharaoh, on the same day and hour the heavenly Lamb of God (Jesus) would be killed for the new Passover to spiritually liberate the baptized people of the new Israel (the Church) from Satan.
+
+Matthew 26:14-16
+*Then one of the Twelve, who was called Judas Iscariot, went to the chief priests and said, “What will you give me if I hand him over to you?” They paid him thirty pieces of silver, and from that time on he looked for an opportunity to hand Jesus over.*
+Judas was chosen so that he could forget his past habits and become a faithful disciple of Christ. But somewhere in between Judas lost his focus on discipleship and focused more on the world.  By choosing to betray Jesus he was committing a mortal sin and therefore had a tragic end.
+
+We are baptized into Jesus to be His disciples by living holy lives and to evangelize the world by sharing the Word of God.  But, like Judas, when we focus more on the pleasures and comforts of this world and lose our focus on our discipleship then, like Judas, we too are betraying Jesus and our soul may meet with a tragic end.
+
+The chief priests bribed Judas to betray Jesus and Judas accepted the bribe to do the unlawful act of selling Jesus.
+
+The chief priests represent those Christians who bribe others to get work done illegally, and Judas represents those Christians who accept or ask for bribes to proceed with work against the law.
+Whenever we (Christians) get involved with accepting bribes, like Judas, we too are standing on Calvary and selling Jesus to the devil to be scourged and crucified.
+Whenever we (Christians) get involved with giving bribes to do something unlawful, like the chief priests, we are guilty of scourging and crucifying Jesus.
+Whether we give bribes or take bribes or whether we are the middle person in a bribe, in all three cases we commit a mortal sin.  If we are guilty of being involved in a bribe in any way, we must return the bribe or give it away and confess our sins without delay.
+
+Matthew 26:17-25
+*On the first day of the Feast of Unleavened Bread, when they sacrificed the Passover lamb, his disciples said to him, “Where do you want us to go and prepare for you to eat the Passover?”*
+Before the institution of the Last Supper / Eucharist, the disciples prepared a Passover lamb for the feast.  That earthly lamb was a symbol of the physical sacrifice of Jesus and was supposed to be the “LAST” animal sacrifice offered to God.
+
+“Preparation of the Passover” meant that the lambs would be slaughtered and then roasted by spitting them with skewers, that is, passing one skewer vertically through the back of the lamb from head to bottom and the other skewer through the shoulders from left to right.  This was a shadow of the Lamb of God on the Cross.
+
+Thus, by spitting the lambs during the Passover of the Old Covenant, the people were asked to slaughter and crucify the lambs and eat the flesh, as a shadow of the real sacrifice of the Lamb of God and the Passover meal (Communion) of the New Covenant.
+
+Matthew 26:26
+*While they were eating, Jesus took bread, said the blessing, broke it, and gave it to the disciples.*
+After the ordinary bread is blessed by God it becomes the bread of life. The earthly bread is visible but the heavenly bread (the Body of Christ) is not, just as the human body of Jesus was visible to all but His divine body was not.
+
+The priest consumes the bread and wine separately because that is how Jesus gave it to them in the Upper Room.  The offering of the sacrifice is complete only when the priest consumes both.
+
+*This is my body ...........*
+*This is my blood ..........*
+When Jesus said these words, the Word became living flesh, just as it did when Angel Gabriel spoke the Word of God (Luke 1:31) and Mary said “Amen.”
+The same principle was applied in the Upper Room as it was at the incarnation.
+
+The words of consecration can be repeated by anyone, but the transubstantiation takes place through the power of the Holy Spirit only when an apostolic priest says the exact words in obedience to the command of Jesus because the authority was given only to the ordained apostles, who in turn must give that same authority to their apostolic successors.  Therefore, if any other person repeats the words of consecration the bread and wine will still remain bread and wine; they will not be transformed.
+
+Offering bread and wine separately is a symbol of death, because death begins when blood is separated from the body.
+
+*Take this and eat .......*
+God does not need our sacrifice.  Therefore, He blesses it and returns it to us as the fruit of our sacrifice and a reconciliation meal so that we can have communion with Him, if we are in a state of grace.
+
+A sacrifice offered in atonement for sins has to be a real living sacrifice, not a symbol, because our sins are real.  Thereafter, we must take part in the sacrificial meal in a state of grace (1 Corinthians 11:27-29), without which the atonement process is incomplete, in other words, without which our broken relation with God cannot be repaired.  By this we become part takers in the divine nature of Christ (2 Peter 1:4), until we commit a mortal sin again.
+
+When God became man, He took on our human matter (the dust of the earth).
+When Jesus was on the earth and He healed the people of their sicknesses, cast out demons, gave them sight, cured the deaf and mute, etc., the people received the sacraments (graces) from the living visible God.
+After the descent of the Holy Spirit Jesus pours His graces into us through the sacraments using ordinary earthly materials (water, bread, wine, oil, etc.) as an outward sign of an inward grace.
+Therefore, when we receive the sacraments we receive the invisible but living Jesus.  The sacraments continue the incarnational principle when God touched the earth (Mary's womb) so that we can encounter the living invisible Jesus during our lifetime.
+
+The first Adam gave us the forbidden fruit and thus brought death to the world.
+The new Adam (Jesus) gives us the blessed fruit (the consecrated bread) when we are in a state of grace and thus brings life to the world.
+
+Wine is a symbol of God’s love or wrath.
+In the Garden of Eden. Adam & Eve were drunk on God's wine of love.  After the Original sin man and woman ran out of the wine of God’s love within them because they destroyed the divine life within them.
+By giving us His Blood in the form of consecrated wine, during Mass, Jesus restores creation to its original form through.
+He restores the relationship between God and man, between man & wife, between body & soul, and between humans & the rest of creation.
+
+Matthew 26:47-49, 56, 69-74
+*All 12 apostles received their priestly ordination (Holy Orders) in the Upper Room and all 12 of them had the Eucharist (Communion) but shortly after that Judas betrayed Jesus, Peter denied Jesus and the remaining 10 abandoned Jesus.*
+Receiving Communion or any other sacraments is not a guarantee that the devil will stop tempting us to follow him.  One mortal sin is enough for the devil to start controlling our thoughts, words and deeds, and make us use our bodies (eyes, ears, tongue, hands, etc.) for sinful purposes.  He has a million ways to fool us into committing sins.  We must, therefore, remain alert to sin until the last day of our lives and receive the Sacrament of Reconciliation whenever we fail.
+
+*Jesus was taken away from the Apostles after Judas betrayed Him.  Thereafter the apostles were scattered by Satan.*
+When we betray Jesus with our sins, God leaves us because sin separates us from God.  This automatically puts us in the hands of Satan whose aim is to destroy families and communities and eventually the Church, by causing division between the members.
+
+🔥🔥🔥🔥🔥🔥
