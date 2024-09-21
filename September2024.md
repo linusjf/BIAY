@@ -71,6 +71,10 @@
   * [September 20,2024](#september-202024)
     + [Preaching Without Practice](#preaching-without-practice)
     + [DAY #264 THE NECESSITY FOR WATCHFULNESS](#day-%23264-the-necessity-for-watchfulness)
+    + [BIAY Day 264 By Cynthia Dsilva](#biay-day-264-by-cynthia-dsilva)
+  * [September 21,2024](#september-212024)
+    + [Sins of Omission](#sins-of-omission)
+    + [DAY #265 FAITH & WORKS](#day-%23265-faith--works)
 
 <!-- tocstop -->
 
@@ -1390,3 +1394,133 @@ Just like in the parable of the wedding banquet, the banquet was ready and the p
 The Church provides us with two seasons every year – Advent and Lent. Advent and Lent are perfect seasons to prepare "the way of the Lord". Just as every sports team plays different seasons – probably yearly. We get to work on our readiness every year, through fasting prayer, and almsgiving we strengthen our resolve to become holy and renew our spiritual lives. May the Lord find us ready when He comes in glory, the best way to be ready is to stay in friendship with Jesus, always stay in the state of grace and be in communion with the church.
 
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 264 By Cynthia Dsilva
+
+Matthew 22:1-14 (1)
+In this parable, God the Father is the King (Matthew 5:35) and Jesus is the bridegroom (Matthew 9:15).
+Three times God the Father sent out invitations to humanity for the marriage (Passover / Mass) of His Son (Jesus).
+
+The 1st invitation symbolizes the initial call to human beings, when God created Adam and Eve.  He made a Covenant with them, but they broke it, and their descendants followed in their footsteps, thus declining the invitation to God’s banquet.
+
+The 2nd invitation was for Israel, God’s chosen people led by Moses. He invited them to enter into a Covenant, at Mount Sinai, but this was also broken.  Some ignored the invitation because they were too busy satisfying their own desires and others tortured or killed many of the prophets and priests and therefore God allowed their country to be destroyed by foreign countries.
+
+So a 3rd invitation was sent out, through the Apostles/bishops, to the whole of humanity, good and bad alike (Matthew 13:47–48), and some people started accepting Christianity, but not everyone who accepted Christianity was accepted by the King.
+One man was cast out because he wasn’t wearing a wedding robe, and this seems harsh.  In the ancient world, it was customary for the person hosting the banquet to provide wedding robes for the guests. These robes were freely given by the host, just like salvation is freely given to anyone who wants to accept it.
+
+By wearing their wedding robes the guests were honoring the host, which means that the man who was not wearing a wedding robe was showing extreme disrespect for the King and his son.  The King couldn’t believe that someone would turn down a wedding robe that was so freely given.  When the man was questioned he had no answer.
+
+The robe (the grace of God) was given to the man and all he had to do was put it on, but the man chose to reject the grace of God.  He wanted to enjoy the banquet but on his own terms, not on the King’s terms.
+
+This is like following only selective parts of the Bible or creating our own brand of Christianity, or making decisions based only on what we think is right and not considering if our decisions are right in God’s eyes.
+There are many who want to enjoy the heavenly banquet, but on their own terms.  They want to follow their own gospels or ideologies.  If we want to be part of the heavenly banquet, we have to follow all the rules laid out by the King.
+
+If we are not covered with a white robe (in a state of grace), then we cannot attend the banquet (the marriage supper of the Lamb / Communion).
+
+Matthew 22:1-14 (2)
+Our wedding garment must be made up of compassion, kindness, humility, gentleness, patience, forgiveness, love, (Colossians 3:12-14).  In other words, we can receive the robe of righteousness when peace, gratitude and the Word of God are within us (Colossians 3:15-16) and we engage ourselves with works of mercy, that is, loving concern for the people around us, specially to the least of our brothers and sisters.
+We cannot participate in God's banquet of love if we remain indifferent to the suffering and needs of the less fortunate ones around us. We cannot say we love the God who we cannot see if we do not love our neighbours who we can see (1 John 4:20).
+
+Therefore, before we gather together for the heavenly banquet every Sunday, let us ensure that we have kept our eyes and ears open to see and hear the voice of God through the cries of the needy ones so that we can be of help to them in whatever way we can.
+Let us pray that we may be worthy of a place in God's kingdom by living our lives on earth according to His Will.
+
+Matthew 22:15-21
+*"Is it lawful to pay taxes to Emperor Caesar, or not?  Should we pay them, or should we not?”*
+Herodians were a group of people who had made a deal with the Romans to allow the Herodian dynasty to rule Israel as vassal kings in the name of the Roman Emperors, allowing the Romans to occupy Israel, ensuring that Israel would pay their taxes to Rome, etc.  Because of this deal the Herodians were not very popular with the Pharisees.
+If Jesus said "yes" then the people would be angry and go against Him for supporting the Romans;
+If Jesus said "no" then the Herodians would be angry and would definitely take the message to the Romans.
+The answer of Jesus is not a confirmation that state and religion are to be considered separate.  Everything that belonged to Caesar ultimately belonged to God.
+
+*“Give to Caesar what belongs to Caesar and to God what belongs to God.”*
+God gives us leaders for our countries to be good stewards of His creation.  They are God's instruments given to us for maintaining public order and for the common good.  We are therefore bound to pay our taxes regularly and pray for our governments that they may always do God’s Will (1 Timothy 2:1–2), while we give ourselves to God, body, mind and soul, for His work and to worship Him, because we belong to Him.
+
+We must respect our governing authorities and obey the state Laws, if they are in line with God’s Will, because they are legitimate authorities.
+Let us ask our Lord to forgive us for the times we have given ourselves to our Caesars (ungodly authorities) instead of giving ourselves to God.
+
+Matthew 22:23
+*Some Sadducees, who don’t believe in the resurrection, came to him and asked him a question.*
+Sadducees don't believe in the resurrection, so they asked a tricky question. If Jesus failed to prove the resurrection then He would be proving Himself to be a false Messiah.
+
+Resurrected life is not a transfer of earthly life into Heaven.  It is a life of supreme communion with God.
+
+The Pharisees believed in the resurrection.
+The Sadducees did not believe in anything that was not mentioned in the Torah.  They also didn't accept any word that was not mentioned in the Torah.  Therefore they didn't believe in the resurrection because the word *"resurrection"* was not mentioned in the Torah.
+
+The Sadducees were mocking the faith for which seven brothers and their mother had died, during the reign of king Antiochus (2 Maccabees 7:1-41).
+
+Matthew 22:28-30
+Marriage between man and woman was designed by God for procreation of life on earth to keep the human race alive, because every human has to be tested for their faith (in God), except those who die in the womb or before the age of accountability and those who are mentally unstable.
+Man and woman must fill the earth with holy children who would then be taken to Heaven by God at the appointed time.
+
+Procreation serves the purpose of transmitting life to the next generation.
+In Heaven there is no testing so whoever passes the test on earth goes to Heaven and that is the termination of procreation, therefore there is no need for marriage in Heaven.
+But this is not out of any natural necessity; it is the way God designed it.
+Those in Heaven can neither die physically nor spiritually.
+
+Marriage between man and woman is only a sign of the relation between Jesus and His bride (the Church) (Ephesians 5:23).  Just as man and woman unite to bring forth new human life, similarly our marriage with Jesus, when we receive the Body of Christ / Communion, must cause us to go forth and evangelize the world to bring souls into the Church.
+
+“People in Heaven are like angels” does not mean that they will be spirits forever.  Humans are special beings composed of body and soul whereas angels are pure spirits.  When humans go to Heaven they will initially be only spirits but after the Last Judgement all humans in Heaven will receive their glorified human bodies, except Jesus and His Mother who were the only two humans who went to Heaven with their sinless human bodies.
+What Jesus meant was that when humans go to Heaven they will live forever like the angels.
+
+Matthew 22:35-39
+The Gospel is a message of God’s pure, unconditional, sacrificial love for us.  He wants us to return that love by loving all the people who we meet during our lifetime. But we struggle to love others because love was damaged in the Garden of Eden when humans made a Covenant with the devil and allowed him to control their conscience.
+Let us, therefore, ensure that we receive the sacraments (Confession and Communion) regularly, so that we can receive the spiritual strength and ability to love others as we love ourselves and as God loves us.
+
+Matthew 23:1-7
+Jesus was not abolishing religion because it is God’s Will that we must be religious as well as spiritual, which is why He spent four decades in the wilderness giving Moses minute details to train the people of the old Covenant for the religious rituals of the new Covenant.
+We cannot do away with religion just as we cannot do away with politics because humans are made of body and soul composite.
+Therefore, just as God gives us political leaders to govern our bodies, so also God gives us religious leaders to govern our souls.
+
+When majority of the Christians live in disobedience to God, that is, they receive Communion with mortal sins, or don't attend Mass, or don’t help the poor, etc., the world does not get sanctified and therefore God is not glorified.
+
+Jesus commanded us to make disciples of all nations (Matthew 28:19-20) and shine our light wherever we go (Matthew 5:14-16).  When we ignore or neglect this command we make Satan’s army stronger.  Instead of spreading the Gospel, we gradually start blending with the pagan world, our sins increase and our culture becomes corrupt.
+
+In short, if we are not willing to transform the world to be godly, then the world will gradually transform us (into pagans).
+
+And when we get religious and political leaders from this corrupt culture we cannot expect good leaders.
+Such leaders may constantly make ungodly decisions because it is usually to win the people’s favour.  When our desires are disordered we go along with their decisions and thus we walk on the road to hell along with our leaders because we ourselves are not aware of what is right and what is wrong.
+
+Those who live in friendship with Christ will know when their leaders (religious and political) make decisions that are not in line with God’s Will.
+
+Therefore, it is important that we shine our light wherever we go by living faithful Christian lives, receiving the sacraments (Confession & Communion) regularly, helping the poor and needy, praying daily and obeying all what Jesus has commanded us to do.
+
+Matthew 23:19
+The Altar of the old Covenant was a fore shadow of the Altar of the new Covenant. The Altar of the new Covenant represents the Body of Christ after it is consecrated.  God had commanded the people that the Altar must always be consecrated before using it for worship (Exodus 29:37) because it is the Body of Christ that makes our gifts holy, through the power of the Holy Spirit, when we place them on the Altar, the most important ones being bread and wine.
+But unfortunately the people started treating unconsecrated material goods as more holy than the consecrated Altar (Matthew 23:19).
+
+Matthew 24:29-31
+Jesus was speaking of two destructions:  the Temple and the city.
+The Jews believed that the Temple represented a mini universe.
+The bronze sea represented the ocean, the outer curtains had stars on them, etc., but the main part of the Temple was the Holy of Holies which was the place where God dwelt.
+
+Therefore, the old Jerusalem was not a city.  It was a Temple with a city around it, but it was also a shadow of the new Jerusalem (the Church).
+
+Similarly, the new Jerusalem is also not a city.  It is the Church (the holy Kingdom of God) with the world around it.  The main part of the Church is the Tabernacle which is the place where God dwells.
+
+Therefore the period of tribulation, destruction and judgement which happened to the old Jerusalem (the Temple) and the city, locally, will happen to the new Jerusalem (the Church) and the world, globally (because the Church has parishes all over the world).
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## September 21,2024
+
+### Sins of Omission
+
+[![Sins of Omission](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day265.jpg)](https://youtu.be/hcqPPHKcDSU "Sins of Omission")
+
+### DAY #265 FAITH & WORKS
+
+We are not saved just by believing but our faith should have associated works. Faith without works is dead, of course, we are not saved because of our work only. We cannot separate faith and works – because they are married together and one without the other is incomplete.
+
+14 What good is it, my brothers and sisters, if you say you have faith but do not have works? Can faith save you? 15 If a brother or sister is naked and lacks daily food, 16 and one of you says to them, “Go in peace; keep warm and eat your fill,” and yet you do not supply their bodily needs, what is the good of that? 17 So faith by itself, if it has no works, is dead. James 2:14-17
+We see that in the final judgment of the nations people are either saved or lost eternally because of their works.
+The Judgment of the Nations
+31 “When the Son of Man comes in his glory, and all the angels with him, then he will sit on the throne of his glory. 32 All the nations will be gathered before him, and he will separate people one from another as a shepherd separates the sheep from the goats, 33 and he will put the sheep at his right hand and the goats at the left. 34 Then the king will say to those at his right hand, ‘Come, you that are blessed by my Father, inherit the kingdom prepared for you from the foundation of the world; 35 for I was hungry and you gave me food, I was thirsty and you gave me something to drink, I was a stranger and you welcomed me, 36 I was naked and you gave me clothing, I was sick and you took care of me, I was in prison and you visited me.’ 37 Then the righteous will answer him, ‘Lord, when was it that we saw you hungry and gave you food, or thirsty and gave you something to drink? 38 And when was it that we saw you a stranger and welcomed you, or naked and gave you clothing? 39 And when was it that we saw you sick or in prison and visited you?’ 40 And the king will answer them, ‘Truly I tell you, just as you did it to one of the least of these who are members of my family, you did it to me.’ 41 Then he will say to those at his left hand, ‘You that are accursed, depart from me into the eternal fire prepared for the devil and his angels; 42 for I was hungry and you gave me no food, I was thirsty and you gave me nothing to drink, 43 I was a stranger and you did not welcome me, naked and you did not give me clothing, sick and in prison and you did not visit me.’ 44 Then they also will answer, ‘Lord, when was it that we saw you hungry or thirsty or a stranger or naked or sick or in prison, and did not take care of you?’ 45 Then he will answer them, ‘Truly I tell you, just as you did not do it to one of the least of these, you did not do it to me.’ 46 And these will go away into eternal punishment, but the righteous into eternal life.” Mat 25: 31-46
+
+The sin of omission is the sin of failing to love your neighbor and failing to come to the aid of those who are in need. The works that we are called to do are feeding the hungry, clothing the naked, visiting those in prison in general caring for the needy. Our faith should move us to action, we cannot just say “God bless” to a person in need and expect everything to be fine. We cannot say we have faith and do no works, faith, and works are tightly interlinked.
+We cannot sit tight on the gifts and talents that Lord gives us and expect everything to be okay. Like in the parable of the talents, the ones who used the talents were rewarded.
+The servant of did nothing with the talents was punished and thrown in hell.
+
+But his master replied, ‘You wicked and lazy slave! You knew, did you, that I reap where I did not sow, and gather where I did not scatter? 27 Then you ought to have invested my money with the bankers, and on my return I would have received what was my own with interest. 28 So take the talent from him, and give it to the one with the ten talents. 29 For to all those who have, more will be given, and they will have an abundance; but from those who have nothing, even what they have will be taken away. 30 As for this worthless slave, throw him into the outer darkness, where there will be weeping and gnashing of teeth.’ Mat 25
+
+Let us not be lazy with all the resources that are given to us, let us come to the aid of those in need. Let us do as much charity as we can and bless those who are struggling.
+May the Holy Spirt lead us 🙏
