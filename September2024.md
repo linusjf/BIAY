@@ -76,6 +76,9 @@
     + [Sins of Omission](#sins-of-omission)
     + [DAY #265 FAITH & WORKS](#day-%23265-faith--works)
     + [BIAY Day 265 By Cynthia Dsilva](#biay-day-265-by-cynthia-dsilva)
+  * [September 22,2024](#september-222024)
+    + [Son of the Father](#son-of-the-father)
+    + [Messianic Checkpoint: Gospel of Matthew](#messianic-checkpoint-gospel-of-matthew)
 
 <!-- tocstop -->
 
@@ -1612,3 +1615,13 @@ Receiving Communion or any other sacraments is not a guarantee that the devil wi
 When we betray Jesus with our sins, God leaves us because sin separates us from God.  This automatically puts us in the hands of Satan whose aim is to destroy families and communities and eventually the Church, by causing division between the members.
 
 🔥🔥🔥🔥🔥🔥
+
+## September 22,2024
+
+### Son of the Father
+
+[![Son of the Father](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day266.jpg)](https://youtu.be/gib6xFWiqR8 "Son of the Father")
+
+### Messianic Checkpoint: Gospel of Matthew
+
+[![Messianic Checkpoint: Gospel of Matthew  (with Jeff Cavins)](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/MessianicCheckpoint.jpg)](https://youtu.be/ts-xSOn_CwQ "Messianic Checkpoint: Gospel of Matthew  (with Jeff Cavins)")
