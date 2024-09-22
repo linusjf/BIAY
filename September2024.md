@@ -80,6 +80,9 @@
     + [Son of the Father](#son-of-the-father)
     + [Messianic Checkpoint: Gospel of Matthew](#messianic-checkpoint-gospel-of-matthew)
     + [Day #266 I am with you always until the end of the age](#day-%23266-i-am-with-you-always-until-the-end-of-the-age)
+    + [BIAY Day 266 By Cynthia Dsilva](#biay-day-266-by-cynthia-dsilva)
+  * [September 23,2024](#september-232024)
+    + [Indifference and Apathy](#indifference-and-apathy)
 
 <!-- tocstop -->
 
@@ -1648,3 +1651,162 @@ Knowing that Jesus is with us we can feel confident about our mission, the missi
 19 Go therefore and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, 20 and teaching them to obey everything that I have commanded you. And remember, I am with you always, to the end of the age.” Mat 28
 
 May the Holy Spirt lead us 🙏
+
+### BIAY Day 266 By Cynthia Dsilva
+
+Matthew 27:3-5
+*Why did Judas kill himself when his plan was successful?*
+
+If Judas really wanted Jesus killed then he would have celebrated when Jesus was arrested because his plan was successful.  But it seems like Judas's intentions were different.
+
+Judas may have been one of those Jews who were expecting a royal warrior Messiah.
+Judas fully believed in the power of Jesus because he had seen Jesus performing many miracles, but he found Jesus to be too timid to overthrow the Roman empire and liberate Israel with His miraculous power.  In his pride Judas would have believed that with his brains and Jesus's power, he and Jesus together could overthrow the Romans and rule Israel, and Jesus would always be indebted to Judas for his brainwork to get Jesus the throne.
+
+The temptation offered by Satan to Judas to betray Jesus, arose out of Judas’s knowledge of the power of Jesus.  Satan put the thought into Judas’s head that by having Jesus handed over to the authorities through betrayal (Satan’s method), Judas would force Jesus to use His power to release Himself from the enemy.  Thereafter, he (Judas) could instigate the crowds to crown Jesus as their earthly king.  And this is exactly what Satan wanted.
+
+When Judas betrayed Jesus, he was actually planning his own glory as the right hand man of Jesus, so when he saw that Jesus was going to be killed, Judas understood that his glorious plans had been shattered and he had miserably failed. It didn’t work out as he had planned it.
+
+After what he had done he would have been afraid to face the rest of the Apostles and the disciples of Jesus in the same town and therefore killed himself out of fear and despair.
+
+Instead of killing himself, if Judas would have humbled himself and repented for what he had done, Jesus would have forgiven him, but Judas’s pride did not allow him to do so.
+
+Like Judas, when our hearts are filled with pride it is difficult for us to say "sorry" with remorse ("metanoia" in Greek) and we end up committing more sins to cover up our wrong doings by living in fear or shame.
+Repenting and confessing our sins regularly makes us humble enough to live without fear or shame.
+
+Matthew 27:11
+*Pilate asked him, “Are you the King of the Jews?”*
+The Chief Priests and elders of the Sanhedrin had accused Jesus of blasphemy.  But Pilate was informed that Jesus was claiming to be the political king of the Jews. There was no mention of blasphemy in Pilate's court.
+Why?
+
+The Sanhedrin unanimously condemned Jesus as deserving death on grounds of "blasphemy" (a false accusation), because Jesus called Himself the Son of the most High (Mark 14:63-64).
+But there was a problem.
+
+The Sanhedrin wanted Jesus dead but they did not have the power and authority to issue a death sentence.  That authority rested only with the Romans, and under the pagan Roman law “blasphemy” was not an offence that deserved the death penalty because they themselves didn’t believe in God.  So the Sanhedrin sent Jesus to Pilate charging Jesus with the crime of treason against the Romans (another false accusation) which, according to the Roman law deserved the death penalty.
+
+That is why Pilate had the inscription fixed on the Cross which read “Jesus of Nazareth, King of the Jews” (John 19:19) so that, in future, if anyone would dare to rise against and overthrow the Roman power then they would meet the same fate as Jesus did.
+
+According to the Roman law, the inscription fixed on the Cross was to indicate the crime of the person crucified.  The inscription was written in Hebrew/Aramaic, Latin and Greek and the place of the crucifixion was near the city (John 19:20).  Thus, without his knowledge, Pilate, the gentile governor, declared to the world that Jesus was King of the Jews, even though it was in mockery.
+
+Matthew 27:11
+*Falsely accused.*
+If we are going through a difficult time because we have been falsely accused of a crime, let us ask the Lord to help us go through this suffering willingly, not forgetting that Jesus was also falsely accused of two crimes (blasphemy and treason).  Jesus was scourged and crucified even though He was innocent but He forgave His offenders and shed His blood to redeem them.  He is with us through all our sufferings.
+Jesus went through the major suffering for our sins; He is only asking us to go through the minor suffering.
+
+Matthew 27:21
+*All together they shouted, “No, not this man.  WE WANT BARABBAS!”*
+Who was Barabbas?
+Bar-Abba means “son of the Father” or “son of God”, the name which the Jews had given him.  He was also a criminal who had committed many crimes.  Bar-Abba or Barabbas represents all of us sinners who are sons and daughters of God.
+
+Barabbas did not even turn round and thank Jesus for saving him by going to the Cross instead of him.
+Like Barabbas, when we commit sins we too are being ungrateful to Jesus for going to the Cross instead of us.
+
+The people rejected Jesus (their true Messiah) and voted for Barabbas (the false Messiah) so Pilate gave them what they wanted (Matthew 27:17).
+When we choose to live in disobedience to God, God will allow us to choose the kind of leaders we deserve, religious and political, because our leaders will be chosen from among us and our sins block us from making the right choices due to separation from God.  Therefore, if we are not happy with our leaders then we need to examine ourselves, instead of judging them.
+
+Matthew 27:22-23
+*Why was Jesus killed?*
+We know that Jesus died for our sins but He was not killed for our sins.  The religious leaders (High Priest, Pharisees and Scribes) did not know that Jesus came to die to save us from going to Hell and even if they knew they were too proud and arrogant to accept.
+
+*So why was Jesus killed?*
+Jesus was killed because:
+
+1. He cured a deaf and mute man which was only possible for God but, according to them, Jesus performed the miracle with the power of Satan, because they didn't accept Him as the divine Messiah.
+2. He touched an untouchable person (a leper) to heal him instead of telling the man to go away and quarantine himself.
+3. He healed the sick people on the Sabbath.
+4. He forgave the adultress woman instead of condemning her.
+5. He dined with the despised people (tax collectors and sinners) instead of avoiding them.
+
+In view of the above acts, according to the religious leaders Jesus had become ritually unclean and therefore had to be purged out of their land and community.
+
+If we encounter a person in need, who was despised and shunned by society, would we reach out and help them like Jesus did or would we keep safe distance like those religious leaders?
+Following Jesus is not easy.  We either please God or we please the world.
+
+Matthew 27:24
+*When Pilate saw that he was not succeeding at all, but that a riot was breaking out instead, he took water and washed his hands in the sight of the crowd, saying, “I am innocent of this man’s blood. This is your doing.”*
+Pilate had the power to release Jesus but Pilate chose not to.
+
+Have we anytime ignored any innocent people being condemned?
+When we heard the news did we try to give them physical or moral support?
+If it wasn’t possible then did we try to give them spiritual support by praying for them till they received justice?
+
+If we are guilty of having washed our hands when an innocent person was condemned, and we did nothing to help that person get justice, then we are no different from Pilate.
+
+What you did not do for the least of my brothers, you did not do for me (Matthew 25:45).
+
+We cannot attribute the injustice only to Pilate.  Every time we ignore injustice we are guilty of the scourging and crucifixion of Jesus.
+Pilate did it physically, we do it spiritually.
+
+Pilate knew that Jesus was innocent but the Jews were screaming that Jesus must be crucified.  If a riot broke out then Pilate would have to give up his chair as governor and thus his luxurious life because the emperor would not tolerate chaos in the jurisdiction of the governor.  Pilate was in the middle of a difficult decision. Therefore, in order to save his position, Pilate ordered Jesus to be scourged and crucified.
+
+But it wasn't just Pilate who made this choice.
+Pilate represents all those who are guilty of crucifying Jesus with their sins because they prefer to give up Jesus and cling to their earthly glory and comfortable lives.
+
+Matthew 27:26
+*So Pilate, wishing to satisfy the crowd, released Barabbas to them and, after he had Jesus scourged, he handed Jesus over to be crucified.*
+Pilate’s wife sent him a message to spare Jesus, but Pilate chose to hand Jesus over to be scourged and crucified, because he wanted to please the crowd.
+
+Pontius Pilate represents all of us sinners.
+So often we do the wrong things to please the world instead of doing the right things to please God and in doing so, along with Pilate, we too are guilty of the scourging and crucifixion of Jesus.
+
+Matthew 27:26
+*Denied justice.*
+Have we been denied justice at any time, thus causing us and our families a lot of pain and suffering (emotional and financial)?
+Have we or are we going through physical or mental torment?
+Let us pray for our offenders while we ask the Lord to help us go through this injustice willingly, not forgetting that Jesus was innocent and yet He was scourged and crucified, thus putting Him and His mother through a lot of emotional pain and suffering, but He still redeemed His offenders.
+
+*Scourged.*
+Are we suffering from pain and discomfort due to skin diseases?
+Let us ask the Lord to help us go through this suffering willingly, not forgetting that Jesus was scourged, during which His flesh was ripped off thus causing Him extreme physical pain.  Jesus went through the major suffering for our sins; He is only asking us to go through the minor suffering.
+
+Matthew 27:28-31
+*Mocked at, insulted & crowned with thorns.*
+Have we been criticized or insulted?
+Have we been crowned with a nickname in mockery?
+Let us pray for our offenders while we ask the Lord to help us go through this suffering willingly, not forgetting that Jesus too was insulted and crowned with thorns in mockery, but He still redeemed His offenders.
+On the other hand, if we are suffering from any kind of headaches, brain diseases, or any other mental disorders, let us ask the Lord to help us take our cup of suffering and go through it willingly, not forgetting that Jesus was crowned with thorns which were mercilessly sunk into His scalp.  Jesus went through the major suffering for our sins; He is only asking us to go through the minor suffering because without suffering we cannot enter Heaven.
+
+Matthew 27:34
+*Wine mixed with myrrh.*
+If we are addicted to alcohol or drugs to drown our problems, let us ask the Lord to help us get out of this difficult addiction, not forgetting that Jesus was offered wine mixed with myrrh to drown His pain but He refused.
+
+Matthew 27:35
+*Humiliated by being stripped of His clothes in public.*
+Have we been humiliated or stripped of our shame in any way, physically or verbally?
+Let us pray for our offenders while we ask the Lord to help us go through this suffering willingly, not forgetting that Jesus too was humiliated by being stripped of His clothes in front of all the public, but He still redeemed His offenders.
+Let us also pray for those who are going through this suffering and have no one to help them, and those who are not able to cover themselves sufficiently during harsh weathers, due to poverty.
+
+Matthew 27:40
+*“If you are the Son of God ……....”*
+Satan had tried this same trick with Jesus around three years ago, but failed (Matthew 4:3 & 6), the same trick which he had tried with Adam & Eve with success.
+Power and wealth being one of the worst human weaknesses, Satan thought that this one last time he would push Jesus to the edge and then play the same trick again for the last time, “if you are the Son of God …..”
+
+If we have been challenged by others when we have power in our hands, let us first remember that getting us to accept a challenge after reminding us of our position or power, is not God’s way of doing things.
+Let us always be alert to the tricks played by the devil through the people around us, by staying in touch with the scriptures every day.
+
+Jesus had only a few moments before His death but Satan was still trying his luck to drag Jesus into his kingdom.
+If Satan didn’t spare the Son of God till the end then we the creatures should not expect that Satan will spare us.  We must therefore be alert to sin until the last moment of our lives.  If we try to avoid violence, Satan will use our loved ones to lead us on his path.
+
+Matthew 28:6
+Faith in the resurrection is based on divine revelation, and not on the empty tomb. The resurrection cannot be tested or verified in a laboratory.  Also, there are no eye witnesses to prove how Jesus rose from the dead and exactly what time.  But there were witnesses who saw Jesus die and they also saw Him after the resurrection.
+
+Matthew 28:12-15
+It is surprising that the Jews never thought of asking how it could be possible that all soldiers fell asleep together when they were supposed to be on duty? And if all the soldiers were asleep then who saw the disciples taking the Body of Jesus?
+
+Matthew 28:19
+*“Go therefore and make disciples of all nations …..”*
+Jesus didn’t make evangelization optional and Jesus was not speaking of political nations.  Jesus was speaking of ethnic groups which create their own gods and their own beliefs.
+
+*“……. baptizing them in the name of the Father and of the Son and of the Holy Spirit.”*
+By this command Jesus gave us the Sacrament of Baptism to restore the divine life within us (the life of God the Father, Son and Holy Spirit), which Adam and Eve had destroyed in the Garden of Eden, by making a Covenant with Satan when they committed the first mortal sin.
+
+Matthew 28:20
+*“I will be with you always until the end of time.”*
+Jesus fulfills that promise by dwelling with us in the new Covenant Tabernacles in the Church until we receive Him in Communion.  Thereafter He dwells within us and gives us divine life (John 14:23) until we commit a sin.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## September 23,2024
+
+### Indifference and Apathy
+
+[![Indifference and Apathy](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day267.jpg)](https://youtu.be/4_15qozDj0A "Indifference and Apathy")
