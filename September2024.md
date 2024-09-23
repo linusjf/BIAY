@@ -83,6 +83,7 @@
     + [BIAY Day 266 By Cynthia Dsilva](#biay-day-266-by-cynthia-dsilva)
   * [September 23,2024](#september-232024)
     + [Indifference and Apathy](#indifference-and-apathy)
+    + [Day 267 The return from exile](#day-267-the-return-from-exile)
 
 <!-- tocstop -->
 
@@ -1810,3 +1811,20 @@ Jesus fulfills that promise by dwelling with us in the new Covenant Tabernacles 
 ### Indifference and Apathy
 
 [![Indifference and Apathy](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day267.jpg)](https://youtu.be/4_15qozDj0A "Indifference and Apathy")
+
+### Day 267 The return from exile
+
+When the Lord wills something it will happen, just a word is spoken from the Lord and things happen. The Israelites have been in exile for 70 years – which is a couple of generations when the Lord causes the King of Persia, Cyrus to declare freedom to the Israelites.
+
+1 In the first year of King Cyrus of Persia, in order that the word of the Lord by the mouth of Jeremiah might be accomplished, the Lord stirred up the spirit of King Cyrus of Persia so that he sent a herald throughout all his kingdom, and also in a written edict declared:
+2 “Thus says King Cyrus of Persia: The Lord, the God of heaven, has given me all the kingdoms of the earth, and he has charged me to build him a house at Jerusalem in Judah. 3 Any of those among you who are of his people—may their God be with them!—are now permitted to go up to Jerusalem in Judah, and rebuild the house of the Lord, the God of Israel—he is the God who is in Jerusalem; 4 and let all survivors, in whatever place they reside, be assisted by the people of their place with silver and gold, with goods and with animals, besides freewill offerings for the house of God in Jerusalem.” Ezra 1
+Can you imagine, if you were waiting on something for generations – like immigration status and you were given the news that the President himself has granted you and your family approval? It would have been music to the ears of many, but we can also see many who had gotten used to living in exile and didn’t want to return. Can you imagine how God works, the people were asked to go back home and even given supplies and valuables – gold and silver.
+Now as the people came back and were settling down, they started contributing towards the restoration of the temple.
+68 As soon as they came to the house of the Lord in Jerusalem, some of the heads of families made freewill offerings for the house of God, to erect it on its site. 69 According to their resources they gave to the building fund sixty-one thousand darics of gold, five thousand minas of silver, and one hundred priestly robes. Ezra 2
+
+As the people settled in, we see that they have forgotten about the house of the Lord. Their focus shifted to their own houses, and they have forgotten the house of the Lord.
+You have looked for much, and, lo, it came to little; and when you brought it home, I blew it away. Why? says the Lord of hosts. Because my house lies in ruins, while all of you hurry off to your own houses. 10 Therefore the heavens above you have withheld the dew, and the earth has withheld its produce. 11 And I have called for a drought on the land and the hills, on the grain, the new wine, the oil, on what the soil produces, on human beings and animals, and on all their labors. Haggai 1
+
+Let us always be aware of the house of the Lord, of the church’s needs, and do everything we can to support our churches. This message comes in a day and age where churches and schools are closing in the western world due to lack of attendance. Hopefully, we as a human race will wake up and return home to church.
+
+May the Holy Spirit lead us. 🙏
