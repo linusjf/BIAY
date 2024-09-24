@@ -84,6 +84,9 @@
   * [September 23,2024](#september-232024)
     + [Indifference and Apathy](#indifference-and-apathy)
     + [Day 267 The return from exile](#day-267-the-return-from-exile)
+  * [September 24,2024](#september-242024)
+    + [Rebuilding the Temple](#rebuilding-the-temple)
+    + [Day 268 Sloth](#day-268-sloth)
 
 <!-- tocstop -->
 
@@ -1826,5 +1829,32 @@ As the people settled in, we see that they have forgotten about the house of the
 You have looked for much, and, lo, it came to little; and when you brought it home, I blew it away. Why? says the Lord of hosts. Because my house lies in ruins, while all of you hurry off to your own houses. 10 Therefore the heavens above you have withheld the dew, and the earth has withheld its produce. 11 And I have called for a drought on the land and the hills, on the grain, the new wine, the oil, on what the soil produces, on human beings and animals, and on all their labors. Haggai 1
 
 Let us always be aware of the house of the Lord, of the church’s needs, and do everything we can to support our churches. This message comes in a day and age where churches and schools are closing in the western world due to lack of attendance. Hopefully, we as a human race will wake up and return home to church.
+
+May the Holy Spirit lead us. 🙏
+
+## September 24,2024
+
+### Rebuilding the Temple
+
+[![Rebuilding the Temple](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day268.jpg)](https://youtu.be/CVYwsdZYNoM "Rebuilding the Temple")
+
+### Day 268 Sloth
+
+What is sloth? Sloth is the avoidance of physical or spiritual work. Physical sloth is plain and simple laziness, not wanting to do any work or study or chores. Everyone has some amount of Sloth in them, given a chance – people would live in filth. Laziness is fueled by luxury and comfort, one does not want to get off the couch to get the house tidy. Laziness can result in families facing financial problems.
+
+4The lazy person does not plow in season; harvest comes, and there is nothing to be found. 5 The purposes in the human mind are like deep water, but the intelligent will draw them out. Prov 20:4,5
+
+However bad Physical sloth may be, it’s not as bad as Spiritual sloth. Spiritual Sloth can lead us to Spiritual death. One can go to Mass every Sunday and still not pray, just going through the Mass without praying is disrespectful to Jesus in the Eucharist. Jesus is present Body, Blood, Soul and Divinity in the Eucharist – He looks forward to entering our hearts and soul every time we receive communion.
+
+Sloth is the desire for ease, even at the expense of doing the known will of God. Whatever we do in life requires effort. Everything we do is to be a means of salvation. The slothful person is unwilling to do what God wants because of the effort it takes to do it. Sloth becomes a sin when it slows down and even brings to a halt the energy we must expend in using the means to salvation.
+
+Sloth can prevent us from doing God’s will because we are so lazy and do not want to pray. Some people think that they will be saved by virtue of being baptized. Although we are saved by what Jesus did for us on the cross, we cannot take it for granted and do nothing. We are called to pick up our cross and follow him daily. We are called to work out our salvation with trembling. Not sit and do nothing. We are called to pray and to know the Lord. We are called to be led by the Spirit and not just be dormant.
+
+12 Therefore, my beloved, just as you have always obeyed me, not only in my presence, but much more now in my absence, work out your own salvation with fear and trembling; 13 for it is God who is at work in you, enabling you both to will and to work for his good pleasure.Phil 2
+
+Another form of laziness is being overly busy or preoccupied with many things, that we forget to pray. Sometimes we can be so busy doing God’s work that we even forget our own salvation.
+Like those folks who did many things for the Lord but didn’t really do the will of God. To know the will of God we need to have a relationship with God and spend time listening to the Holy Spirits' guidance.
+
+21 “Not everyone who says to Me, ‘Lord, Lord,’ shall enter the kingdom of heaven, but he who does the will of My Father in heaven. 22 Many will say to Me in that day, ‘Lord, Lord, have we not prophesied in Your name, cast out demons in Your name, and done many wonders in Your name?’ 23 And then I will declare to them, ‘I never knew you; depart from Me, you who practice lawlessness!’
 
 May the Holy Spirit lead us. 🙏
