@@ -87,6 +87,7 @@
   * [September 24,2024](#september-242024)
     + [Rebuilding the Temple](#rebuilding-the-temple)
     + [Day 268 Sloth](#day-268-sloth)
+    + [BIAY Day 268 By Cynthia Dsilva](#biay-day-268-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -1858,3 +1859,18 @@ Like those folks who did many things for the Lord but didn’t really do the wil
 21 “Not everyone who says to Me, ‘Lord, Lord,’ shall enter the kingdom of heaven, but he who does the will of My Father in heaven. 22 Many will say to Me in that day, ‘Lord, Lord, have we not prophesied in Your name, cast out demons in Your name, and done many wonders in Your name?’ 23 And then I will declare to them, ‘I never knew you; depart from Me, you who practice lawlessness!’
 
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 268 By Cynthia Dsilva
+
+Ezra 4:4-5
+*Then the people of the land (the adversaries of Judah and Benjamin) discouraged the people of Judah, and made them afraid to build (the Temple).  The adversaries bribed officials to frustrate the plan of the Jews throughout the reign of King Cyrus of Persia and until the reign of King Darius of Persia.*
+
+The Judah and Benjamin tribes were doing the work of God but the enemies were not happy so they stopped the Jews from re-building the Temple.
+
+Whenever we get busy with God’s work Satan will always stir up his disciples to either stop the work or mess it up.
+
+But the obedience of the Jews had won God’s favour (Ezra 5:5).  The issue was resolved and the work resumed.
+
+As long as we obey God’s commandments He will always send His angels to support us so that we can continue His work, and Satan’s evil plans will be foiled.
+
+🔥🔥🔥🔥🔥🔥🔥
