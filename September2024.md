@@ -94,6 +94,8 @@
   * [September 26,2024](#september-262024)
     + [God's Favor with Ezra](#gods-favor-with-ezra)
     + [Day #270 Two ways to trust in the Lord.](#day-%23270-two-ways-to-trust-in-the-lord)
+  * [September 27,2024](#september-272024)
+    + [Israel's Foreign Wives](#israels-foreign-wives)
 
 <!-- tocstop -->
 
@@ -1929,3 +1931,9 @@ Now none of us will ever know what is the right method, but all of us know that 
 The important thing to remember is that God is the source of everything good, as long as we trust in him – it does not matter what route we take – if we ask for an army or if we blindly trust the Lord to protect us.
 Our Faithful God will always protect us, we need to be sensitive to the prompting of the Holy Spirit to know what route to take.
 May the Holy Spirit lead us. 🙏
+
+## September 27,2024
+
+### Israel's Foreign Wives
+
+[![Israel's Foreign Wives](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day271.jpg)](https://youtu.be/vxEtEDgtKQw "Israel's Foreign Wives")
