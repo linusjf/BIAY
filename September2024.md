@@ -98,6 +98,9 @@
     + [Israel's Foreign Wives](#israels-foreign-wives)
     + [Day #271 Is your marriage making you holier?](#day-%23271-is-your-marriage-making-you-holier)
     + [BIAY Day 271 By Cynthia Dsilva](#biay-day-271-by-cynthia-dsilva)
+  * [September 28,2024](#september-282024)
+    + [The Call of Nehemiah](#the-call-of-nehemiah)
+    + [Day #272 Grace not Vengeance.](#day-%23272-grace-not-vengeance)
 
 <!-- tocstop -->
 
@@ -1971,3 +1974,28 @@ This was an image of a future king who would stop war and bring peace.
 It was an image of Jesus whose power comes, not from this world but, from the Father above.  Jesus will bring peace in the world, not by using force or magic, but by spreading love and mercy through His people, the Christians.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## September 28,2024
+
+### The Call of Nehemiah
+
+[![The Call of Nehemiah](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day272.jpg)](https://youtu.be/zbvENgoZvbw "The Call of Nehemiah")
+
+### Day #272 Grace not Vengeance.
+
+When someone does something to us, the first thing that we want to do is get back at them, hurt them back or do something even eviler. An eye for an eye and tooth for a tooth makes the whole world blind. The wisdom of the proverbs calls for us to refrain from retaliating and becoming like the person who did evil in the first place.
+
+Do not say, “I will repay evil”; wait for the Lord, and he will help you. Prov 22:20
+
+We need to wait for the Lord to help us and to help the person who hurt us. If we keep doing evil for evil, this will escalate and cause a really evil world. We have to pray for God’s help so that we can do good to those who do bad to us. We should pray that we are able to bless those who curse us. Pray for the strength to turn the other cheek, walk the extra mile, and to forgive the wrongs done to us.
+Forgiveness is a good idea until someone hurts you.
+When someone hurts you or does wrong to you, it actually is a prayer that they are making – by their evil actions they are making a prayer – a prayer that says “Hey!! I have evil in my heart, please pray that God will give me the grace to overcome it”.
+So the next time you feel offended, take a breath, prayer a bit, and let God help you. Do not avenge the action but pray for God’s grace in the other person’s life.
+Just as God the father, cried over the pierced one. God could have taken vengeance on the human race and wiped out every single one of us. But God had Mercy instead of Vengeance on us.
+
+10 And I will pour out a spirit of compassion and supplication on the house of David and the inhabitants of Jerusalem, so that, when they look on the one whom they have pierced, they shall mourn for him, as one mourns for an only child, and weep bitterly over him, as one weeps over a firstborn. Zechariah 12:10
+
+We should get strength when we gaze at the crucifix, strength to forgive. He was stricken for our inequities and bruised for our offenses.
+May we be moved to compassion and forgiveness, not to vengeance. Let us pray for God’s grace in everyone’s life.
+
+May the Holy Spirit lead us.🙏
