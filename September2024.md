@@ -104,6 +104,7 @@
   * [September 29,2024](#september-292024)
     + [The Lord's Work](#the-lords-work)
     + [Day #273 Who is my neighbor?](#day-%23273-who-is-my-neighbor)
+    + [BIAY Day 273 By Cynthia Dsilva](#biay-day-273-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -2036,3 +2037,23 @@ Let us not only build the walls near our homes but build the walls of the city o
 Let us be the hands and feet of Christ, let us not hide our light under the bushel basket but set it on a high place for the people to see our light and praise our creator.
 
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 273 By Cynthia Dsilva
+
+Nehemiah 3:5
+*Next to him the Tekoites carried out the work of repair; however, some of their most powerful men (the nobles) would not submit to the labor asked by their masters.*
+
+During the re-building of the Temple the nobles would sit and dish out orders to the poor who were doing all the work, but the nobles themselves did not help with the work.  They considered themselves a class higher than the poor.
+
+The commission to preach the Gospel is for believers of all categories in every age and not only for people who are classified as lower level because in Heaven there is no class distinction.
+
+Jesus Christ, who is God Himself, had every reason to avoid putting on human flesh, yet He humbled Himself in order to be able to taste the various hardships and sufferings of man so that He could bring salvation for men.
+
+We therefore need to step down from our pedestal of pride, humble ourselves and be like Christ.  Spiritual leaders must humble themselves and not feel that they are too big to be involved with the hard work of evangelization or to go out with their teams and bow down to help the poor and needy.
+
+Nehemiah 3:6-32
+The construction of the wall of Jerusalem was done through a long and unbroken chain.  Families (large and small) who came from the outskirts as well as from the metropolis of Jerusalem, were involved in doing the whole construction.  It was done through 38 leaders.  Seven villages provided volunteers, and skilled & unskilled workers.  The job was accomplished through a commendable team spirit.  None of the professional workers allowed his/her secular work to hinder the great task of rebuilding the wall, even if it meant losing their jobs.
+
+When God gives us a task He provides workforce, resources, etc. for getting the task accomplished.  But God’s call to serve Him is not only to a selected few; it is a call to all believers in Christ.  The preaching and spreading of the Gospel is also the responsibility of all believers.  We are all good co-workers with Christ, but when we are committed to expanding the Kingdom of God on earth, *NOTHING* should hinder us from rendering undisturbed service to God.
+
+🔥🔥🔥🔥🔥🔥🔥
