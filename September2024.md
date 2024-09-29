@@ -101,6 +101,9 @@
   * [September 28,2024](#september-282024)
     + [The Call of Nehemiah](#the-call-of-nehemiah)
     + [Day #272 Grace not Vengeance.](#day-%23272-grace-not-vengeance)
+  * [September 29,2024](#september-292024)
+    + [The Lord's Work](#the-lords-work)
+    + [Day #273 Who is my neighbor?](#day-%23273-who-is-my-neighbor)
 
 <!-- tocstop -->
 
@@ -1999,3 +2002,37 @@ We should get strength when we gaze at the crucifix, strength to forgive. He was
 May we be moved to compassion and forgiveness, not to vengeance. Let us pray for God’s grace in everyone’s life.
 
 May the Holy Spirit lead us.🙏
+
+## September 29,2024
+
+### The Lord's Work
+
+[![The Lord's Work](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day273.jpg)](https://youtu.be/2qNdSZ_oPQc "The Lord's Work")
+
+### Day #273 Who is my neighbor?
+
+We seem to be stuck with a bunch of names again in Nehemiah although it may seem boring to read them, we need to remember that it was a lot of people doing the work of the Lord. Everyone decided to leave their regular work and they picked up tools to build the wall. The high priest were only supposed to offer sacrifice at the temple, they were dedicated to the service of the Lord. Yet they took up common tools to build the wall, to do the will of the Lord.
+Even though we see this massive effort to rebuild the walls around Jerusalem and the whole city was involved. We also read about those nobles who thought that doing a menial task like building a wall was below their dignity.
+
+5 Next to them the Tekoites made repairs; but their nobles would not put their shoulders to the work of their Lord. Nehemiah 3:5
+
+We need to check our hearts and see if we are open to doing anything the Lord may call us to do.
+We are called to be servants and not masters, we should be like Jesus – who came not to be served but to serve. Let us pray that our hearts be open and willing to do any little thing the Lord asks us to do. We should be open to all tasks for example: cleaning the church floor, visiting people in prison, going out of our way to talk to the person who everyone else ignores.
+We may not all be called to be great preachers and evangelists – but are certainly called to be a witness at our workplace, home and friend circle. Let us be prepared to do anything the Lord asks of us because most of the time, these small acts of kindness are what bring people to Christ.
+We also read how many people were only building the wall in front of their houses and were possibly not concerned for their neighbors or those in need.
+
+28 Above the Horse Gate the priests made repairs, each one opposite his own house. 29 After them Zadok son of Immer made repairs opposite his own house. After him Shemaiah son of Shecaniah, the keeper of the East Gate, made repairs. 30 After him Hananiah son of Shelemiah and Hanun sixth son of Zalaph repaired another section. After him Meshullam son of Berechiah made repairs opposite his living quarters.
+
+We are living in a very “meWorld” and everything revolves around my wants and needs. My house, my children, my health, my family, my car, my parish, my group, my, my, my..
+
+Our Christian calling is to live as a community, we should not just think of ourselves all the time, or else we will be like the priest who ignored the traveler in the parable of the good Samaritan.
+We will be like those in the final judgment narration who failed to see Christ in the poor, the hungry, and the naked. We will end up asking the question
+
+‘Lord, when did we see you hungry or thirsty or a stranger or naked or sick or in prison, and did not minister to you?’ Mat 25:44
+
+We will end up like the rich man who was not able to see the needs of Lazarus the poor beggar who sat hoping to get the crumbs that fell from his table.
+
+Let us not only build the walls near our homes but build the walls of the city of God. Let us not say things like – that’s the work of the clergy or that’s not my calling or someone else will do it.
+Let us be the hands and feet of Christ, let us not hide our light under the bushel basket but set it on a high place for the people to see our light and praise our creator.
+
+May the Holy Spirit lead us. 🙏
