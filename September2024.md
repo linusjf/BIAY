@@ -105,6 +105,8 @@
     + [The Lord's Work](#the-lords-work)
     + [Day #273 Who is my neighbor?](#day-%23273-who-is-my-neighbor)
     + [BIAY Day 273 By Cynthia Dsilva](#biay-day-273-by-cynthia-dsilva)
+  * [September 30,2024](#september-302024)
+    + [Perseverance in Opposition](#perseverance-in-opposition)
 
 <!-- tocstop -->
 
@@ -2057,3 +2059,9 @@ The construction of the wall of Jerusalem was done through a long and unbroken c
 When God gives us a task He provides workforce, resources, etc. for getting the task accomplished.  But God’s call to serve Him is not only to a selected few; it is a call to all believers in Christ.  The preaching and spreading of the Gospel is also the responsibility of all believers.  We are all good co-workers with Christ, but when we are committed to expanding the Kingdom of God on earth, *NOTHING* should hinder us from rendering undisturbed service to God.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## September 30,2024
+
+### Perseverance in Opposition
+
+[![Perseverance in Opposition](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day274.jpg)](https://youtu.be/RU4FW7-X7b0 "Perseverance in Opposition")
