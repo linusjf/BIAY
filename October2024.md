@@ -4,6 +4,7 @@
   * [October 01,2024](#october-012024)
     + [Esther Becomes Queen](#esther-becomes-queen)
     + [BIAY Day 275 By Cynthia Dsilva](#biay-day-275-by-cynthia-dsilva)
+    + [Day #275 We live in a broken world](#day-%23275-we-live-in-a-broken-world)
 
 <!-- tocstop -->
 
@@ -31,3 +32,22 @@ Haman had every reason to rejoice and be content due to his high ranking positio
 If we have been promoted in whichever area we serve, let us be careful to ensure that pride does not rule our lives.  Whatever level we have been elevated to, let us always use it to serve others with humility.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+### Day #275 We live in a broken world
+
+When we read the old testament with this 21st-century lens we cannot help but say that the stuff they did is just wrong. For example, the way the kings treated the queens and the concubines is just wrong.
+We read about king Ahasuerus who had these banquets for his ministers, nobles, and governors, the armies of Persia and Media were also present for this really long party which lasted one hundred and eighty days.
+When the king was drunk with wine, he ordered that his queen Vashti be brought out so that everyone could admire her beauty, but she refused to come out. Good for her to take a stand against the king – even though it cost her the crown.
+
+7 For this deed of the queen will be made known to all women, causing them to look with contempt on their husbands, since they will say, ‘King Ahasuerus commanded Queen Vashti to be brought before him, and she did not come.’ 18 This very day the noble ladies of Persia and Media who have heard of the queen’s behavior will rebel against the king’s officials, and there will be no end of contempt and wrath! 19 If it pleases the king, let a royal order go out from him, and let it be written among the laws of the Persians and the Medes so that it may not be altered, that Vashti is never again to come before King Ahasuerus; and let the king give her royal position to another who is better than she. 20 So when the decree made by the king is proclaimed throughout all his kingdom, vast as it is, all women will give honor to their husbands, high and low alike.”
+21 This advice pleased the king and the officials, and the king did as Memucan proposed; 22 he sent letters to all the royal provinces, to every province in its own script and to every people in its own language, declaring that every man should be master in his own house. Esther 1
+In that male-dominated society, women were put down and treated like servants. Queen Vasthi was expelled from the king’s presence because of her disobedience. They needed to pick a new queen, and there is a process that can make a 21st-century audience sick.
+12 The turn came for each girl to go in to King Ahasuerus, after being twelve months under the regulations for the women, since this was the regular period of their cosmetic treatment, six months with oil of myrrh and six months with perfumes and cosmetics for women. 13 When the girl went in to the king she was given whatever she asked for to take with her from the harem to the king’s palace.
+
+Imagine the poor self-image those women would have had if they had to be treated for months together just so that the King can pick them. We can read this saying – how corrupt they were but we need to check our own hearts, do we treat each other’s bodies like objects? In this pornographic age – beauty has become ‘god’ – both men and women treat their bodies like objects. People classify others based on looks, appearance and style. We have lost the true beauty of the soul. Physical beauty will fade away but a beautiful heart gets more beautiful.
+Right from the start, God created both men and women equal and they were both created in the image and likeness of God. God never wanted the Kings to have many wives and concubines. In fact, as we read many times over - God forbid the kings of Israel from having many wives. Most of the Jewish kings met their downfall because of their many wives and their disobedience to God.
+
+Let us thank God for the progress we have made when it comes to respecting women. We in the 21st century may criticize the Old Testament people, but are our hearts clean of corruption?
+Do we look at Jesus present in our brothers and sisters?
+
+May the Holy Spirit lead us. 🙏
