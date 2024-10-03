@@ -9,6 +9,9 @@
     + [Haman's Plan](#hamans-plan)
     + [Day #276 Take a stance for what is right.](#day-%23276-take-a-stance-for-what-is-right)
     + [BIAY Day 276 By Cynthia Dsilva](#biay-day-276-by-cynthia-dsilva)
+  * [October 03,2024](#october-032024)
+    + [Such a Time as This](#such-a-time-as-this)
+    + [Day #277 Pray hard in times of trouble.](#day-%23277-pray-hard-in-times-of-trouble)
 
 <!-- tocstop -->
 
@@ -123,3 +126,27 @@ Although the Judeans rebuilt the Temple, their knowledge of the faith was very p
 But 2500 years later, in today’s world we are blessed to have so many ways to read the Word of God. We have hard copies, online text Bibles, online audio Bibles, etc. So let us not waste this opportunity which God has given us to have access to His Word. Let us make use of it as much as we can before it is too late.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## October 03,2024
+
+### Such a Time as This
+
+[![Such a Time as This](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day277.jpg)](https://youtu.be/z3UE1ws8JtU "Such a Time as This")
+
+### Day #277 Pray hard in times of trouble.
+
+The Jews face being wiped out and there seems to be no way out as King Ahasuerus already passed the ordinance to kill anyone who does not comply. Mordecai is such a good example of not backing off when the enemy threatens. He and the other Jews resort to mourning and prayer.
+
+When Mordecai learned all that had been done, Mordecai tore his clothes and put on sackcloth and ashes, and went through the city, wailing with a loud and bitter cry; 2 he went up to the entrance of the king’s gate, for no one might enter the king’s gate clothed with sackcloth. In every province, wherever the king’s command and his decree came, there was great mourning among the Jews, with fasting and weeping and lamenting, and most of them lay in sackcloth and ashes. Esther 4:4
+
+Mordecai also requested that queen Esther make supplications on behalf of the Jews. However it was not permitted for queen Ester to approach the king unless she was called. In that province, if anyone went to the King without being called they could face death.
+This information did not deter Mordecai, he went on to remind Queen Esther.
+
+“Do not think that in the king’s palace you will escape any more than all the other Jews. 14 For if you keep silence at such a time as this, relief and deliverance will rise for the Jews from another quarter, but you and your father’s family will perish. Who knows? Perhaps you have come to royal dignity for just such a time as this.” Esther 4:13,14
+
+This advice gave Esther courage and she agreed to this difficult calling.
+“Go, gather all the Jews to be found in Susa, and hold a fast on my behalf, and neither eat nor drink for three days, night or day. I and my maids will also fast as you do. After that I will go to the king, though it is against the law; and if I perish, I perish.” Esther 4:16
+
+When we face tough situations we may want to run away or ignore it, but we should pray hard and face them instead. We should not just think about ourselves but about everyone else as well. We may be filled with fear but we should surrender our fear to the Lord and realize our current position and calling in life, maybe we were born for such a time as this. Maybe God has put us in a position so that we can help God’s people. Let us not fear to take a stand for the truth, even if it may cost our lives. We cannot do it on our own, we have to pray and surrender like Esther who prayed for 3 days before she approached the King.
+
+May the Holy Spirit lead us. 🙏
