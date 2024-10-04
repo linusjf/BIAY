@@ -4,13 +4,14 @@
 
 <!-- vim-markdown-toc GFM -->
 
-- [Bible In A Year](#bible-in-a-year)
+* [Bible In A Year](#bible-in-a-year)
   - [Intro](#intro)
   - [Helpful tips](#helpful-tips)
   - [Get started](#get-started)
   - [Reading Plan](#reading-plan)
   - [A New Beginning](#a-new-beginning)
   - [Facebook](#facebook)
+  - [Step By Step Walkthrough the Mass](#step-by-step-walkthrough-the-mass)
 
 <!-- vim-markdown-toc -->
 
@@ -69,3 +70,13 @@ Let us begin our journey through the Bible as one big family, praying for each o
 Like this session.
 
 [The Bible In a Year (with Fr. Mike Schmitz and Jeff Cavins \[Official\]](https://www.facebook.com/groups/ascensioncatholic/permalink/1354591171863758/?mibextid=W9rl1R)
+
+### Step By Step Walkthrough the Mass
+
+Do This in Remembrance of Me: A Step-by-Step Walk Through the Mass
+
+Why is the Mass so important? Why do we stand, sit, and kneel at specific times during the Mass? Where did the prayers we say at Mass come from? When does Jesus actually become present in his Body, Blood, Soul, and Divinity? How do I pray better at Mass?
+
+If you have questions about the Mass, you may find some answers here. 🙏
+
+[Step By Step Walkthrough the mass](https://www.eucharisticrevival.org/step-by-step-walk-through-the-mass)

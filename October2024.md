@@ -12,6 +12,9 @@
   * [October 03,2024](#october-032024)
     + [Such a Time as This](#such-a-time-as-this)
     + [Day #277 Pray hard in times of trouble.](#day-%23277-pray-hard-in-times-of-trouble)
+  * [October 04,2024](#october-042024)
+    + [Power in Weakness](#power-in-weakness)
+    + [Day #278 When we are weak He is strong.](#day-%23278-when-we-are-weak-he-is-strong)
 
 <!-- tocstop -->
 
@@ -150,3 +153,22 @@ This advice gave Esther courage and she agreed to this difficult calling.
 When we face tough situations we may want to run away or ignore it, but we should pray hard and face them instead. We should not just think about ourselves but about everyone else as well. We may be filled with fear but we should surrender our fear to the Lord and realize our current position and calling in life, maybe we were born for such a time as this. Maybe God has put us in a position so that we can help God’s people. Let us not fear to take a stand for the truth, even if it may cost our lives. We cannot do it on our own, we have to pray and surrender like Esther who prayed for 3 days before she approached the King.
 
 May the Holy Spirit lead us. 🙏
+
+## October 04,2024
+
+### Power in Weakness
+
+[![Power in Weakness](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day278.jpg)](https://youtu.be/Z-VCoqUsnS0 "Power in Weakness")
+
+### Day #278 When we are weak He is strong.
+
+After praying for 3 days, Queen Esther surrendered everything to God and went to meet the king adorned in splendor.
+
+“ She was radiant with perfect beauty, and she looked happy, as if beloved, but her heart was frozen with fear. 6 When she had gone through all the doors, she stood before the king. He was seated on his royal throne, clothed in the full array of his majesty, all covered with gold and precious stones. He was most terrifying.
+7 Lifting his face, flushed with splendor, he looked at her in fierce anger. The queen faltered, and turned pale and faint, and collapsed on the head of the maid who went in front of her. 8 Then God changed the spirit of the king to gentleness, and in alarm he sprang from his throne and took her in his arms until she came to herself. He comforted her with soothing words, and said to her, 9 “What is it, Esther? I am your husband. Take courage; 10 You shall not die, for our law applies only to our subjects. Come near.” Esther 15:5-10
+
+God came to her assistance and saved Queen Esther, what her beauty could not do God did. Had the Lord not intervened and changed the heart of the King, Queen Esther would have lost her life as that was the law of the Kingdom that anyone who appears before the king without his permission would die.
+
+We can be assured that the God who saved Queen Esther and the Israelites will also save us. We need to trust in God and surrender every situation to his providence. God will come through when our earthly ability and strength fails. He will never let us suffer beyond our ability. When we are weak He is strong, His grace is sufficient for us.
+
+May the Holy Spirit Lead us. 🙏
