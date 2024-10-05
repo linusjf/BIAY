@@ -16,6 +16,8 @@
   * [October 04,2024](#october-042024)
     + [Power in Weakness](#power-in-weakness)
     + [Day #278 When we are weak He is strong.](#day-%23278-when-we-are-weak-he-is-strong)
+  * [October 05,2024](#october-052024)
+    + [Blessings and Burdens](#blessings-and-burdens)
 
 <!-- tocstop -->
 
@@ -204,3 +206,9 @@ God came to her assistance and saved Queen Esther, what her beauty could not do 
 We can be assured that the God who saved Queen Esther and the Israelites will also save us. We need to trust in God and surrender every situation to his providence. God will come through when our earthly ability and strength fails. He will never let us suffer beyond our ability. When we are weak He is strong, His grace is sufficient for us.
 
 May the Holy Spirit Lead us. 🙏
+
+## October 05,2024
+
+### Blessings and Burdens
+
+[![Blessings and Burdens](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day279.jpg)](https://youtu.be/opplObEb-fE "Blessings and Burdens")
