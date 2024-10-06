@@ -19,6 +19,10 @@
     + [BIAY Day 278 By Cynthia Dsilva](#biay-day-278-by-cynthia-dsilva)
   * [October 05,2024](#october-052024)
     + [Blessings and Burdens](#blessings-and-burdens)
+    + [Day #279 Live life in moderation.](#day-%23279-live-life-in-moderation)
+  * [October 06,2024](#october-062024)
+    + [The People of the Covenant](#the-people-of-the-covenant)
+    + [Day #280 Days of Remembrance](#day-%23280-days-of-remembrance)
 
 <!-- tocstop -->
 
@@ -250,3 +254,41 @@ If we are faced with a difficult decision to choose between benefits or safety o
 ### Blessings and Burdens
 
 [![Blessings and Burdens](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day279.jpg)](https://youtu.be/opplObEb-fE "Blessings and Burdens")
+
+### Day #279 Live life in moderation.
+
+We live in a consumeristic and materialistic world today, where everyone is in a race to get the best. Most of the conversations revolve around the best cars, gadgets, makeup, and house. People boast about the holidays they took or how much they spent on destination weddings. This generation wants the most extravagant experiences, the most lavish travel, comfort and luxuries are all we seek after. We want to satisfy all the senses and are focused on this world more than eternal life.
+
+Whoever loves pleasure will become poor; whoever loves wine and olive oil will never be rich.
+18 The wicked become a ransom for the righteous, and the unfaithful for the upright.
+19 Better to live in a desert than with a quarrelsome and nagging wife.
+20 The wise store up choice food and olive oil, but fools gulp theirs down. Prov 21:17-20
+
+Today’s proverb helps us keep our appetites in check, we should not be lovers of pleasure if not we will end up becoming poor – both financially and spiritually. It’s better to live in a desert than with a spouse who wants materialistic stuff and keeps on nagging and complaining until it's provided, BTW it’s not just the wife who nags. 🤣
+
+The wise store up riches and save for the future, the foolish burn holes in their credit cards and get into debt. We should learn from the St Benedict and live a balanced life.
+St. Benedict also displayed a spirit of moderation. His monks are allowed clothes suited to the climate, sufficient food and sufficient sleep (7 1/2–8 hours). The working day is divided into three roughly equal portions: five to six hours of liturgical and other prayer; five hours of manual work, whether domestic work, craft work, garden work, or fieldwork; and four hours reading of the Scriptures and spiritual writings. This balance of prayer, work, and study is another of Benedict’s
+Let us be like wise people, work-eat-live-sleep-save-spend in moderation. Love the Lord and our families in excess, build up treasures for ourselves that moths and rust can’t destroy.
+
+May the Holy Spirit lead us. 🙏
+
+## October 06,2024
+
+### The People of the Covenant
+
+[![The People of the Covenant](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day280.jpg)](https://youtu.be/GJRZsJ873F0 "The People of the Covenant")
+
+### Day #280 Days of Remembrance
+
+Most human beings have a problem of forgetting, we forget birthdays and anniversaries. Apart from forgetting dates we even forget the blessings, mercies, and love of the Lord. We should consider ourselves blessed as the mother church reminds us of the important things. We have feast days, memorials, solemnities, and Holy days of obligation. We have ordinary times and then we have Seasons like Advent, Lent, Easter, and Christmas. If we ever wondered why they were needed every year, one answer could be to help us remember and another answer could be so that we can go deeper in our understanding and love of them.
+The Catholic church did not invent this process of remembering things, we just do as the Jewish people did. The feasts and memorials were set up as per God’s direction.
+We read about the feast of `Purim` which reminds them of God’s intervention, God saved His people, rescued them from death and vindicated them.
+So the next them we feel that repeating feasts and seasons is redundant let us dig deeper and immerse ourselves more and more into the life of the church, the sacraments, and the liturgy.
+Didn’t Jesus as us to remember Him in the breaking of the bread?
+And he took bread, gave thanks and broke it, and gave it to them, saying, “This is my body given for you; do this in remembrance of me.” Luke 22:19
+
+Even the followers of Jesus devoted themselves to remembering the Lord in the Eucharist and in the teachings of the Lord.
+They devoted themselves to the apostles’ teaching and fellowship, to the breaking of bread and the prayers. Acts 2:42
+Hope this inspires all of us to frequent the sacraments and study his word more.
+
+May the Holy Spirit lead us. 🙏
