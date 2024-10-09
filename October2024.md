@@ -30,6 +30,9 @@
   * [October 08,2024](#october-082024)
     + [Antiochus Desecrates the Temple](#antiochus-desecrates-the-temple)
     + [Day 282 Patient Endurance](#day-282-patient-endurance)
+  * [October 09,2024](#october-092024)
+    + [Mattathias Attacks](#mattathias-attacks)
+    + [Day #283 Zeal and righteous anger](#day-%23283-zeal-and-righteous-anger)
 
 <!-- tocstop -->
 
@@ -387,3 +390,30 @@ The Fear of the Lord drives out all fear of the world. Like some of the Jews tha
 We are called to be people of patient endurance. We are to love the Fear of the Lord so we will be able overcome the fear of the world.
 
 May the Holy Spirit lead us. 🙏
+
+## October 09,2024
+
+### Mattathias Attacks
+
+[![Mattathias Attacks](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day283.jpg)](https://youtu.be/Hb1pUfIbetw "Mattathias Attacks")
+
+### Day #283 Zeal and righteous anger
+
+THROUGH THE GENERATIONS THERE ARE SO MANY HEROES IN THE BIBLE WHO STAND UP FOR WHAT IS RIGHT, THE ZEAL FOR THE LAW OR FOR THE HOUSE OF THE LORD CONSUMES THEM AND THEY ARE FILLED WITH RIGHTEOUS ANGER. WE SEE ONE SUCH EXAMPLE IN MATTATHIAS, A PRIEST WHO SAW THE BLASPHEMIES BEING COMMITTED BY SOME OF THE JEWS UNDER THE GREEK RULE. IN ORDER TO PLEASE THE KING AND HAVE A GOOD LIFE THEY DECIDED TO PARTAKE IN PAGAN WORSHIP.
+The King's officers who were enforcing the apostasy came to the town where Mattathias lived and suggested that he partake in the pagan worship.
+“You are a leader, honored and great in this town, and supported by sons and brothers. 18 Now be the first to come and do what the king commands, as all the nations and the people of Judah and those who are left in Jerusalem have done. Then you and your sons will be numbered among the Friends of the king, and you and your sons will be honored with silver and gold and many gifts.” 1 Maccabees 2:17-18
+
+Mattathias would not cave in to such temptations but the zeal within him would grow stronger.
+
+9 But Mattathias answered and said in a loud voice: “Even if all the nations that live under the rule of the king obey him and have chosen to obey his commandments, every one of them abandoning the religion of their ancestors, 20 I and my sons and my brothers will continue to live by the covenant of our ancestors. 21 Far be it from us to desert the law and the ordinances. 22 We will not obey the king’s words by turning aside from our religion to the right hand or to the left.”
+23 When he had finished speaking these words, a Jew came forward in the sight of all to offer sacrifice on the altar in Modein, according to the king’s command. 24 When Mattathias saw it, he burned with zeal, and his heart was stirred. He gave vent to righteous anger; he ran and slaughtered him on the altar. 25 At the same time he killed the king’s officer who was forcing them to sacrifice, and he tore down the altar. 26 Thus he burned with zeal for the law, just as Phinehas did against Zimri son of Salu. 1 Maccabees 2: 9-26
+
+Let us try to put ourselves in his shoes or one second, would we cave in or run away or would we fight like him. He was fearless and did not let any pressures or temptations of the world deter him, he was filled with righteous anger. Does this not remind you of Jesus cleansing of the temple of the money changers.
+“zeal for your house will consume me” in John 2:17
+
+Then Mattathias cried out in the town with a loud voice, saying: “Let everyone who is zealous for the law and supports the covenant come out with me!” 28 Then he and his sons fled to the hills and left all that they had in the town. At that time many who were seeking righteousness and justice went down to the wilderness to live there, 30 they, their sons, their wives, and their livestock, because troubles pressed heavily upon them. Maccabees 2:27-30
+
+Mattathias was that spark the set the fire of Zeal in many people and they were able to withstand the persecution, even fight for the right of worship.
+May we be feel inspired to take a stance for the Lord, may the zeal of righteous anger fill our hearts and minds as we read these stories of these heroes in the Bible.
+
+May the Holy Spirit lead us 🙏
