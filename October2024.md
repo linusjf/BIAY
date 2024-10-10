@@ -33,6 +33,10 @@
   * [October 09,2024](#october-092024)
     + [Mattathias Attacks](#mattathias-attacks)
     + [Day #283 Zeal and righteous anger](#day-%23283-zeal-and-righteous-anger)
+  * [BIAY Day 283 By Cynthia Dsilva](#biay-day-283-by-cynthia-dsilva)
+  * [October 10,2024](#october-102024)
+    + [Near Occasion of Sin](#near-occasion-of-sin)
+    + [Day 284 Guard yourself against lust and avoid the near occasion of Sin.](#day-284-guard-yourself-against-lust-and-avoid-the-near-occasion-of-sin)
 
 <!-- tocstop -->
 
@@ -417,3 +421,67 @@ Mattathias was that spark the set the fire of Zeal in many people and they were 
 May we be feel inspired to take a stance for the Lord, may the zeal of righteous anger fill our hearts and minds as we read these stories of these heroes in the Bible.
 
 May the Holy Spirit lead us 🙏
+
+## BIAY Day 283 By Cynthia Dsilva
+
+1 Maccabees 2:15-22
+It would have been more easier for Mattathias and his family to maintain their peace and become wealthy by obeying the evil king.  But they chose to obey the true heavenly King and resist the earthly king so they revolted against Antiochus and eventually won the battle 3 years later.
+
+Let us make sure that we too have the same zeal for the Lord so that we resist evil even if it means we have to give up our wealth and comfort.
+
+1 Maccabees 2:62
+*Do not fear the words of sinners, for their splendour will turn into dung and worms.*
+Whenever we receive hurtful comments (criticism, humiliation, threats, etc.) from others, let us remember that there is a Word of God for us.
+We must just brush off any type of comment that hurts or wounds us, for these are the words of those who obey the evil one and they have no power over us.  If we are still holding onto hurtful words, let us let-go and pray for the person who used them. Their words will never have any impact on us, and their words will never have authority over us.  We are children of God, so we need not fear the words of sinners.
+
+Sirach 4:26
+*Do not be ashamed to confess your sins, and do not try to stop the current of a river.*
+A flowing river is a symbol of God’s flowing grace.  When we don't confess our sins we block the inward flow of grace into our lives.  An honest confession opens the floodgates of Heaven.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## October 10,2024
+
+### Near Occasion of Sin
+
+[![Near Occasion of Sin](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day284.jpg)](https://youtu.be/34gZvSG-cTk "Near Occasion of Sin")
+
+### Day 284 Guard yourself against lust and avoid the near occasion of Sin.
+
+Sirach has some good advice for anyone struggling with the sin of lust. It seems to be addressing a man but as we know most of the Bible is written with a masculine perspective but that was just how things were written back then. This advice is relevant for both genders, especially in our modern-day lifestyle. And Sirach was a book written by a father to his son, giving him a lot of advice about living a virtuous life.
+
+Do not go near a loose woman,
+or you may fall into her snares.
+4 Do not dally with a female singer,
+or you may be caught in her activities.
+5 Do not look intently at a virgin,
+or you may stumble and incur penalties for her.
+6 Do not give yourself to prostitutes,
+or you may lose your inheritance.
+7 Do not look around in the streets of a city
+or wander about in its deserted sections.
+8 Turn away your eyes from a shapely woman,
+and do not gaze at beauty belonging to another;
+many have been seduced by a woman’s beauty,
+and by it passion is kindled like a fire.
+9 Never dine with another man’s wife
+or revel with her at wine,
+or your heart may turn aside to her,
+and in blood you may plunge into destruction. Sirach 9:3-9
+
+There advice given to us here is very practical and apt to the lifestyle that is portrayed in Media. Many TV soaps and movies portray extra marital affairs as glorious and pre-marital live in relationships a norm. Scenes like “a man and women walk into a bar meet for the first time and end up in bed”, has caused the younger generation to think that has perverted the marital act as a pleasure seeking activity.
+Unlike the times when Sirach was written where people had to go out in the streets to look for opportunities to lust, our generation has this at the finger tips – the internet has allowed for anyone to access any content they wish. As parents and guardians we need to setup parental controls and boundaries for our younger eyes. Not just the younger eyes but for everyone, we are to avoid the near occasion of sin.
+
+There is some good advice for married people as well to avoid wine and dine with other women or another mans wives or another woman’s husband.
+
+9 Never dine with another man’s wife
+or revel with her at wine,
+or your heart may turn aside to her,
+and in blood you may plunge into destruction. Sir 9:9
+
+The Media is polluting minds by showing martial affairs as desirable, and cheating seems to be prevalent. This has caused a high divorce rate and society has made it the norm, re-marrying does not seem to help as people end up trying a few marriages and then finally give up on the idea of marriage.
+Many good willing married people seem to fall into the trap of prostitution just because they did not guard themselves well. The advice “to not go near loose women “ from Sirach is apt as no man or woman in an intoxicated state when given an opportunity to indulge in sexual activity can resist. Even the most good willing spouse will succumb to this temptation because we are all weak human beings and the flesh is very weak. The only way is to pray and avoid these evil opportunities.
+The next time someone invites you to a party where you know there is a lot of drinking or to a bar that is in a shady part of town, just politely decline.
+But always remember God’s Mercy is available to you if feel convicted of any sin in your thoughts, words, or deeds. Like we pray in the act of contrition – let us avoid the near occasion of sin.
+
+May the Holy Spirit lead us. 🙏
