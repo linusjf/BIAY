@@ -37,6 +37,9 @@
   * [October 10,2024](#october-102024)
     + [Near Occasion of Sin](#near-occasion-of-sin)
     + [Day 284 Guard yourself against lust and avoid the near occasion of Sin.](#day-284-guard-yourself-against-lust-and-avoid-the-near-occasion-of-sin)
+  * [October 11,2024](#october-112024)
+    + [Story of Hanukkah](#story-of-hanukkah)
+    + [Day 285 Do not be boastful.](#day-285-do-not-be-boastful)
 
 <!-- tocstop -->
 
@@ -483,5 +486,33 @@ The Media is polluting minds by showing martial affairs as desirable, and cheati
 Many good willing married people seem to fall into the trap of prostitution just because they did not guard themselves well. The advice “to not go near loose women “ from Sirach is apt as no man or woman in an intoxicated state when given an opportunity to indulge in sexual activity can resist. Even the most good willing spouse will succumb to this temptation because we are all weak human beings and the flesh is very weak. The only way is to pray and avoid these evil opportunities.
 The next time someone invites you to a party where you know there is a lot of drinking or to a bar that is in a shady part of town, just politely decline.
 But always remember God’s Mercy is available to you if feel convicted of any sin in your thoughts, words, or deeds. Like we pray in the act of contrition – let us avoid the near occasion of sin.
+
+May the Holy Spirit lead us. 🙏
+
+## October 11,2024
+
+### Story of Hanukkah
+
+[![Story of Hanukkah](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day285.jpg)](https://youtu.be/JZCJsc-Lt-E "Story of Hanukkah")
+
+### Day 285 Do not be boastful.
+
+We can sometime become boastful about the stuff we have or our accomplishments. Almost every commercial is encouraging us to buy a better car, house or appliances. In order to keep up with the world we are trying to get slimmer, prettier, better hair or skin.
+You must have heard the term “keeping up with the Joneses” – loosely put - people are doing something in order to show that they have as much money as other people, rather than because they really want to do it. Many have gone to their ruin because of keeping up with others. Instead we should just live by our means and not compare with our neighbor.
+Do not make a display of your wisdom when you do your work,
+and do not extol yourself when you are in difficulty.
+Better those who work and have plenty
+than those who boast and lack bread.
+My child, honor yourself with humility
+and give yourself the esteem you deserve. Sirach 10:26-28
+
+Let us not make a display of our accomplishments but clothe ourselves with humility instead. They say pride goes before a fall, so stay humble and give the glory to God.
+We also should not honor people who are rich or good good-looking or popular but those who fear the Lord and live a life of faith.
+Do not praise individuals for their good looks or loathe anyone because of appearance alone. Sir 11:2
+
+Many rulers have been utterly disgraced, and the honored have been handed over to others. Sir 11:6
+
+We should not praise and honor only those in power or the rich and popular so the Lord can change their fortunes overnight. Instead praise those who fear the Lord or serve the poor, like Mother Teresa or any other saint that only honors God.
+Whose offspring are worthy of honor? Those who fear the Lord.
 
 May the Holy Spirit lead us. 🙏
