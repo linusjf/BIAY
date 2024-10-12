@@ -40,6 +40,9 @@
   * [October 11,2024](#october-112024)
     + [Story of Hanukkah](#story-of-hanukkah)
     + [Day 285 Do not be boastful.](#day-285-do-not-be-boastful)
+  * [October 12,2024](#october-122024)
+    + [The Battle to Choose God](#the-battle-to-choose-god)
+    + [Day 286 Self-care is choosing Life.](#day-286-self-care-is-choosing-life)
 
 <!-- tocstop -->
 
@@ -515,4 +518,27 @@ Many rulers have been utterly disgraced, and the honored have been handed over t
 We should not praise and honor only those in power or the rich and popular so the Lord can change their fortunes overnight. Instead praise those who fear the Lord or serve the poor, like Mother Teresa or any other saint that only honors God.
 Whose offspring are worthy of honor? Those who fear the Lord.
 
+May the Holy Spirit lead us. 🙏
+
+## October 12,2024
+
+### The Battle to Choose God
+
+[![The Battle to Choose God](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day286.jpg)](https://youtu.be/0OxsyVxbCEM "The Battle to Choose God")
+
+### Day 286 Self-care is choosing Life.
+
+In the race of life, some people end up sacrificing a lot of their lives in the pursuit of making it big in life. Some have a good intention to make life easy for their kids and end up depriving themselves of a good life.
+Whoever accumulates by depriving himself, accumulates for others; and others will live in luxury on his goods.
+If a man is mean to himself, to whom will he be generous? He will not enjoy his own riches. Sirach 14:4,5
+We should have a good balance between saving and spending, without overdoing either of them. We should take good care of our health as well, many people neglect their health and work 2 or 3 jobs to increase their wealth. Also, we have made our lives overly busy with many unwanted things. We set very high living standards for ourselves and end up struggling to pay off our debt.
+My son treat yourself well, according to your means, and present worthy offerings to the Lord. Sirach 14: 11
+It’s easier said than done, we should spend according to our means. If we could just follow this simple rule in life, we would never be envious or jealous of others.
+Do not lift a weight too heavy for you,
+or associate with anyone wealthier than you.
+How can the clay pot go with the metal cauldron?
+When they knock together, the pot will be smashed: Sirach 13:2
+Let us remember that God provides for us and supplies all our needs, not our wants. We are given the freedom to choose let us choose good.
+If you choose, you can keep the commandments, and to act faithfully is a matter of your own choice. He has placed before you fire and water; stretch out your hand for whichever you choose. Before each person are life and death, and whichever one chooses will be given. Sirach 15:15-17
+I pray that each one of us will be able to choose life, the good Christian life of moderation of earthly goods. We should store up riches in heaven and leave our children with a rich inheritance of good values and a Christian life.
 May the Holy Spirit lead us. 🙏
