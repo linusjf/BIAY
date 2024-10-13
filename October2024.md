@@ -43,6 +43,8 @@
   * [October 12,2024](#october-122024)
     + [The Battle to Choose God](#the-battle-to-choose-god)
     + [Day 286 Self-care is choosing Life.](#day-286-self-care-is-choosing-life)
+  * [October 13,2024](#october-132024)
+    + [Eleazar's Sacrifice](#eleazars-sacrifice)
 
 <!-- tocstop -->
 
@@ -542,3 +544,9 @@ Let us remember that God provides for us and supplies all our needs, not our wan
 If you choose, you can keep the commandments, and to act faithfully is a matter of your own choice. He has placed before you fire and water; stretch out your hand for whichever you choose. Before each person are life and death, and whichever one chooses will be given. Sirach 15:15-17
 I pray that each one of us will be able to choose life, the good Christian life of moderation of earthly goods. We should store up riches in heaven and leave our children with a rich inheritance of good values and a Christian life.
 May the Holy Spirit lead us. 🙏
+
+## October 13,2024
+
+### Eleazar's Sacrifice
+
+[![Eleazar's Sacrifice](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day287.jpg)](https://youtu.be/SmO0KJZi4R8 "Eleazar's Sacrifice")
