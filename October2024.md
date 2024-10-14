@@ -46,6 +46,9 @@
   * [October 13,2024](#october-132024)
     + [Eleazar's Sacrifice](#eleazars-sacrifice)
     + [287 Loved one’s not choosing Christ.](#287-loved-ones-not-choosing-christ)
+  * [October 14,2024](#october-142024)
+    + [Battling Against Gossip](#battling-against-gossip)
+    + [Day 288 Let anything you hear die with you; never fear, it will not make you burst](#day-288-let-anything-you-hear-die-with-you-never-fear-it-will-not-make-you-burst)
 
 <!-- tocstop -->
 
@@ -568,3 +571,38 @@ rather die childless than have impious children! Sirach 16: 1-3
 We see the strong language used here in the Proverbs and may feel that the father in the proverb is too harsh. But I think it can be justified that the father truly wants the good of the child, he wants the child to do good and to have a good future. This is not just applicable for children but can be extended to any relationship, sometimes the children are in the Lord and the parents are away, many a times its one spouse in the Lord and the other one in the world.
 Life can get very frustrating when we don’t see a child, spouse, parent, sibling or friend turning away from the Lord. It can be very painful to see a loved one trapped in addictions and lured into the traps of the world. We may reach a point of depression when we look at them ruin their lives, but we are called to have hope, hope against hope trusting God with every situation and every person. We have to take on the heart of the Father of the prodigal son who waits everyday for his son’s return. We are to pray and be open to God’s grace, hoping that the loved one will turn back to the Lord. Let us remember that God waits with us for them, we are not on our own but are partnering with God when we give someone a second chance. Let us ask great saints like St Monica to pray for us to be able to wait for others to change, remember waiting is loving.
 May the Holy Spirit lead us. 🙏
+
+## October 14,2024
+
+### Battling Against Gossip
+
+[![Battling Against Gossip](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day288.jpg)](https://youtu.be/u7P60ZXtjQU "Battling Against Gossip")
+
+### Day 288 Let anything you hear die with you; never fear, it will not make you burst
+
+We all know someone or many people who struggle with the sin of gossip. There are folks who cannot stomach a secret or can’t even rest until they tell someone the gossip. Just reading Sirach will make you laugh when you think of gossipmongers.
+Tell nothing to friend or foe;
+and unless it be a sin for you, do not reveal a thing.
+For someone may have heard you and watched you,
+and in time come to hate you.
+Let anything you hear die with you;
+never fear, it will not make you burst!
+Having heard something, the fool goes into labor,
+like a woman giving birth to a child.
+Like an arrow stuck in a fool’s thigh,
+so is gossip in the belly of a fool. Sirach 19: 8-12
+When you hear something confidential, or bad about a person try your best to not tell anyone unless it’s a sin to keep it to yourself. Just try not to say anything it may cause more ruin to that person. Come on, you won’t burst open don’t act like you’re in labor and just have to deliver this gossip. Only a fool cannot hold gossip in any smart person will take it in from one ear and send it out the other. The better option would be to even step away from conversations that are not healthy.
+So what should we do if we find out that someone has said something bad about us. We should first of all not reach until we investigate if it was actually true. We should go straight to the person who supposedly said something about you and talk to them directly to sort out the matter.
+Admonish your friend—he may not have done it;
+and if he did, that he may not do it again.e
+Admonish your neighbor—he may not have said it;
+and if he did, that he may not say it again.
+Admonish your friend—often it may be slander;
+do not believe every story. Sirach 19:13-15
+If we approach them directly there can be 3 positive outcomes
+
+1. They may never say it or do it again
+2. They may have never said it in the first place
+3. They may apologize and we have made the friendship stronger.
+   Let us try our best to avoid all gossip and to resort to speaking openly and directly to our friends and family. This will cause a much better society where everyone is built up and encouraged not slandered and brought down.
+   May the Holy Spirit lead us. 🙏
