@@ -602,7 +602,9 @@ do not believe every story. Sirach 19:13-15
 If we approach them directly there can be 3 positive outcomes
 
 1. They may never say it or do it again
+
 2. They may have never said it in the first place
+
 3. They may apologize and we have made the friendship stronger.
    Let us try our best to avoid all gossip and to resort to speaking openly and directly to our friends and family. This will cause a much better society where everyone is built up and encouraged not slandered and brought down.
    May the Holy Spirit lead us. 🙏
