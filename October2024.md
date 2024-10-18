@@ -58,6 +58,8 @@
   * [October 17,2024](#october-172024)
     + [The Rise of King Alexander](#the-rise-of-king-alexander)
     + [Day 291 A good wife is a generous gift.](#day-291-a-good-wife-is-a-generous-gift)
+  * [October 18,2024](#october-182024)
+    + [The Power of Words](#the-power-of-words)
 
 <!-- tocstop -->
 
@@ -729,3 +731,9 @@ no scales can weigh the worth of her chastity.
 We should always look for someone who is self-disciplined and modest. Someone who have virtue and is grounded in their faith. A good tree will bear good fruit and a bad tree bad fruit, we should be very careful and discerning to marry a person who is good. It is very hard for anyone to change their ways, so expecting someone to change after marriage is a far shot.
 Let us remember that God has a plan for each of us as we will be given a spouse who will bring the best out of us. Let us pray for our spouses every day and support them in every way possible.
 May the Holy Spirit lead us. 🙏
+
+## October 18,2024
+
+### The Power of Words
+
+[![The Power of Words](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day292.jpg)](https://youtu.be/r-ozqr4wXMM "The Power of Words")
