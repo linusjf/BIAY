@@ -61,6 +61,8 @@
   * [October 18,2024](#october-182024)
     + [The Power of Words](#the-power-of-words)
     + [Day 292 Diffuse a quarrel with a good word](#day-292-diffuse-a-quarrel-with-a-good-word)
+  * [October 19,2024](#october-192024)
+    + [Discipline Grounded in Love](#discipline-grounded-in-love)
 
 <!-- tocstop -->
 
@@ -767,3 +769,9 @@ Take care not to slip by your tongue
 and fall victim to one lying in ambush. Sirach 28: 24-26
 
 May the Holy Spirit lead us 🙏
+
+## October 19,2024
+
+### Discipline Grounded in Love
+
+[![Discipline Grounded in Love](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day293.jpg)](https://youtu.be/0QwYbbTKmWs "Discipline Grounded in Love")
