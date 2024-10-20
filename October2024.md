@@ -63,6 +63,10 @@
     + [Day 292 Diffuse a quarrel with a good word](#day-292-diffuse-a-quarrel-with-a-good-word)
   * [October 19,2024](#october-192024)
     + [Discipline Grounded in Love](#discipline-grounded-in-love)
+    + [Day 293 We all need discipline](#day-293-we-all-need-discipline)
+  * [October 20,2024](#october-202024)
+    + [Judea Gains Independence](#judea-gains-independence)
+    + [Day 294 Etiquette shows the Character of a Christian](#day-294-etiquette-shows-the-character-of-a-christian)
 
 <!-- tocstop -->
 
@@ -775,3 +779,100 @@ May the Holy Spirit lead us 🙏
 ### Discipline Grounded in Love
 
 [![Discipline Grounded in Love](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day293.jpg)](https://youtu.be/0QwYbbTKmWs "Discipline Grounded in Love")
+
+### Day 293 We all need discipline
+
+There is no rocket science to this anyone who wants to succeed in life needs to have discipline. Without discipline and dedication, it's almost impossible to be good at anything. We need to start them young and in today’s reading from Sirach we read a father's instructions to his son, probably showing him the ropes so that his grandchildren will be raised right.
+
+Whoever loves a son will chastise him often,
+that he may be his joy when he grows up.
+Whoever disciplines a son will benefit from him,
+and boast of him among acquaintances.
+Whoever educates a son will make his enemy jealous,
+and rejoice in him among his friends.
+At the father’s death, he will seem not dead,
+for he leaves after him one like himself,
+Whom he looked upon through life with joy,
+and in death, without regret.
+
+My mom always said “If you bring a soul into this world you are responsible for it”. Parents need to discipline their kids and educate them and make them a better version of what the parents are. If we raise our children right we can be joyful on our death bed knowing that this world is a little better because of our good parenting.
+
+Do not withhold discipline from youths;
+if you beat them with the rod, they will not die.
+Beat them with the rod.
+and you will save them from Sheol. Proverbs 23:13-14
+
+This reading may seem harsh, as we don’t usually see youth being disciplined by the rod in our modern-day and age. The Bible verse does not promote beating children but focuses on disciplining them. Whatever you feel appropriate for your kids like time-outs, grounding, positive parenting, whatever method you take, you need to ensure they have boundaries and limitations, are responsible and accountable.
+But discipline should not stop with our children, we should discipline ourselves as well. We should take good care of our bodies as well as our souls.
+
+Better the poor in vigorous health
+than the rich with bodily ills.
+would rather have bodily health than any gold,
+and contentment of spirit than pearls.
+No riches are greater than a healthy body;
+and no happiness than a joyful heart.
+Better is death than a wretched life,
+everlasting sleep than constant illness.
+Good things set before one who cannot eat
+are like food offerings placed before a tomb. Sirach 30:14-18
+
+What good it is if we neglect our health and earn a lot of money, health is better than wealth. Hence the saving “Health is wealth”. If we earn all the money in the world and cannot eat anything delicious, what good is all your earnings.
+Do not give in to sadness,
+or torment yourself deliberately.
+Gladness of heart is the very life of a person,
+and cheerfulness prolongs his days.
+Distract yourself and renew your courage,
+drive resentment far away from you;
+For grief has killed many,
+and nothing is to be gained from resentment.
+Envy and anger shorten one’s days,
+and anxiety brings on premature old age. Sirach 30:21-24
+
+We also should take care of our mental health, grief has killed many people either through suicide or causing bad physical health. Envy and anger shorten one’s life. Let us not give into sadness or resentment – instead let us be cheerful and grateful. Anger and Envy can cause us to rot and become grumpy and nasty.
+Wakefulness over wealth wastes away the flesh,
+and anxiety over it drives away sleep.
+Wakeful anxiety banishes slumber;
+more than a serious illness it disturbs repose. Sirach 31:2
+
+Anxiety and wakefulness can lead to major health conditions and sicknesses. So let us disciple ourselves to trust in the Lord and to rely fully on Him. To keep our head up and to always be hopeful no matter how bad the situation may look.
+Let us try to live a healthy lifestyle with God in the center of it.
+
+May the Holy Spirit lead us. 🙏
+
+## October 20,2024
+
+### Judea Gains Independence
+
+[![Judea Gains Independence](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day294.jpg)](https://youtu.be/6CU3G7dCWw8 "Judea Gains Independence")
+
+### Day 294 Etiquette shows the Character of a Christian
+
+When we call ourselves Christians, we should also live like Christ. Although bad etiquette is not necessarily a mortal sin, a person with good etiquette will be able to be a better example of Christ.
+We are all called to put on Christ and bear witness to his holiness.
+There is some good advice on etiquette when you're invited to a party. in Sirach 32
+
+1. DON’T BE PUFFED UP WITH PRIDE.
+
+If you are chosen to preside at a dinner, do not be puffed up, but with the guests be as one of them; Sirach 23:1
+
+When people go to a party they usually want to wear the best clothes and drive their costliest car. We see people competing with each other for the best jeweler, clothes and accessories. We can hear people chatting about all their achievements and accomplishments all with a purpose to puff up their pride. Let us talk about Christ and his mercy instead. We are but a wildflower there today and gone tomorrow.
+
+2. SPEAK AT THE RIGHT TIME.
+
+You who are older, it is your right to speak, but temper your knowledge and do not interrupt the singing. Where there is entertainment, do not pour out discourse, and do not display your wisdom at the wrong time. Sirach 32:3-4
+
+We see people speaking out of turn or cutting off the other person to make their voice heard. As a person who speaks Christ’s words, we cannot be harsh with our tongues. Let our words be well chosen and apt for the moment.
+
+3. SPEAK WISELY AND WHEN NECESSARY.
+   Speak, young man, only when necessary, when they have asked you more than once.Be brief, say much in few words; be knowledgeable and yet quiet. Sirach 32:7-8
+
+We should only speak once and have an opinion about things and not argue and debate about what others say. Even though we know more than the other it is sometimes better to be quiet and speak only when people are listening. We also should not be too soft-spoken but speak in the right moderation and with wisdom.
+
+4. HAVE A LIMIT ON YOUR TIME
+
+Leave in good time and do not be the last; go home quickly without delay. Sirach 23:11
+
+Some people want to get drunk and party all night long. We should have a check on time when we are invited to other people's homes and leave early. It’s just common sense, the host may be tired or have kids that need to sleep.
+Let us be the best version we can be and emit the light of Christ wherever we go.
+
+May the Holy Spirit lead us.  🙏
