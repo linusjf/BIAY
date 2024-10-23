@@ -981,8 +981,6 @@ Third, there can be a deep folly involved in gluttony by thinking that one can s
 Finally, gluttony is closely connected to avarice and lust.
 May the Holy Spirit lead us. 🙏
 
-<https://youtu.be/5fM5mVvMFgA?si=Aw_GNa4TvWN_BTsS>
-
 ## October 23,2024
 
 ### Using Good Things for Evil
