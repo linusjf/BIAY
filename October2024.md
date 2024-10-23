@@ -70,6 +70,12 @@
   * [October 21,2024](#october-212024)
     + [Israel's Expectations](#israels-expectations)
     + [Day 295 God does not accept bribes](#day-295-god-does-not-accept-bribes)
+  * [October 22,2024](#october-222024)
+    + [Know Your Heart](#know-your-heart)
+    + [Day 296 Gluttony.](#day-296-gluttony)
+  * [October 23,2024](#october-232024)
+    + [Using Good Things for Evil](#using-good-things-for-evil)
+    + [Day 297 Physicians and Medicine are a blessing from God.](#day-297-physicians-and-medicine-are-a-blessing-from-god)
 
 <!-- tocstop -->
 
@@ -918,4 +924,97 @@ a sweet odor before the Most High.
 The sacrifice of the just is accepted, never to be forgotten. Sir 35:6-9
 
 So the next time we approach the temple of the Lord, let us not go empty-handed but let us give freely according to our means, without bribing the Lord or expecting a certain result. Let us expect the Lord to bless us beyond our imagination.
+May the Holy Spirit lead us. 🙏
+
+## October 22,2024
+
+### Know Your Heart
+
+[![Know Your Heart](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day296.jpg)](https://youtu.be/5fM5mVvMFgA "Know Your Heart")
+
+### Day 296 Gluttony.
+
+My son, while you are well, govern your appetite,
+and see that you do not allow it what is bad for you.
+For not everything is good for everyone,
+nor is everything suited to every taste.
+Do not go to excess with any enjoyment,
+neither become a glutton for choice foods;
+For sickness comes with overeating,
+and gluttony brings on nausea.
+Through lack of self-control many have died,
+but the abstemious one prolongs life.
+
+Some very good advice here on healthy eating. Some people eat to live and some live to eat, we should try our best to have a moderate appetite. When we are well, we should control our intake, eat healthy and nutritious food. If we do not follow a healthy eating habbit we will get sick some sooner and some later. Once people get chronic conditions that is when they realize that eating too much of sugar, salt, fat or fried foods is not good for the body. Our bodies are the temple of the Holy Spirit, we have to take good care of it.
+
+Gluttony can creep into us unknowingly and we can become victims of poor food choices. Once we get some chronic condition then it becomes mandatory to eat a die least we become worse.
+Gluttony is a very common sin and is even well-accepted in society.
+
+Below excerpt taken from [cathstan.org](https://cathstan.org)
+
+Gluttony is eating or drinking inordinately, contrary to reason. It is a sin opposed to the virtue of temperance because it is the immoderate indulgence in the delights of food or drink. Gluttony can involve more than merely eating too much. Drunkenness is also a type of gluttony because it is excessive indulgence in intoxicating drink.
+
+A person can be excessive in what, when, how, and how much he eats. St. Thomas Aquinas and others have distinguished five ways gluttony can be manifested. One can approach food or drink:
+Hastily, by eating too rapidly, gulping down food or drink. As a gift of God, food and drink should be savored and enjoyed. To fail in this regard is not only impolite when in the company of others but can also be offensive to God or to those who have prepared the meal. By hastily eating or drinking, one downplays the gift by rushing past its subtleties and delights, which require a more moderate rate of consumption to appreciate fully. Rapid consumption also tends to lead to overconsumption, whether food or drink.
+Sumptuously, by demanding rich foods more so than healthier fare. For example, consuming sweets and fatty foods rather than fruits and vegetables, or expensive foods rather than more moderate ones, fine wines and liquors rather than water and juice.
+
+Excessively, by habitually consuming too much.
+Greedily, by demanding what one wants, when one wants it, and in the quantity one wants. Some are unwilling to share food or drink with others; others demand to be served first; still others insist on being served separately.
+Daintily, by insisting that food be prepared to exacting standards of appearance or taste.
+Yes, gluttony can be manifested in many ways, not just through excessive consumption.
+
+St Thomas also noted these five “daughters” of gluttony:
+
+Unseemly joy – This is best seen as a result of excessive consumption of intoxicating drink but eating too much can also lead to a levity that is beyond what is reasonable. There is an expression that is dismissive of a necessary seriousness: “Eat, drink, and be merry.” There is also the foolish saying, “Life is short; eat dessert first.”
+
+Scurrility (foolish talking) – Long meals are often rife with gossip and silly or imprudent speech. Add alcohol and conversation can become increasingly unruly and flippant.
+Uncleanness – Some are so addicted to the feast and the table that they induce vomiting to “make room” so that that they can return and consume more. Others vomit from the overconsumption itself, sometimes after having passed out.
+
+Loquaciousness – This is similar to scurrility but refers to talking too much in general rather than the content of the speech.
+
+Dullness of mind – Heavy food or intoxicating drink can cause sluggishness and sleepiness. Drinking too much can lower a person’s inhibitions. One seldom does good thinking after a heavy meal or a bout of excessive drinking.
+While gluttony is not the most serious of sins (sins of the spirit are more consequential), gluttony can be one of the more disgraceful because of its effect on the intellect.
+Gluttony can become very serious in at least four ways:
+First, drunkenness is a species of gluttony. The quantity of human tears shed on account of its effects demonstrate the havoc wrought.
+Second, gluttony is an addiction and addictions are a serious problem.
+Third, there can be a deep folly involved in gluttony by thinking that one can satisfy inner emptiness with things of this world.
+Finally, gluttony is closely connected to avarice and lust.
+May the Holy Spirit lead us. 🙏
+
+<https://youtu.be/5fM5mVvMFgA?si=Aw_GNa4TvWN_BTsS>
+
+## October 23,2024
+
+### Using Good Things for Evil
+
+[![Using Good Things for Evil](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day297.jpg)](https://youtu.be/Lj37u2V0vdE "Using Good Things for Evil")
+
+### Day 297 Physicians and Medicine are a blessing from God.
+
+When it comes to doctors and medicine we find people on both sides of the spectrum, some trust only in God and don’t care for medical treatment, and some only trust in the doctors and medicine without relying on God. When it comes to medical care there are no two ways about it, medical care is from God. The doctor is an instrument of God and healing is only from God, the doctor gives medicine but healing is brought about only by God. There should not be any conflict because it is God who ultimately heals us.
+
+For those who say they don’t need a doctor they need to read this instruction. I know a few famous preachers who say doctors are not for Christian, Christians should always pray for a miracle.
+
+1. Make friends with the doctor, for he is essential to you;God has also established him in his profession.
+2. From God the doctor has wisdom,
+   and from the king he receives sustenance.
+3. Knowledge makes the doctor distinguished,
+   and gives access to those in authority.
+4. God makes the earth yield healing herbs
+   which the prudent should not neglect;
+5. Was not the water sweetened by a twig,
+   so that all might learn his power?
+6. He endows people with knowledge,
+   to glory in his mighty works,
+7. Through which the doctor eases pain,
+8. and the druggist prepares his medicines.
+   Thus God’s work continues without cease
+   in its efficacy on the surface of the earth.
+9. My son, when you are ill, do not delay,
+   but pray to God, for it is he who heals.
+
+We also have to be careful about thinking that it is the doctor and the medicine that heals and God has nothing to do with it. We need to remember that God is the creator of everything and all wisdom comes from God. So the doctor who eases pain and the druggist who prepares the medicine are all God’s creations themselves. Also, the herbs and materials used in medicine are a creation of God. No matter how advanced science and technology gets healing is attributed to God alone.
+
+The doctor can treat by only God can heal. We should first pray to God to heal us and for the Lord to guide the minds and hearts of the doctors we visit.
+
 May the Holy Spirit lead us. 🙏
