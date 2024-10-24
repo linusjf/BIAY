@@ -76,6 +76,8 @@
   * [October 23,2024](#october-232024)
     + [Using Good Things for Evil](#using-good-things-for-evil)
     + [Day 297 Physicians and Medicine are a blessing from God.](#day-297-physicians-and-medicine-are-a-blessing-from-god)
+  * [October 24,2024](#october-242024)
+    + [The Gift of Life](#the-gift-of-life)
 
 <!-- tocstop -->
 
@@ -1016,3 +1018,9 @@ We also have to be careful about thinking that it is the doctor and the medicine
 The doctor can treat by only God can heal. We should first pray to God to heal us and for the Lord to guide the minds and hearts of the doctors we visit.
 
 May the Holy Spirit lead us. 🙏
+
+## October 24,2024
+
+### The Gift of Life
+
+[![The Gift of Life](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day298.jpg)](https://youtu.be/7hmMU7zkX4g "The Gift of Life")

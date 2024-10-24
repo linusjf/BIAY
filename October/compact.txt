@@ -22,3 +22,4 @@ Day294.md
 Day295.md
 Day296.md
 Day297.md
+Day298.md
