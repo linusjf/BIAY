@@ -79,6 +79,8 @@
   * [October 24,2024](#october-242024)
     + [The Gift of Life](#the-gift-of-life)
     + [Day 298 Do not fear death](#day-298-do-not-fear-death)
+  * [October 25,2024](#october-252024)
+    + [Jeremiah Hides the Ark](#jeremiah-hides-the-ark)
 
 <!-- tocstop -->
 
@@ -1073,3 +1075,9 @@ But put on the Lord Jesus Christ, and make no provision for the desires of the f
 What we lack in our own ability, God makes up for us in the life , death and resurrection of Christ. Let us face death with confidence that Jesus died for us and If the Spirit of him who raised Jesus from the dead dwells in you, he who raised Christ Jesus from the dead will also give life to your mortal bodies through his Spirit who dwells in you.(Rom 8:11)
 
 May the Holy Spirit lead us. 🙏
+
+## October 25,2024
+
+### Jeremiah Hides the Ark
+
+[![Jeremiah Hides the Ark](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day299.jpg)](https://youtu.be/p8z56ESPQ5s "Jeremiah Hides the Ark")
