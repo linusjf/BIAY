@@ -89,6 +89,7 @@
     + [Rising Again](#rising-again)
     + [Day 301 Sports More Important than Church](#day-301-sports-more-important-than-church)
     + [BIAY Day 301 By Cynthia Dsilva](#biay-day-301-by-cynthia-dsilva)
+    + [DAY 301 By Sheila](#day-301-by-sheila)
 
 <!-- tocstop -->
 
@@ -1175,3 +1176,9 @@ The devil is very tricky and he always uses new tricks to lure us into his kingd
 The only difference between sinners and saints on earth is that saints keep getting up through regular repentance.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+### DAY 301 By Sheila
+
+SIRACH 48:1-4, 9-11
+In speaking of Elijah, Jesus is predicting His own death. At the same time, He is preparing His Disciples to face what awaits them. Jesus tells them, "The Son of Man will certainly suffer at their hands."  However, the disciples assume that Jesus is talking about John the Baptist. As usual, they did not understand what Jesus meant.
+At times, we also do not understand what Jesus is saying to us and it's implications to our lives. Jesus foresees His Passion and Death with equanimity. This can help us to accept and understand the sufferings in our own lives. The Spirit of Elijah inspires us to see, that our sufferings are a way of sharing the destiny of Jesus and to face them serenely.
