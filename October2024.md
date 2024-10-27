@@ -88,6 +88,7 @@
   * [October 27,2024](#october-272024)
     + [Rising Again](#rising-again)
     + [Day 301 Sports More Important than Church](#day-301-sports-more-important-than-church)
+    + [BIAY Day 301 By Cynthia Dsilva](#biay-day-301-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -1161,3 +1162,16 @@ This is exactly what is happening in our generation, little Tom or Sally has Bas
 This has to stop!!!! If not we lose the youth the future of the church.
 We need to ensure that going to church on Sunday/Saturday eve is the most important thing to our family. If it comes to it, we should be willing to skip games/practice for Church. We need more Christians to talk to coaches and clubs to schedule practice at a convenient time such that every child gets to go to Church. If we don’t act non, we have lost a generation.
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 301 By Cynthia Dsilva
+
+Proverbs 24:16
+*The righteous man falls seven times, but rises up again.*
+
+If a righteous man can fall even after rising up again, then, due to the weakness of our souls we too are likely to fall into sin over and over again.
+
+The devil is very tricky and he always uses new tricks to lure us into his kingdom.  Every time we are deceived in a new way it takes us a while before we understand that deception and then try to avoid it.
+
+The only difference between sinners and saints on earth is that saints keep getting up through regular repentance.
+
+🔥🔥🔥🔥🔥🔥🔥
