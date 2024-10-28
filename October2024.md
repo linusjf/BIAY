@@ -90,6 +90,9 @@
     + [Day 301 Sports More Important than Church](#day-301-sports-more-important-than-church)
     + [BIAY Day 301 By Cynthia Dsilva](#biay-day-301-by-cynthia-dsilva)
     + [DAY 301 By Sheila](#day-301-by-sheila)
+  * [October 28,2024](#october-282024)
+    + [The Pursuit of Wisdom](#the-pursuit-of-wisdom)
+    + [Day 302 Don’t rejoice when your enemies fall.](#day-302-dont-rejoice-when-your-enemies-fall)
 
 <!-- tocstop -->
 
@@ -1182,3 +1185,29 @@ The only difference between sinners and saints on earth is that saints keep gett
 SIRACH 48:1-4, 9-11
 In speaking of Elijah, Jesus is predicting His own death. At the same time, He is preparing His Disciples to face what awaits them. Jesus tells them, "The Son of Man will certainly suffer at their hands."  However, the disciples assume that Jesus is talking about John the Baptist. As usual, they did not understand what Jesus meant.
 At times, we also do not understand what Jesus is saying to us and it's implications to our lives. Jesus foresees His Passion and Death with equanimity. This can help us to accept and understand the sufferings in our own lives. The Spirit of Elijah inspires us to see, that our sufferings are a way of sharing the destiny of Jesus and to face them serenely.
+
+## October 28,2024
+
+### The Pursuit of Wisdom
+
+[![The Pursuit of Wisdom](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day302.jpg)](https://youtu.be/b8Em54ORKIE "The Pursuit of Wisdom")
+
+### Day 302 Don’t rejoice when your enemies fall.
+
+This world is filled with many people who are let’s `not that good`, trying to use the least offensive word here. In our daily lives, we rub up against such people and we can get angry. Anger itself is not a sin as long as we channel it correctly. If we allow anger to rule our actions then we can possibly sin.
+
+When someone repeatedly sins against us or does something terribly wrong we react and hurt them back. But most good Christians are able to let go and avoid such people.
+One thing that we may need to work on is totally letting go of the offenses. We sort of harbor hatred towards our enemies and when something bad happens to them we take some sort of joy. We are like “This stupid person I know God will show them”. This proverb instructs us to not take pleasure in the downfall of our enemies.
+
+Do not rejoice when your enemies fall,
+and when they stumble, do not let your heart exult,
+Lest the LORD see it, be displeased with you,
+and withdraw his wrath from your enemies. Sirach 24:17-18
+
+The tendency to rejoice over the bad fortune of our enemies is leading to the deadly sin of wrath.
+
+Wrath, in Roman Catholic theology, one of the seven deadly sins. Wrath is defined as a strong feeling of hatred or resentment with a desire for vengeance. This overwhelming feeling and desire for revenge distinguishes wrath from anger that is balanced with reason, which is not a sin.
+Although we may never take extreme steps of wrath, we may resort to other passive forms, like silent treatment, not cooperating with the person, gossiping about the person, long harboring anger when we think of the person.
+The next time we feel like rejoicing over the downfall of our enemies let us stop in our tracks and remember that this may be an intro sin to full-blown wrath.
+
+May the Holy Spirit lead us. 🙏
