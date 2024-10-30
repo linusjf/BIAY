@@ -97,6 +97,10 @@
     + [Eleazar's Martyrdom](#eleazars-martyrdom)
     + [Day 303 Be a good example to the world.](#day-303-be-a-good-example-to-the-world)
     + [BIAY Day 303 By Cynthia Dsilva](#biay-day-303-by-cynthia-dsilva)
+  * [October 30,2024](#october-302024)
+    + [Life Beyond Death](#life-beyond-death)
+    + [Day 304 A strong family ready to give it all up for the Lord.](#day-304-a-strong-family-ready-to-give-it-all-up-for-the-lord)
+    + [BIAY Day 304 By Cynthia Dsilva](#biay-day-304-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -1282,5 +1286,61 @@ He wants us to offer our gifts to Him, from whom we receive them, so that He can
 He wants us to worship and obey Him, who created us in His image, so that we can live in a state of grace and share in His eternal glory.
 
 Envy was, and is, Lucifer's motive that causes him to entice humans to follow his path and thus share in his eternal destruction.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## October 30,2024
+
+### Life Beyond Death
+
+[![Life Beyond Death](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day304.jpg)](https://youtu.be/QtSYb7-m3xw "Life Beyond Death")
+
+### Day 304 A strong family ready to give it all up for the Lord.
+
+Like Eleazer, there were many others who were ready to lay down their life for the law. We read about this mother with 7 sons who did not fear the torture nor did they give into the bribes of the King, they laid it all down for the Lord. They choose to sacrifice their earthly lives in order to gain entry into the heavenly life where there is no suffering or pain.
+
+2 Maccabees 7: 1-6
+
+It also happened that seven brothers with their mother were arrested and tortured with whips and scourges by the king to force them to eat pork in violation of God’s law.
+One of the brothers, speaking for the others, said: “What do you expect to learn by questioning us? We are ready to die rather than transgress the laws of our ancestors.”
+At that the king, in a fury, gave orders to have pans and caldrons heated.
+These were quickly heated, and he gave the order to cut out the tongue of the one who had spoken for the others, to scalp him and cut off his hands and feet, while the rest of his brothers and his mother looked on.
+When he was completely maimed but still breathing, the king ordered them to carry him to the fire and fry him. As a cloud of smoke spread from the pan, the brothers and their mother encouraged one another to die nobly, with these words:
+“The Lord God is looking on and truly has compassion on us, as Moses declared in his song, when he openly bore witness, saying, ‘And God will have compassion on his servants.’”
+They tortured and killed the 6 brothers, imagine how difficult it must have been for the mother to witness this cruelty against the children she bore.
+Finally they tried to tempt the youngest son with riches and a good position in the kingdom.
+2 Maccabees 24 -
+
+As the youngest brother was still alive, the king appealed to him, not with mere words, but with promises on oath, to make him rich and happy if he would abandon his ancestral customs: he would make him his Friend and entrust him with high office.
+
+The King even made his mother convince him, but the mother in turn asked him to not give in to the temptations. He did not succumb to the temptation but stood up for the law.
+2 Maccabees 7: 27, 39, 40 and 41
+
+Like my brothers, I offer up my body and my life for our ancestral laws, imploring God to show mercy soon to our nation, and by afflictions and blows to make you confess that he alone is God.
+At that, the king became enraged and treated him even worse than the others, since he bitterly resented the boy’s contempt.
+Thus he too died undefiled, putting all his trust in the Lord.
+Last of all, after her sons, the mother was put to death.
+
+This is such a strong witness that the mother and her 7 sons.
+It’s easy to read about these stories and comment on them.
+
+But imagine you and your family were at Sunday Mass and a person came in and threatened to kill all Christians. Those who considered themselves non-Christians could leave the church unharmed.
+
+Would you and your family stay or leave?
+
+May the Holy Spirit lead us 🙏
+
+### BIAY Day 304 By Cynthia Dsilva
+
+Wisdom 3:1-6
+*But the souls of the righteous are in the hand of God, and no torment will ever touch them.  In the eyes of the foolish they seemed to have died, and their departure was thought to be a disaster, and their going from us to be their destruction; but they are at peace.*
+
+When a righteous person dies, according to the physical reality the world sees them as dead, but according to the spiritual reality their souls are safe in the hands of God. Satan can only succeed in destroying the bodies of the righteous ones but not their souls (Matthew 10:28).
+
+*For though in the sight of others they were punished, their hope is full of immortality.  Having been disciplined a little, they shall be greatly blessed, because God tested them and found them worthy of himself; like gold in the furnace he tried them, and like a sacrificial burnt offering he accepted them.*
+
+When we go through trials and tribulations during our lifetime God is definitely aware of everything and He allows it to either test us or to purify us, and lead us on His path, if we are living our lives according to God's Will.  Our sufferings on earth help to reduce our time in Purgatory.  We must therefore accept whatever suffering God allows in our lives and offer our sufferings to Christ as penance for sins.
+
+But if we are living sinful lives (mortal sins) then our trials and tribulations will be the result of our sins. In such case it is important that we examine our conscience and ensure that our souls are purified without delay by receiving the Sacrament of Reconciliation regularly.
 
 🔥🔥🔥🔥🔥🔥🔥
