@@ -101,6 +101,10 @@
     + [Life Beyond Death](#life-beyond-death)
     + [Day 304 A strong family ready to give it all up for the Lord.](#day-304-a-strong-family-ready-to-give-it-all-up-for-the-lord)
     + [BIAY Day 304 By Cynthia Dsilva](#biay-day-304-by-cynthia-dsilva)
+    + [DAY 304 By Sheila](#day-304-by-sheila)
+  * [October 31,2024](#october-312024)
+    + [The Defender](#the-defender)
+    + [Day 305 The desire for Wisdom leads to a kingdom.](#day-305-the-desire-for-wisdom-leads-to-a-kingdom)
 
 <!-- tocstop -->
 
@@ -1344,3 +1348,50 @@ When we go through trials and tribulations during our lifetime God is definitely
 But if we are living sinful lives (mortal sins) then our trials and tribulations will be the result of our sins. In such case it is important that we examine our conscience and ensure that our souls are purified without delay by receiving the Sacrament of Reconciliation regularly.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+### DAY 304 By Sheila
+
+2 Maccabees 7:1-2, 9-14.
+We hear the gruesome story of the brutal killing of Seven brothers and their Mother, forced to watch them suffer and die. But they all encourage each other to remain faithful and cling to the hope of Resurrection and Vindication for their integrity. How insignificant are some of our moments of choosing to be faithful to God's Word in comparison!  And yet we have been given the Spirit of God for consolation and also to strengthen us so that we might do justice, preach the Gospel deeds and help others to progress in their obedience to the Gospel.
+The ground line of our lives is that God rules our hearts (where our will is) and that we live loving all others as God has loved us.
+We stake our lives on the Resurrection. We believe God The Father has raised Jesus from the dead in the Power of the Spirit and that we too will be raised by the Father in the Power of the Spirit. In fact, we live that Resurrection Life now in Christ through our Baptisms. We  do not know what that life will be like but we believe that it will be the fullness of life, as the Children of God with Jesus. We live now our lives given over in Sacrifice(made Holy) to Our God who is The God of the Living. We must keep this in mind now, so that when we die, we can reach for this hope with Confidence.
+
+## October 31,2024
+
+### The Defender
+
+[![The Defender](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day305.jpg)](https://youtu.be/XBqIac7NoSk "The Defender")
+
+### Day 305 The desire for Wisdom leads to a kingdom.
+
+If you are able to keep up with the `Bible in a year` program for so long, I’m sure your heart is set on wisdom. I’m sure you seek to know God more and understand His word. Our desire is to know God and love Him.
+
+For the first step toward Wisdom is an earnest desire for discipline. Wisdom 6:17
+
+Even if we feel we don’t know or don’t understand the Bible much, we can be certain that we are on the right track and that our discipline to earnestly desire wisdom is all that God needs.
+
+Desire therefore my words;
+long for them and you will be instructed.
+Resplendent and unfading is Wisdom,
+and she is readily perceived by those who love her,
+and found by those who seek her.
+13She hastens to make herself known to those who desire her;
+14one who watches for her at dawn will not be disappointed,
+for she will be found sitting at the gate.
+
+Those of us who desire to know God’s word and are eager to understand God’s plan for our lives and His will in all matters will not be disappointed. Wisdom will be found sitting at our gate. We will receive insight like never before. We will be surprised how the Holy Spirit will remind us about scripture and refresh our souls whenever we feel down cast.
+
+For the first step toward Wisdom is an earnest desire for discipline; then, care for discipline is love of her;love means the keeping of her laws;To observe her laws is the basis for incorruptibility; and incorruptibility makes one close to God; thus the desire for Wisdom leads to a kingdom. Wisdom 6:7-20
+
+We have a beautiful progression of our spiritual life mentioned here in the Book of Wisdom. What starts with an ernest desire for wisdom eventually leads us to the Kingdom.
+The steps to the Kingdom as described in the book are listed below.
+
+1. Earnest desire for discipline
+2. Which leads to Love of wisdom
+3. The love of wisdom means Keeping the laws
+4. Keeping the law means incorruptibility
+5. and incorruptibility makes one close to God
+6. thus the desire for Wisdom leads to a kingdom.
+
+Those of us who are seeking God in this program are in fact getting closer to the Kingdom. Even if we are something unfaithful, our God is always Faithful and will lead us to the Kingdom.
+May the Holy Spirit lead us. 🙏
