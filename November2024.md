@@ -10,6 +10,7 @@
   * [November 03,2024](#november-032024)
     + [Little by Little](#little-by-little)
     + [Day 308 Fight for the right fiercely, God’s horseman is ahead of us](#day-308-fight-for-the-right-fiercely-gods-horseman-is-ahead-of-us)
+    + [BIAY Day 308 By Cynthia Dsilva](#biay-day-308-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -192,3 +193,14 @@ the God of Israel, who calls you by name. Is 42:2
 Even though the horseman was there fighting that did not deter the Jews from fighting also. In fact that gave them such courage that they fought harder. We also should fight like fierce lions for the good, God is with us and is already fighting for us. God is Making a way, fighting the enemies, crushing the gates and mountains that are in our way.
 
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 308 By Cynthia Dsilva
+
+Wisdom 12:19
+*You taught your people, by these deeds, that those who are righteous must be kind;  And you gave your children reason to hope that you would allow them to repent for their sins.*
+
+God cares for all of us.  Though He is a God of justice, even those who defy and disbelieve Him may hope for His mercy if they turn to Him in repentance.
+
+Though we are believers, we often defy God by committing sins.  Let us therefore turn to Him in repentance so that we may be the recipients of His mercy and not of His judgement.
+
+🔥🔥🔥🔥🔥🔥🔥
