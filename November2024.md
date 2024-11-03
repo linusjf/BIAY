@@ -7,6 +7,9 @@
   * [November 02,2024](#november-022024)
     + [Courage in Battle](#courage-in-battle)
     + [Day 307 Wisdom Preserves Her Followers](#day-307-wisdom-preserves-her-followers)
+  * [November 03,2024](#november-032024)
+    + [Little by Little](#little-by-little)
+    + [Day 308 Fight for the right fiercely, God’s horseman is ahead of us](#day-308-fight-for-the-right-fiercely-gods-horseman-is-ahead-of-us)
 
 <!-- tocstop -->
 
@@ -150,5 +153,42 @@ and withstood fearsome kings with signs and wonders; Wisdom 10:16
 Wisdom called him out of royal living to go into the wilderness, to lead a people who would not listen to him. Wisdom was with him when he did the miracles and wonders and commanded the Red Sea to part open. Wisdom was also there in his unbelief and helped him believe.
 As we read the stories of the early patriarchs, faith fills our hearts and hope arises. We can be sure that wisdom is also with us as wisdom was with the earlier patriarchs, wisdom will come with us in our troubles and difficulties, and that wisdom will guide us and show us the right path. Let us never cease to seek the wisdom of the Lord.
 Wisdom leads to a kingdom. Wisdom will preserve us.
+
+May the Holy Spirit lead us. 🙏
+
+## November 03,2024
+
+### Little by Little
+
+[![Little by Little](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day308.jpg)](https://youtu.be/EfS1EQOPm8U "Little by Little")
+
+### Day 308 Fight for the right fiercely, God’s horseman is ahead of us
+
+Lysias, guardian and kinsman of the king and head of the government gathered eighty thousand infantry and all his cavalry and marched against the Jews.
+He did not take God’s power into account at all, but felt exultant confidence in his myriads of foot soldiers, his thousands of cavalry, and his eighty elephants.
+
+5So he invaded Judea, and when he reached Beth-zur, a fortified place about five stadia from Jerusalem, launched a strong attack against it. 6When Maccabeus and his companions learned that Lysias was besieging the strongholds, they and all the people begged the Lord with lamentations and tears to send a good angel to save Israel.7Maccabeus himself was the first to take up arms, and he exhorted the others to join him in risking their lives to help their kindred. Then they resolutely set out together. 2 Maccabees 11:4-8
+
+Judas Maccabeus was the first to take up arms against the strong attack of Lysias and his army.
+He even encouraged the others to join him in risking their lives to help the kindred. They resolutely set out together, without fear of losing their own lives against this strong attach.
+When they decided to fight for the Lord’s people, a miracle happened -
+
+8Suddenly, while they were still near Jerusalem, a horseman appeared at their head, clothed in white garments and brandishing gold weapons. 2 Macccabees 11:8
+Imagine how that helped boost their confidence, it truly did. They were ready to fight this strong enemy but also ready to fight beast or even a iron gate.
+Then all of them together thanked the merciful God, and their hearts were filled with such courage that they were ready to assault not only human beings but even the most savage beasts, or even walls of iron.
+10Now that the Lord had shown mercy toward them, they advanced in battle order with the aid of their heavenly ally.11Hurling themselves upon the enemy like lions, they laid low eleven thousand foot soldiers and sixteen hundred cavalry, and put all the rest to flight.12Most of those who survived were wounded and disarmed, while Lysias himself escaped only by shameful flight. 2 Maccabees 11:9-12
+
+Let us take courage from this knowing that when we decide to fight our battles, battle for the truth. God’s horseman is already standing ahead of you taking on the enemies. Whether we see the horseman or know – God is present whenever we try to do good. God has already started fighting for us, even before we can. He is placing angels ahead of us opening the way for us.
+
+I will go before you
+and level the mountains;
+Bronze doors I will shatter,
+iron bars I will snap.
+I will give you treasures of darkness,
+riches hidden away,
+That you may know I am the LORD,
+the God of Israel, who calls you by name. Is 42:2
+
+Even though the horseman was there fighting that did not deter the Jews from fighting also. In fact that gave them such courage that they fought harder. We also should fight like fierce lions for the good, God is with us and is already fighting for us. God is Making a way, fighting the enemies, crushing the gates and mountains that are in our way.
 
 May the Holy Spirit lead us. 🙏
