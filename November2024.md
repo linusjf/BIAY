@@ -14,6 +14,9 @@
   * [November 04,2024](#november-042024)
     + [Praying for the Dead](#praying-for-the-dead)
     + [Day 309 Praying for the dead](#day-309-praying-for-the-dead)
+  * [November 05,2024](#november-052024)
+    + [Rivals for the Heart](#rivals-for-the-heart)
+    + [Day 310 Patient Perseverance](#day-310-patient-perseverance)
 
 <!-- tocstop -->
 
@@ -231,5 +234,38 @@ It may seem strange for them to do a collection of money and they offer a sin of
 Praying for the dead is nothing new that the Catholics came up with, it’s a practice observed by the Jews. But why should we pray for the dead if they either go to heaven or hell. The only possible reason would be if there is a place of purification called purgatory where people with some minor sins await entry into heaven. Because God is so pure and holy, we would need to be fully purified to feel worthy of His presence. Hence the need for a place called purgatory.
 
 As we recently celebrated All Souls Day, where we would have prayed for the dead in our family. Let us not forget to offer prayers for the souls in purgatory, especially for those souls that need a lot of prayer. Making sacrifices and Offering indulgences for them can speed up their entry into eternal bliss. Let us also teach our children to pray for the souls in purgatory, so when we die someone will pray for us also. 🙂
+
+May the Holy Spirit lead us. 🙏
+
+## November 05,2024
+
+### Rivals for the Heart
+
+[![Rivals for the Heart](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day310.jpg)](https://youtu.be/3qZbUdJeNHc "Rivals for the Heart")
+
+### Day 310 Patient Perseverance
+
+“By patience is a ruler persuaded,
+and a soft tongue can break a bone.” Prov 25:15
+
+Many a thing in life is not achieved because we give up or give in. We start off with great zeal and fire to accomplish the goal, but on the way we either get distracted, discouraged, or impatient. Today’s proverb helps us to understand that some things in life require persistence and long-lasting effort.
+
+For example when we open up the WhatsApp group for people to join “the Bible in a Year” program there are so many zealous ones who want to complete it. But we can always see a steady decline in the folks that are committed to completing the program. Although many successfully complete it in a year, most people like me may take 2 years or some 3. It is totally fine if you are not able to keep up due to life’s demands. God is merciful and gives us our whole life to read the Bible, also it is more important that the word becomes flesh. Head knowledge is good, but we also have to internalize the Bible and live it out, which is not easy. But we always have God’s mercy and kindness who helps us in our weakness, guides us in our difficulties and sustains us to complete the good deed that we have started.
+
+We need to be calm and assertive trying our best to navigate life and live a Christ-centric life. When we have bad rulers or bad policies then pushing back hard against them may not work. We need to consistently oppose bad policies and rulers until our voice is heard and we need to pray for long-lasting motivation.
+
+We see many examples in the world that we can learn from.
+
+1. Thomas Edison did not give up trying to invent the light bulb after testing thousands of materials that would not make the right filament.
+
+2. Look at Lincoln’s resume before he was elected president. Despite a past littered with failures; he became one of, if not the greatest Presidents of the United States.
+
+3. Saint Frances Cabrini (“Mother Cabrini”). Despite her frail health and her strong desire to go to China, she was advised by the Pope to go west to America and minister to the immigrant population. Mother Cabrini founded sixty-seven institutions, including schools, hospitals, and orphanages, one for each of her sixty-seven years of life on this earth. She was also the first naturalized American Saint. A great example of what one person can do against all odds.
+
+4. Saint Elizabeth Ann Seton came from wealth, was married with children, and lived quite a different life from the widowed convert who was to found the Sisters of Charity and become the first American-born saint.
+
+5. Saint Martin de Porres of Lima, Peru was the child of a black mother and a Spanish father. Because of this, he was ridiculed and severely mocked. However, through his great perseverance and humility, he was finally accepted into the Dominican order he so earnestly yearned to join and became a model for those who seek God through poverty, sacrifice, penance, and humility.
+
+Let us be inspired by these examples in our lives and preserve with all our strength and energy to achieve what we have set out to do. Heaven is the biggest goal of our lives and we should persevere till the end to reach our goal. Of course, God will always pick us up every time we fall and carry us into heaven as long as our heart is set on Him.
 
 May the Holy Spirit lead us. 🙏
