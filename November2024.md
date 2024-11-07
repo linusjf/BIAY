@@ -20,6 +20,9 @@
   * [November 06,2024](#november-062024)
     + [God Fights for You](#god-fights-for-you)
     + [Day 311 Helping a troubled heart.](#day-311-helping-a-troubled-heart)
+  * [November 07,2024](#november-072024)
+    + [Conclusion to the Old Testament](#conclusion-to-the-old-testament)
+    + [Day 312 Rely fully on God](#day-312-rely-fully-on-god)
 
 <!-- tocstop -->
 
@@ -307,3 +310,29 @@ We are God’s hands and God’s feet in this world. God promised that he would 
 The Lord is close to the brokenhearted and saves those who are crushed in spirit. Ps 34:18
 
 May the Holy Spirit lead us. 🙏
+
+## November 07,2024
+
+### Conclusion to the Old Testament
+
+[![Conclusion to the Old Testament](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day312.jpg)](https://youtu.be/H2vXfX9lwdk "Conclusion to the Old Testament")
+
+### Day 312 Rely fully on God
+
+The great warrior Judas Maccabeus who won many battles where he was outnumbered, did not win by his own strength or the strength of his army. He always relied on the arm of God and the angels that God sent ahead of his battles.
+Maccabeus, surveying the hosts before him, the variety of weaponry, and the fierceness of their beasts, stretched out his hands toward heaven and called upon the Lord who works wonders; for he knew that it is not weapons but the Lord’s decision that brings victory to those who deserve it.
+
+22Calling upon God, he spoke in this manner: “You, master, sent your angel in the days of King Hezekiah of Judea, and he slew a hundred and eighty-five thousand men of Sennacherib’s camp.
+23And now, Sovereign of the heavens, send a good angel to spread fear and trembling ahead of us.
+24By the might of your arm may those be struck down who have blasphemously come against your holy people!” With these words he ended his prayer. 2 Maccabees 15:21-24
+
+Let us learn this and apply it to life, we should try our best but rely fully on God to give us the victory. God will send his workers - “Angels” to fight for us and make a way for us to progress.
+For he will command his angels concerning you to guard you in all your ways; Ps 91:11
+
+God has placed a guardian angel in charge of us, also other angels play in important part in our lives. So let us now forget to invoke their help especially when we are on mission to do something.
+Like the Israelite kings and leaders, we should not just put all our trust in our chariots and horses but depend fully on God. We should not just trust our education, financial backing, doctors and medicine, but we should know that all these are but a gift from God and that we rely on God for everything.
+
+Some trust in chariots and some in horses,
+but we trust in the name of the Lord our God. Ps 20:7
+
+May the Holy Spirit lead us.
