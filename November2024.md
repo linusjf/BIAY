@@ -32,6 +32,9 @@
     + [My Beloved Son](#my-beloved-son)
     + [Day 314 Overcome temptations with prayer and fasting.](#day-314-overcome-temptations-with-prayer-and-fasting)
     + [BIAY Day 314 By Cynthia Dsilva](#biay-day-314-by-cynthia-dsilva)
+  * [November 10,2024](#november-102024)
+    + [The Virtue of Mercy](#the-virtue-of-mercy)
+    + [Day 315 Faith and Love](#day-315-faith-and-love)
 
 <!-- tocstop -->
 
@@ -694,3 +697,40 @@ Luke 5:6
 When we venture further into difficult areas in obedience to the Lord, inspite of our failures, the Lord will bless our efforts with so much abundance that we may not be able to handle it on our own and we may need assistance from our family, friends, relatives, colleagues, or anyone else.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## November 10,2024
+
+### The Virtue of Mercy
+
+[![The Virtue of Mercy](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day315.jpg)](https://youtu.be/tHwiu0_6paw "The Virtue of Mercy")
+
+### Day 315 Faith and Love
+
+We see some great examples of faith, the Roman centurion whose servant was sick. The Centurion sent word for Jesus to come to his home but later realized that he was not worthy to have a holy man enter his house, so he went out to meet Jesus and petitioned the Lord with great words of faith.
+
+And Jesus went with them, but when he was only a short distance from the house, the centurion sent friends to tell him, “Lord, do not trouble yourself, for I am not worthy to have you enter under my roof.
+7Therefore, I did not consider myself worthy to come to you; but say the word and let my servant be healed.
+8For I too am a person subject to authority, with soldiers subject to me. And I say to one, ‘Go,’ and he goes; and to another, ‘Come here,’ and he comes; and to my slave, ‘Do this,’ and he does it.”
+9When Jesus heard this he was amazed at him and, turning, said to the crowd following him, “I tell you, not even in Israel have I found such faith.”
+10When the messengers returned to the house, they found the slave in good health. Luke 7:6-10
+We sometimes underestimate the power of God, we think that the Lord will work one way but do not realize that God just has to say a word and things will happen. We need to have faith when we pray, it should touch the heart of Jesus just as the centurion’s words did. Jesus should respond to our prayer “I tell you, not even in Israel have I found such faith.”
+Along with faith we should also have love for the Lord. We see the example of Mary
+A Pharisee invited him to dine with him, and he entered the Pharisee’s house and reclined at table.
+37Now there was a sinful woman in the city who learned that he was at table in the house of the Pharisee. Bringing an alabaster flask of ointment,
+38she stood behind him at his feet weeping and began to bathe his feet with her tears. Then she wiped them with her hair, kissed them, and anointed them with the ointment.
+39When the Pharisee who had invited him saw this he said to himself, “If this man were a prophet, he would know who and what sort of woman this is who is touching him, that she is a sinner.”
+40Jesus said to him in reply, “Simon, I have something to say to you.” “Tell me, teacher,” he said.
+41“Two people were in debt to a certain creditor; one owed five hundred days’ wages\* and the other owed fifty.
+42Since they were unable to repay the debt, he forgave it for both. Which of them will love him more?”
+43Simon said in reply, “The one, I suppose, whose larger debt was forgiven.” He said to him, “You have judged rightly.”
+44Then he turned to the woman and said to Simon, “Do you see this woman? When I entered your house, you did not give me water for my feet, but she has bathed them with her tears and wiped them with her hair.
+45You did not give me a kiss, but she has not ceased kissing my feet since the time I entered.
+46You did not anoint my head with oil, but she anointed my feet with ointment.
+47So I tell you, her many sins have been forgiven; hence, she has shown great love. But the one to whom little is forgiven, loves little.”
+48He said to her, “Your sins are forgiven.”
+49The others at table said to themselves, “Who is this who even forgives sins?”
+50But he said to the woman, “Your faith has saved you; go in peace.”
+
+We see the beautiful expression of love that the sinful woman, many believe is Mary Magdalene. She had such love for the Lord that she didn’t hesitate to pour out costly ointment on his feet. How is our love for the Lord, do we love like the Pharisees or like the sinner? Do we love Jesus less or love Him more. Do we give to the poor and the church a little of our time, talent and treasure or give it freely.
+Let us pray that we should have both faith and love for our dear Lord Jesus. Let us have faith believing that Jesus can do anything for us and love Him unendingly, I don’t know about you but I feel that Jesus has forgiven me a lot of my sins. He died for me and loves me dearly.
+May the Holy Spirit lead us. 🙏
