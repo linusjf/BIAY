@@ -42,6 +42,7 @@
     + [Persistence in Prayer](#persistence-in-prayer)
     + [Day 317 Do not be anxious about tomorrow.](#day-317-do-not-be-anxious-about-tomorrow)
     + [DAY 317 By Sheila](#day-317-by-sheila)
+    + [BIAY Day 317 By Cynthia Dsilva](#biay-day-317-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -814,3 +815,111 @@ Are we mindful of other's goodness or are we always looking for evil.
 Luke 11:27-28.
 While Jesus was speaking the Word of God, a woman spoke from the crowd in blessing and in truth. Blessing for the woman who gave birth and nursed You as a child. Jesus refuses, and says, NO. Rather blessed is the one who hears the Word of God and keeps it. This is more important than any blessings, any relationship of human kingship, marriage, family and parents.
 He adds, we are given birth in the Word of God and we must make sure that this WORD grows within us.
+
+### BIAY Day 317 By Cynthia Dsilva
+
+Luke 11:1
+*Jesus was praying in a certain place, and when he had finished, one of his disciples said to him, “Lord, teach us to pray just as John taught his disciples.”*
+Prayer is not about giving God information or changing his mind.  Prayer is an activity which God wants us to do because it draws us out of ourselves and builds relationships, with God and with our fellow human beings.
+
+By praying to God and on behalf of others, we learn to care about both, thus helping us fulfill the two great commandments: love of God and love of neighbor (Luke 10:27).
+
+We usually remember John the Baptist as a baptizer who called people to repent.  But here the Bible tells us that John was a man of prayer and he also had his own disciples, some of whom, we know, followed Jesus.
+
+Luke 11:3
+*Give us this day our daily bread.*
+We ask God, not only for our earthly bread but, also for our supernatural / consecrated bread, the Body of Christ (epi ousios in Greek) to keep our souls nourished as long as we live on earth.
+
+Luke 11:4
+*And forgive us our sins, as we have forgiven those who sinned against us.*
+“Forgive our offenders” does not mean that we must free them if they are in the custody of the authorities for a crime.  "Forgive our offenders" means we make a petition to God from our hearts, to forgive them, thus confirming that we have no grudge against our offenders in our hearts.  This action from us allows God's grace to flow through us to convert them.
+*Lead us not into temptation / to the final test).*
+God does not tempt people (James 1:13).  God allows the devil to tempt us for the purpose of testing our faith (Revelation 2:10; James 1:12), just as it was with Jesus (Matthew 4:1).
+
+Luke 11:5-8\
+Persistent prayer purifies our body (tongue) and mind (thoughts), and strengthens our soul.  We must pray continuously (1 Thessalonians 5:17), even if we have to repeat the same prayer over and over again (Matthew 26:44; Mark 14:39).  Praying repeatedly is not for the purpose of getting what we want but to purify ourselves and strengthen ourselves spiritually.
+
+Persistent prayer is like pushing a large rock.  Our duty is to keep pushing, even if it takes days, months or years and the rock doesn't move, and even if we are criticized or mocked for our futile persistence.  God will move the rock when the time is right.
+
+Luke 11:9-10
+Jesus didn't promise us that we will receive what we *want* (material gifts) whenever we ask, search or knock.  God is not a vending machine to give us whatever material gifts we ask for. He provides us with our daily needs even if we don’t ask for it.  God is more interested in the purity of our souls and love for our neighbor to make us worthy of the Kingdom of Heaven.  Therefore Jesus wants us to focus on asking for the Holy Spirit (Luke 11:13) to help us so that we can use our spiritual gifts how God wants us to.
+
+Luke 11:14-23
+Let us be alert to the Beelzebuls in our lives who try to create divisions between us and our family, friends, relatives, neighbours, colleagues, etc.  If they can't do it with violence they may come as humble, loving, friendly people in our lives and convince us to do something ungodly against the wishes of our family members.\
+Or they may want us to choose between two friends / relatives / colleagues /neighbours / etc. who are at war with each other.
+If we live in obedience to God we will be able to recognize these Beelzebuls, control them and maintain our relationship with others.
+Let us take the demons in our lives to Jesus so that He can cast them out by helping us to live in total obedience to God.
+
+Jesus acknowledged that the Jews performed valid exorcisms (Luke 11:19).
+
+Luke 11:24-26
+It is not enough to get rid of evil spirits through prayer, exorcism, etc.  A clean house is a house from where an evil spirit has been driven out but divine life is not present in that person, leaving that person vulnerable to the demonic.
+
+When we are baptized we are released from the bondage of Satan, but if we don’t keep the flame of the Holy Spirit burning within us with humility, daily prayers, good works of mercy, reading the Bible, fasting, etc., and most importantly, the regular reception of the Sacraments (Confession and Communion), then the evil spirits will gradually return and start multiplying.  We will find our focus shifting gradually from "pleasing God" to "pleasing humans" for prosperity, appreciation, acceptance in society, etc. and our humility will turn to pride which will in turn invite anger, hatred, envy, gossip, greed, etc.
+
+Let us keep our focus fixed on God and continue pleasing Him in all we do and say, while we keep the flame of the Holy Spirit burning within us.
+
+Luke 11:27-28
+A woman is not blessed just because she bears children in her womb and nurses them; she is blessed only when she hears the Word of God and obeys it.
+Mary was the first Christian who heard the Word of God through the Angel Gabriel and obeyed it, even before Jesus was born (Luke 1:38).\
+Mary was the first Christian who accepted Jesus in her life as her God and Saviour, even before He was born (Luke 1:47).
+
+Jesus didn’t want His mother to be blessed only because she bore Him in her womb and nursed Him.  Billions of women have borne children in their wombs and nursed them.  Instead, He blessed her for her knowledge of the scriptures and her obedience to God, even though she knew she could be stoned to death, which was the reason why He was able to come into this world and thus fulfill God’s divine plan for redemption of humanity.
+Jesus was therefore blessing His own Mother for hearing the Word of God and obeying it, just as Elizabeth too had blessed her three decades earlier (Luke 1:45).
+
+Luke 11:34-36
+One example of not using our eyes positively is “gender confusion” where the person wants to look like the opposite gender.
+A person's gender reveals how that person will contribute to bring forth new life. This is the theology of the body. Therefore, when we interfere with the biology of the body we end up interfering with the theology of the body.
+At best we can only reconstruct the outer appearance of a person wanting to re-assign his/her gender but no human can create the life-giving elements inside the newly modified body. They can only castrate themselves to stop production of the existing life-giving elements.
+The diabolic forces don't want humans to understand the beauty of the human body and therefore they confuse humans with gender identity.
+Thus, if our eyes cannot see the beauty in God’s creation then we will be living in total darkness.
+
+Luke 11:41
+*But as to what is within, give alms and everything will be clean for you.*
+Almsgiving is an antidote for wickedness and greed.
+
+Luke 12:13-15
+It was a normal practice for the Jews to seek assistance from the Rabbis in the matter of disputes.
+Family disputes for property and possessions arise out of greed and avarice which Jesus was preaching against.  Jesus wants people to focus on their heavenly inheritance, not their earthly inheritance.
+
+Luke 12:16-21
+6 times the rich man said "I."
+4 times he said "my."
+In the entire parable there is neither any thanksgiving to God for the abundance of crop nor even any mention of God.
+
+When our hearts are filled with greed we think only about "I, me myself and mine” because we make ourselves the gods and our desire will be to please only ourselves.  We neither think about others nor do we think about God.
+
+In today’s world we may not have barns to store up our goods but we put too much faith in our money and possessions and we believe that if we hoard sufficient wealth and possessions in this world then we are secure so we don't need God or His commandments and we don't even need to go to Church. Thus we will spend our time focusing on the less important things and miss out on what is more important for our eternal life.
+
+God blesses us with abundance, not because He wants us to hoard the excess, but, because He wants us to share the excess with the less fortunate ones.
+Seek first the kingdom of God and its righteousness, and all the rest will be given to you (Matthew 6:33).
+
+True wealth is spiritual wealth or being rich towards God. A man's life does not consist in the abundance of his possessions.
+Let us therefore not waste our time slogging all day long to acquire more than what we need and thus end the day with no time and energy left for God.
+
+Let us not forget to give thanks to God in everything.
+
+Luke 12:31
+*Seek FIRST the kingdom of God and his righteousness, and all these things will be given to you.*
+Jesus is NOT telling us to give up our jobs or leave our homes and families and sit in the Church the whole day.
+Jesus does not say, "seek ONLY the tkingdom of God" but He does tell us to give priority to the kingdom of God.
+This means:
+
+1. we must not miss our daily prayers.
+2. we must not miss Sunday Mass even if we have important earthly activities on our agenda.
+3. we must confess our sins regularly (at least once or twice a year) if we are trying to change our sinful life. In the event of mortal sin we must seek forgiveness for our sins immediately.
+4. whenever we make a decision, we must make sure it is in line with God’s Commandments.
+   These are just some of the ways to give priority to God and seek His righteousness.
+
+Luke 12:33-34
+Anxiety about earthly things should not be the behavior of a Christian.  It is a pagan behavior.  Christians who trust in God will not be worried about earthly possessions.\
+Our treasury of material wealth on earth can be lost if it is stolen or destroyed by insects or worms, but our treasury of spiritual wealth can never be stolen or destroyed because it will be guarded in Heaven by the Lord. The only possible way we can lose our spiritual wealth is if we choose to follow the devil's ways.
+
+Luke 12:48
+*From everyone to whom much has been given, much will be required;*
+In the new Covenant, we have been given the power of the Holy Spirit to help us keep the new law (John 15:12).  Therefore, we have no excuse to bring Heaven on earth by loving, caring for and sharing with the people around us in obedience to the new commandment (John 15:12).
+
+Luke 12:57-59
+Christians must resolve their disputes within the community with peace, love and understanding, because they belong to God’s holy Kingdom and they are supposed to follow the new Covenant law of love.  Christians must therefore not take their disputes outside the community to the pagan courts.
+
+🔥🔥🔥🔥🔥🔥🔥
