@@ -43,6 +43,8 @@
     + [Day 317 Do not be anxious about tomorrow.](#day-317-do-not-be-anxious-about-tomorrow)
     + [DAY 317 By Sheila](#day-317-by-sheila)
     + [BIAY Day 317 By Cynthia Dsilva](#biay-day-317-by-cynthia-dsilva)
+  * [November 13,2024](#november-132024)
+    + [The Narrow Gate, Lost Sheep, and Prodigal Son](#the-narrow-gate-lost-sheep-and-prodigal-son)
 
 <!-- tocstop -->
 
@@ -923,3 +925,9 @@ Luke 12:57-59
 Christians must resolve their disputes within the community with peace, love and understanding, because they belong to God’s holy Kingdom and they are supposed to follow the new Covenant law of love.  Christians must therefore not take their disputes outside the community to the pagan courts.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## November 13,2024
+
+### The Narrow Gate, Lost Sheep, and Prodigal Son
+
+[![The Narrow Gate, Lost Sheep, and Prodigal Son](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day318.jpg)](https://youtu.be/uRbeK7f4QKM "The Narrow Gate, Lost Sheep, and Prodigal Son")
