@@ -56,6 +56,7 @@
   * [November 15,2024](#november-152024)
     + [Peter's Denial Foretold](#peters-denial-foretold)
     + [DAY 320 By Sheila](#day-320-by-sheila)
+    + [BIAY Day 320 By Cynthia Dsilva](#biay-day-320-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -1335,3 +1336,107 @@ Luke 20:27-40   when faced with reality of death, there are those who do not bel
 So they approached Jesus, to mock Him with an absurd case, and mocked the law of marriage as well. Jesus uses their own Scriptures to show them their ignorance and their evil intent, reminding them that GOD is the God of the Living, of their ancestors, of history and of all time.
 Luke 21:5-11.  Jesus speaks of the Treasure Box. He observes, the poor widow dropping in two small coins. He says, it is all that she lives on. He continues, she is a true believer and worshipper of God. Even though she has been beggared by poverty, by the taxes of Rome and by her own religious leaders, she will give to God.
 Jesus points out that He is in collusion with her!  and He wants us to be sure that we do not put others in the position she finds herself in. And yet we are to imitate her in giving all that we have to live on.... Like Jesus who gives even His Life so that we might have life.
+
+### BIAY Day 320 By Cynthia Dsilva
+
+Luke 20:9-19\
+Vineyard, in the Bible, is a metaphor for God’s people (the old Israel as well as the new).
+In the Old Covenant, the “vineyard” was “the Temple” / “the congregation of Israel,” and God was “the Master/Land Owner of the vineyard.”\
+The Temple / the congregation of Israel belonged to God.\
+“The Master’s beloved Son” is Jesus (Mark 1:11; 9:7).
+The “Tenants” were the religious leaders.
+The “servants” were “the prophets” whom God sent, over the centuries, to speak to the Israelites to repent and turn back to God, but the Israelites killed them.\
+Jesus was prophesying the fate of the religious leaders of Israel who refused to accept Him and what they would do to Him.
+
+The duty of the religious leaders was to make their nation holy by doing God’s Will, but most of them were wicked.  They offended God by failing to do His Will and they crucified and killed His Son (Jesus) outside the city gates (Mount Calvary) (v. 8).\
+Therefore, the priesthood of the old Covenant was destroyed in AD 70 along with the Temple building, and in the new Covenant the new priesthood was given to the new tenants (the Apostles/Bishops) (v. 9) whom Jesus ordained in the Upper Room (John 13).
+
+The “Others” are the gentiles whom the Apostles later added to the new priesthood which is now made up of mostly gentiles.  The new priesthood is now universal and must continue till the end of time.
+The new vineyard is now “the Church” (the congregation of Christians), God is still the “Master / Land Owner” of the vineyard and Jesus is still the “Master’s Son.”\
+The Church (the congregation of Christians) belongs to God.
+
+This parable is a summary of the entire history of Israel.
+God chose them, gave them a land and reminded them several times of their obligation to bear fruit. They eventually forgot that they were only the Stewards of the vineyard, not the owners.
+
+God therefore allowed His vineyard to be overrun by foreign invaders, as Isaiah had foretold (Isaiah 5:1-7).
+Jesus continued the story where Isaiah had left off.
+We need to take care that we don’t let ourselves be overgrown with the thorns and briars of worldly anxiety.
+
+Luke 20:27-40
+Resurrected life is not a transfer of earthly life into Heaven.  It is a life of supreme communion with God.\
+Marriage between man and woman is only a sign of the relation between Jesus and His bride (the Church) (Ephesians 5:23).\
+Just as man and woman unite to bring forth new human life, similarly, our marriage with Jesus, when we receive the Body of Christ (Communion), in a state of grace, must cause us to go forth and evangelize the world to bring souls into the Church.
+
+Luke 21:2-4
+Our giving has more value when we share the little we have because it is more difficult to give from our poverty than it is to share from our abundance.
+
+Luke 21:25-28
+This prophecy is associated with Zechariah 14:4 (the day of the Lord) which says that the Messiah would come when the end is near.\
+The purpose of this chapter is to prepare the Church for a period of distress, trials and persecutions before the second coming of Christ. The proper Christian attitude should be not to panic or to be alarmed, but to persevere in faith till the end.
+
+Jesus was speaking of two destructions:  the Temple and the city.
+The Jews believed that the Temple represented a mini universe.  The bronze sea represented the ocean, the outer curtains had stars on them, etc., but the main part of the Temple was the Holy of Holies which was the place where God dwelt.\
+Therefore, the old Jerusalem was not a city.  It was a Temple with a city around it, and it was also a shadow of the new Jerusalem (the Church).
+Similarly, the new Jerusalem is also not a city.  It is the Church (the holy Kingdom of God) with the world around it.  The main part of the Church is the Tabernacle which is the place where God dwells.
+
+Therefore the period of tribulation, destruction and judgement which happened to the old Jerusalem (the Temple) and the city, locally, will happen to the new Jerusalem (the Church) and the world, globally (because the Church has parishes all over the world).
+
+Luke 21:34-38
+Let us not get carried away with feasting and drinking and the anxieties of daily life, or the end will catch us by surprise like a trap.
+
+Luke 22:3-6
+Judas was chosen so that he could forget his past habits and become a faithful disciple of Christ. But somewhere in between Judas lost his focus on discipleship and focused more on the world. By choosing to betray Jesus he was committing a mortal sin and therefore had a tragic end.
+
+We are baptized into Jesus to be His disciples by living holy lives and to evangelize the world by sharing the Word of God.  But, like Judas, when we focus more on the pleasures and comforts of this world and lose our focus on our discipleship then, like Judas, we too are betraying Jesus and our soul may meet with a tragic end.
+
+The chief priests bribed Judas to betray Jesus and Judas accepted the bribe to do the unlawful act of selling Jesus.
+The chief priests represent those Christians who bribe others to get work done illegally, and Judas represents those Christians who accept or ask for bribes to proceed with work against the law.
+
+Whenever we (Christians) get involved with accepting bribes, like Judas, we too are standing on Calvary and selling Jesus to the devil to be scourged and crucified.
+Whenever we (Christians) get involved with giving bribes to do something unlawful, like the chief priests, we are guilty of scourging and crucifying Jesus.
+
+Whether we give bribes or take bribes or whether we are the middle person in a bribe, in all three cases we commit a sin.  If we are guilty of being involved in a bribe in any way, we must return the bribe or give away what we received illegally and confess our sin without delay.
+
+Luke 22:19-20
+The old Covenant was always re-established only after a sacrifice was offered:
+by Noah (Genesis 8:20), by Abraham, by Isaac, by Jacob, by Moses, and by David.
+Similarly, the new Covenant was also established only after Jesus offered the sacramental sacrifice in the Upper Room.
+
+Receiving absolution, after sins are forgiven, is the initial stage of Covenant renewal.
+Covenant renewal is complete only after a sacrifice is offered in atonement for breaking it with our sins.
+
+*While they were eating, Jesus took bread, said the blessing, broke it, and gave it to the disciples.*
+After the ordinary bread is blessed by God it becomes the bread of life. The earthly bread is visible but the heavenly bread (the Body of Christ) is not, just as the human body of Jesus was visible to all but His divine body was not.
+
+*This is my body ...........This is my blood ..........*
+When Jesus said these words, the Word became living flesh, just as it did when Angel Gabriel spoke the Word of God (Luke 1:31) and Mary said “Amen.”\
+The same principle was applied in the Upper Room as it was at the incarnation.
+
+When God speaks, His Word does not return empty.  His words accomplish what is spoken (Isaiah 55:11; Genesis 1:3).
+Therefore, when Jesus said, "this is my body” and “this is my blood" the bread and wine became His mystical Body and Blood.
+
+In the old Covenant, the earthly lamb was a symbol and it died after it was slaughtered, therefore it did not have the power to give the people eternal life when they received it.
+
+In the new Covenant, by His life, death, resurrection and ascension, Jesus put the power of the Holy Spirit in the heavenly Lamb (of God) (Communion) therefore this Lamb can give us eternal life when we receive Him in a state of grace because this Lamb is still living even though He died after He was slaughtered.
+
+*Take this and eat .......*
+God does not need our sacrifice.  Therefore, He blesses it and returns it to us as the fruit of our sacrifice and a reconciliation meal so that we can have communion with Him, if we are in a state of grace.
+
+A sacrifice offered in atonement for sins has to be a real living sacrifice, not a symbol, because our sins are real.  Thereafter, we must take part in the sacrificial meal (Communion) in a state of grace (1 Corinthians 11:27-29), without which the atonement process is incomplete, in other words, without which our broken relation with God cannot be repaired.  By this we become part takers in the divine nature of Christ (2 Peter 1:4), until we commit a mortal sin again.
+
+Jesus made advance atonement for us by offering His physical Body and Blood on the Cross, once for all, so that He could give His priests His sacramental Body and Blood to make regular atonement for the sins of their congregation because without the shedding of (holy) blood there is no remission of sins (Hebrews 9:22).\
+Therefore He consecrated the bread and wine in the Upper Room and commanded His priests to repeat the same action as long as they lived.  Whenever the priests consecrate the bread and wine, Jesus transforms them into His Body and Blood and offers them to God the Father in atonement for the sins of the priest and his congregation.
+
+Although we can do penance, for hurting God with our sins, by making sacrifices in many different ways, the only sacrifice acceptable to God, in atonement for sins, is the sacrificed Body and Blood of His Son.
+The first and bloody day of the old Passover was a shadow of the physical sacrifice of the Lamb of God (Jesus), and the following 7 days of feast of the unleavened bread were shadows of His sacramental sacrifice which Jesus commanded His priests to offer during Mass, the unleavened bread being a shadow of His sinless Body.
+The Apostles continued doing the same as long as they lived (Acts 2:46-47) and it is the obligation of every priest to do the same as long as they live.
+
+Mary (the new Eve) is the Ark of the Covenant and the Blood of the Covenant is the same Blood which Jesus received from His Mother and which He offered to God in atonement for our sins, to reverse the error of the first Eve.
+
+Luke 22:25-26
+*But he said to them, “The kings of the gentiles lord it over them; and those in authority over them are called benefactors.  But not so with you; rather the greatest among you must become like the youngest, and the leader like one who serves.*
+
+In the pagan world the person with authority bosses over the subordinates but in God's kingdom the person with authority must serve the subordinates.\
+An apostle's / bishop's duty is to serve the congregation, specially during the distribution of the sacrificial meal.
+
+🔥🔥🔥🔥🔥🔥🔥
