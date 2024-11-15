@@ -55,6 +55,7 @@
     + [BIAY Day 319 By Cynthia Dsilva](#biay-day-319-by-cynthia-dsilva)
   * [November 15,2024](#november-152024)
     + [Peter's Denial Foretold](#peters-denial-foretold)
+    + [DAY 320 By Sheila](#day-320-by-sheila)
 
 <!-- tocstop -->
 
@@ -1327,3 +1328,10 @@ If God’s people are not spiritually clean before the celebration of the new Pa
 ### Peter's Denial Foretold
 
 [![Peter's Denial Foretold](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day320.jpg)](https://youtu.be/E2aBWeSFZkg "Peter's Denial Foretold")
+
+### DAY 320 By Sheila
+
+Luke 20:27-40   when faced with reality of death, there are those who do not believe in an afterlife, in a judgment and in an reckoning of Justice for all. The Sadducees, a sect in the time of Jesus, were of this confession.
+So they approached Jesus, to mock Him with an absurd case, and mocked the law of marriage as well. Jesus uses their own Scriptures to show them their ignorance and their evil intent, reminding them that GOD is the God of the Living, of their ancestors, of history and of all time.
+Luke 21:5-11.  Jesus speaks of the Treasure Box. He observes, the poor widow dropping in two small coins. He says, it is all that she lives on. He continues, she is a true believer and worshipper of God. Even though she has been beggared by poverty, by the taxes of Rome and by her own religious leaders, she will give to God.
+Jesus points out that He is in collusion with her!  and He wants us to be sure that we do not put others in the position she finds herself in. And yet we are to imitate her in giving all that we have to live on.... Like Jesus who gives even His Life so that we might have life.
