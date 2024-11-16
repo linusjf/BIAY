@@ -61,6 +61,9 @@
   * [November 16,2024](#november-162024)
     + [Jesus' Prayer in the Garden](#jesus-prayer-in-the-garden)
     + [Day 321 Where not our heart burning when He spoke to us](#day-321-where-not-our-heart-burning-when-he-spoke-to-us)
+    + [BIAY Day 321 By Cynthia Dsilva](#biay-day-321-by-cynthia-dsilva)
+  * [November 17,2024](#november-172024)
+    + [The Ascension](#the-ascension)
 
 <!-- tocstop -->
 
@@ -1491,3 +1494,79 @@ And it happened that, while he was with them at table, he took bread, said the b
 In the breaking of the bread, Jesus revealed His true presence and divinity. After they ate this bread their eyes were opened, and they ate the fruit of the new tree of life the cross. Our first parents ate the forbidden fruit and their eyes were closed. We should not be too jealous of Cleopas and his wife as we still have the Eucharist even till this day 2000+ years later. In the Eucharist, the scriptures are read, and they are opened up to us by the priest/deacon. And in the breaking of the bread Jesus’s true presence is felt. “This is my body and this is my blood” When we eat this bread our eyes are opened and we receive life, we receive nourishment, and strength for the journey to heaven.
 
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 321 By Cynthia Dsilva
+
+Luke 22:39-46
+In the 21st century we may try to look at this scene from a medical point of view, trying to figure out the scientific explanation of a human sweating blood. But when a first century Jew heard this account, his thoughts would have gone back to the beginning of creation when man was cursed to earn his living by the sweat of his brow, and the ground was cursed along with the man (Genesis 3:17-19). Therefore, with the drops of the precious Blood of Jesus falling on the cursed ground, Jesus reversed or undid the ancient curse of the fall of man, and the ground was therefore blessed once again.
+
+Jesus allowed Himself to be crushed with pain and sorrow, starting in the Garden of Olives and ending on the new Tree of Life (the Cross) so that His grace could flow through the new Olive oil for spiritual healing and salvation of the whole world.
+
+Luke 22:47-53
+A while ago Jesus was sweating drops of blood but after uniting His Will to God's Will He was calm and totally in control of the situation even though He knew that it was the beginning of His passion.
+
+When we surrender ourselves to God we will not be disturbed by any calamity which the devil will try to create around us, even if we have to die, because God will be with us.
+
+Luke 22:61-62
+Simon Peter's repentance was godly repentance because after he denied Jesus he looked at Jesus and then he cried bitterly (Matt. 26:75).  He was truly sorry for what he had done to Jesus.
+
+Judas's repentance was worldly repentance because after he betrayed Jesus he looked at his coins and hanged himself (Matt. 27:3-5).  He did not look at Jesus.
+
+Luke 23:6-12
+Pilate had more power over the whole of Israel whereas even though Herod's power was limited only to Galilee, Herod didn't have the power to execute a criminal who was guilty of treason.  Herod was probably angry with Pilate because Pilate had earlier killed some Galileans without consulting him (Luke 13:1).  Therefore, to please Herod this time Pilate sent Jesus to Herod to confirm if Jesus was guilty.  Thereafter Pilate and Herod became friends because they had a common enemy (Psalm 2:2).
+
+Luke 23:8-11
+Herod was intrigued when he had earlier heard the preaching of John (the Baptist), and when he heard that Jesus was not only gathering crowds with His preaching but also performing miracles, Herod tried to see Jesus (Luke 9: 7-9) but he could not because his popularity with his people was more important for him than seeing Jesus.
+
+Herod finally got a chance to see Jesus when Jesus came to him (v. 23:8) but Herod was not interested in listening to the Word of God or helping the innocent prisoner.  He was hoping that Jesus would entertain him with some magical signs and eventually sent Jesus away after mocking Him (v. 23:11).\
+What a great opportunity Herod missed. He wanted to see Jesus so the Son of God came to him, as a prisoner, but Herod mocked Him and sent Him away because he had other priorities on his mind.
+
+Let us not follow Herod's path. When Jesus comes to us in the form of a prisoner or even a poor, lame, mute, blind, old or sick person, let us not send Him away with mockery or look at Him as an entertainer. Let us not ignore or push Jesus away by giving importance to our earthly priorities or trying to please humans.
+Let us soften our hearts and please the Lord by helping the less fortunate ones.
+
+Luke 23:39-41
+*One of the rebels who were hanged there kept deriding him and saying, “Are you not the Messiah? Save yourself and us!”*
+Like most of us, the bad rebel was using Jesus as a vending machine, expecting miracles for material gain.
+
+*But the other rebuked him, saying, “Do you not fear God, since you are under the same sentence of condemnation?  And we indeed have been condemned justly, for we are getting what we deserve for our deeds, but this man has done nothing wrong.”*
+This man, although he was a sinner, was more interested in his eternal life.
+He believed that the man hanging on the Cross was Jesus, the King, and an innocent man. This means that at some point in the previous 3 years, before he went astray, he had followed Jesus, even if it was for a short while.
+
+Sometimes we too are like him.  We start following Jesus seriously when we have problems; after our problems are solved we continue for a while, then we start getting bored with Jesus and we turn back to our previous lifestyle and end up in deep trouble that wakes us up from our spiritual slumber.
+
+Luke 24:30-32\
+In the Garden of Eden, when Adam & Eve ate the forbidden fruit, their eyes were opened and they saw their nakedness ("nahash" in Hebrew), because they saw the Word of God through the eyes of Satan ("nahash" in Hebrew).
+
+In Emmaus, when the disciples ate the consecrated bread (the mystical Body of the risen Christ / the Holy Eucharist), their eyes were opened and they saw Jesus through the eyes of faith, even though Jesus had vanished, because they saw the Word of God through the eyes of God (Jesus).
+
+When we see the Word of God through the eyes of God, our eyes will be opened and we will see Jesus in the Bread of life through the eyes of faith, even though we cannot see Jesus with our physical eyes.
+
+We will, however, be able to see the risen Christ in Heaven some day if, during our lifetime, the Word of God abides in us and we receive the Bread of life (the Holy Eucharist) (John 6:54) in a state of grace (1 Corinthians 11:27-29).
+
+Luke 24:27 & 30-32
+Jesus explained to the disciples how to connect the scriptures (Old Testament) with Him; how to look for shadows in the scriptures which point to Him.  Although the Jews were very thorough with the scriptures, it is doubtful that they ever understood the meaning of the scriptures, which is the reason why they were blank until Jesus explained to them how to find the shadows in the scriptures and connect them to the reality in the new Covenant.  The Old Covenant people would never have imagined how God was going to transform the Passover of the Old Covenant, which was not renewable, into the glorious Passover the New Covenant, which is now renewable.
+
+What is remarkable is the effect it had on those disciples.  The reading of the scriptures caused the hearts of the disciples to burn and the breaking of the bread opened their eyes.
+After the resurrection, Jesus celebrated the first Mass with the liturgy of the Word (Luke 24:27) and the liturgy of the Eucharist (Luke 24:30-32).
+This is how Jesus wants us to celebrate the Mass in Church.
+
+On the road to Emmaus, when the disciples heard the Word of God (Scriptures) it caused their hearts to burn, and in the breaking of the bread (Communion) their eyes were opened.
+
+May we too have the same experience during every Mass on the road of our life till we reach our Emmaus (Heaven) to have supreme communion with the Lord.
+
+After the disciples heard the Word of God Jesus did not go to their home un-invited, nor did He ask them if He can stay.  Jesus waited till they invited Him into their home.
+
+Similarly, after we hear the Word of God (Gospel & Readings) Jesus waits for us to invite Him into our hearts.  We must therefore ask Jesus to stay with us so that we can have supper (Communion) with Him.
+
+The liturgy of the Word during Mass must cause our hearts also to burn and the liturgy of the Eucharist must open our eyes because Christianity is a religion of the Word and the Word is Christ present in the scriptures as well as the Eucharist.  We cannot have one without the other.  Both must go together.
+
+Thus, by giving Himself to us through the scriptures and then in the Eucharist, Christ does for us during Mass what He did for those disciples in Emmaus.  And like those disciples, Jesus wants us to recognize Him through the Eucharist and believe Him.\
+But this is not something we can achieve on our own.  We need some help (John 16:12-14), and this help we receive from the Holy Spirit.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## November 17,2024
+
+### The Ascension
+
+[![The Ascension](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day322.jpg)](https://youtu.be/JL09RPtp2k8 "The Ascension")
