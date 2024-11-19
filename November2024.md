@@ -68,6 +68,8 @@
     + [BIAY Day 322 By Cynthia Dsilva](#biay-day-322-by-cynthia-dsilva)
   * [November 18,2024](#november-182024)
     + [Pentecost](#pentecost)
+    + [Day 323 The Baptism in the Spirit](#day-323-the-baptism-in-the-spirit)
+    + [BIAY Day 323 By Cynthia Dsilva](#biay-day-323-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -1648,3 +1650,120 @@ The Christian community regarded its members as sanctified by baptism (Romans 6:
 ### Pentecost
 
 [![Pentecost](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day323.jpg)](https://youtu.be/LtoUrd0t1Rs "Pentecost")
+
+### Day 323 The Baptism in the Spirit
+
+As we read about the coming of the Holy Spirit in an emporing way on Pentecost we cannot help by feel “I want to receive the Holy Spirit like that”. The truth is that we all have been Baptised in the name of the Father, Son and Holy Spirit and we have received a outpouring of the Holy Spirit at Baptism. At Confirmation we also receive the Holy Spirit when the Bishop lays his hands on us and anoints our head with the Chrism oil. So why don’t we have an experience like the experience of the Apostles at Pentecost. The answer is some do and some don’t.
+
+“The Spirit is willing but the flesh is weak” Mt 26:41
+
+Some folks are prepared for confirmation and some are not, some are expecting the received power from on high and some are not. The truth is that we have already received the Holy Spirit at Baptism and at every sacrament however we are not open to the Spirit.
+The Baptism in the Spirit is a spiritual opening of oneself to the working of the Holy Spirit. It involes knowing the love of God, knowing our own weakness and sins, repentance and being prayed over for the Holy Spirit. The process described above is also popularly knows in Catholic Charismatic circles as “Life in the Spirit seminars  - LSS”.
+
+Just like on Pentecost after the apostles where filled with the Holy Spirit, they came out and proclaimed God’s message of salvation. We also need to hear it, repent, concisionly allow the Holy Spirit to lead us.
+This will cause use to be filled with the Holy Spirit and we will inturn proclaim God’s word to the world.
+
+What comes after the Baptism of the Holy Spirit is more important, that is living a active Christian life.
+
+They devoted themselves to the teaching of the apostles and to the communal life, to the breaking of the bread and to the prayers
+
+Awe came upon everyone, and many wonders and signs were done through the apostles.
+
+All who believed were together and had all things in common
+
+Every day they devoted themselves to meeting together in the temple area and to breaking bread in their homes. They ate their meals with exultation and sincerity of heart,
+47praising God and enjoying favor with all the people. And every day the Lord added to their number those who were being saved. Acts 2: 42-47
+
+Thet devoted themselves to the 4 pillars of Christian community life.
+Teaching of the apostles
+Communal life(Fellowship)
+Breaking of the break(Eucharist)
+Prayers
+
+If we ask why our parish is struggling or why our personal spirutal state is bad. We are probably missing some of the pillars of Christian community life. Most people are only trying to survive with one Mass on Sunday, I’m sorry to say this may not take you too far, you cannot say you love someone and not spend time with them.  We need to study the Word and the church teachings, we need to have a place we belong, we need to attend Mass(it’s mentioned daily breaking of the bread) we also need to dedicated our lives to prayer, praying always.
+Praying in the Spirit always.
+
+May the Holy Spirit lead us.
+
+### BIAY Day 323 By Cynthia Dsilva
+
+Acts 2:1-3
+*When the time came for Pentecost, all the believers were gathered together in one place.  Suddenly a noise came from the sky like a strong wind blowing, and it filled the entire house in which they were all sitting.  Then they saw what looked like tongues of fire, which spread out and came to rest on each one of them.*
+
+The Spirit is the life-giving breath of the Father, the Wisdom by which He made all things (Psalm 104:24).\
+In the first creation, the Spirit came as a “mighty wind” sweeping over the face of the earth (Genesis 1:2).\
+In the new creation of Pentecost, the same Spirit again came as “a strong, driving wind” to renew the face of the earth (Psalm 104:30).
+We receive that same Spirit in the sacraments, being made a “new creation” in Baptism (2 Corinthians 5:17) and we drink of the same Spirit during Mass, in the Eucharist (1 Corinthians 12:12-13).
+
+The fire which came down from Heaven and consumed the sacrifices on Solomon’s Altar was the same fire which came down from Heaven and rested on the believers in the Upper Room.  It was the flame of the Holy Spirit.
+
+After the sacrifice, when Isaac returned to his home, his father (Abraham) sent his Helper (Eliezer) to his home town with several gifts, to find a bride for his son. When Isaac saw her (Rebecca) he loved her and took her into his mother's tent (Genesis 24:1-67).
+
+This was a fore shadow of the New Covenant.
+
+After the sacrifice, when Jesus returned to his home (Heaven), God the Father sent his Helper (the Holy spirit) to his home town (Jerusalem) on Pentecost Sunday, with several gifts (love, peace, joy, kindness, etc.) to find a bride (the Church) for his Son, and the Mother of Jesus was there.  Jesus loves his bride (the Church) very much.
+
+The descent of the Holy Spirit on Mary conceived the physical Body of Christ (Luke 1:35).
+The descent of the Holy Spirit on the believers, on Pentecost Sunday, conceived the mystical Body of Christ (the Church).  It is no wonder that the mother of Jesus was also among the people in the Upper Room.
+
+Likewise, every time a person is baptized, the Holy Spirit forms mini Christs through Mary.  These mini Christs together become part of the Body of Christ but they are not yet fully formed “in Christ.”  After baptism we still have to grow *in Christ*.
+
+The Holy Spirit is given to us to empower us to go out and make disciples of all nations (Matthew 28:19-20).
+The Sacrament of Confirmation perpetuates the grace of Pentecost.
+
+Pentecost was the reversal of what happened at Babel.
+At Babel, the people spoke 70 different languages and were scattered into 70 nations over all the earth (Genesis 11:1-9).
+
+At Jerusalem, on Pentecost Sunday, the people spoke different languages but they were united in Christ.  Israel's mission was to minister to all the 70 nations.
+On Pentecost Sunday love united what discord had scattered.
+
+Pentecost Sunday was also the reversal of Mount Sinai.
+At Mount Sinai 3000 idolaters were killed (Exodus 32:27-28).
+At Pentecost 3000 were baptized and thus received new life (Acts 2:41).
+
+Pentecost Sunday was the fulfillment of Mount Sinai.
+In the old Covenant, at Mount Sinai, the Spirit of God descended on the mountain with peals of thunder and in the form of fire (Exodus 19:18) and God’s people (the Israelites) received the first Law on tablets of stone.
+
+In the new Covenant, on Pentecost Sunday, the Spirit of God descended on the people on the mountain with loud noise and in tongues of fire to make known His presence in a visible, powerful and supernatural way and God’s people (the believers) received the new Law (the Gospel of love) written on their hearts through the power of the Holy Spirit received through the sacrament (2 Corinthians 3:2–8; Romans 8:2), on the 50th day after the new Passover (Easter Sunday).
+
+Acts 2:42
+*They devoted themselves to the apostles’ teaching and fellowship, to the breaking of bread.*
+
+The believers devoted themselves to the breaking of bread because they understood and believed that during the liturgical service (the Mass) Jesus transforms the bread and wine into His mystical Body and Blood (Luke 24:30-31).
+
+They also understood and believed that, from Pentecost Sunday onwards, the Body and Blood of the Lamb of God had to be offered during the liturgical services instead of the body and blood of the earthly lambs.
+
+“Pentecosta” in Greek means “fiftieth”.\
+In the Old Covenant, the *Festival of Weeks* or *Pentecosta* was celebrated with joy on the 50th day from the day of the *feast of the first fruits* of the wheat/barley harvest (Leviticus 23:15-16).
+
+In the New Covenant, Pentecost was the fulfillment of the Festival of Weeks and is celebrated on the 50th day after Easter Sunday (or Resurrection Day), Jesus being the first fruit of the new harvest.
+
+The “Festival of Weeks” of the old Covenant was a mandatory festival and all Jews had to celebrate the festival by attending the liturgical service only in the Jerusalem Temple to celebrate their birth as God’s chosen people in the Covenant Law given to Moses at Sinai.  It was thus designed by God to prepare the situation for Pentecost of the new Covenant, so that, fourteen hundred years later, Jews from all over the world, speaking different languages, would be gathered in Jerusalem on the day of Pentecost to receive the Holy Spirit through Baptism.  The newly baptized Jewish Christians would now need a Church to worship God in their respective foreign countries of residence, so the Apostles were compelled to spread out all over the world, anointing men for the priesthood to serve God’s people.  And thus the Gospel spread to the whole world through the Jewish Christians (the Apostles), just as God had desired (Exodus 19:6).
+
+Acts 2:15-36\
+By his first sermon on Pentecost Sunday, Peter opened the door of the kingdom of Heaven for the first time with the spiritual keys given to him by Jesus (Matthew 16:19) and started God's new family in Heaven by baptizing 3,000 people on the first day (Acts 2:41).
+
+Romans 2:5-8
+When we are baptized into Christ, we must continue to do good works in Christ so that Jesus can carry out His Kingdom work through us and so that His light may shine though us (Matthew 5:16).\
+If we say we have faith in Jesus then we must prove it with our “good works.”
+
+The purpose of doing good works is not to earn merits. Good works play an important role in the salvation of the world. We must do good works so that on seeing our good works the non-Christians may glorify God and be drawn towards Christ so that Jesus can bring them into His Kingdom / His Body (the Church).  Good works are the visible means of bringing people into God's Kingdom.  We must therefore continue doing good works for Christ even in the midst of crisis or problems in our lives, trusting that God will take care of our souls in the event of sudden death.
+
+We will therefore be judged according to our faith and works (Galatians 6:7-9; Matthew 5:36-37; Matthew 25:34-46; (James 2:24); etc.).  If there are no good works to be found in us, then we will have deprived many souls of salvation.
+
+Romans 2:15
+*They show that what the law requires is written on their hearts, to which their own conscience also bears witness; and their conflicting thoughts will accuse or perhaps excuse them.*\
+Paul was speaking of the (Moral) Law of Christ: “Love your neighbor as yourself” (Galatians 5:14).
+We are reminded of our guilt when our thoughts accuse us, thus enabling us to repent, but when we force our thoughts to excuse us then there is no feeling of guilt and we ultimately end up with a large pile of mortal sins.
+
+Romans 3:28
+*For we hold that a person is justified by faith apart from works prescribed by the law.*
+The works prescribed by the Mosaic law were not effective enough to purify a person's soul.  The Mosaic law was meant to civilize a world of uncivilized people till they were sober enough to be able to receive the Body of Christ in a state of grace (1 Corinthians 11:27).
+
+Romans 3:31
+*Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law.*
+The Mosaic law was not meant to be discarded.  It was meant to be upgraded and fulfilled by Jesus (Matthew 5:17).
+Through the Sermon on the mount and the parables and by the way He lived His life, Jesus upgraded the Moral law (eg. Eye for an eye = give the other cheek).
+By His passion, death, resurrection and Ascension, Jesus fulfilled the Religious law.
+
+🔥🔥🔥🔥🔥🔥🔥
