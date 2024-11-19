@@ -70,6 +70,9 @@
     + [Pentecost](#pentecost)
     + [Day 323 The Baptism in the Spirit](#day-323-the-baptism-in-the-spirit)
     + [BIAY Day 323 By Cynthia Dsilva](#biay-day-323-by-cynthia-dsilva)
+  * [November 19,2024](#november-192024)
+    + [The Name of Jesus](#the-name-of-jesus)
+    + [Day 324 Saved by grace](#day-324-saved-by-grace)
 
 <!-- tocstop -->
 
@@ -1767,3 +1770,35 @@ Through the Sermon on the mount and the parables and by the way He lived His lif
 By His passion, death, resurrection and Ascension, Jesus fulfilled the Religious law.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## November 19,2024
+
+### The Name of Jesus
+
+[![The Name of Jesus](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day324.jpg)](https://youtu.be/gzwyX18njaA "The Name of Jesus")
+
+### Day 324 Saved by grace
+
+One of the big debates that Catholics and some protestants have is Are you saved by faith alone? The Catholic church does not believe we are saved by faith alone, although faith is necessary to be saved. Saved by Faith “alone” is not found in the Bible.
+We see Paul explaining how Abraham was not saved by circumcision but by his faith, he was justified, and he was not justified by the works he did. So let’s get it clear we cannot be saved by faith alone or by works alone. We are saved by grace, the grace that comes from the life death, and resurrection of Jesus Christ.
+We do need faith to believe that we are saved, we also need to have works to prove that we truly have faith, for actions are a result of what we believe. But it’s not our effort not our faith alone or our works alone that justify us, it’s the blood of Christ that justifies us.
+
+Therefore, since we have been justified by faith, we have peace\* with God through our Lord Jesus Christ,
+through whom we have gained access \[by faith\] to this grace in which we stand, and we boast in hope of the glory of God. Romans 5:1,2
+
+We gain access to grace through faith, so faith is needed but is not the end, its not faith alone. It’s like flying a kite, we use some effort to get but we cannot sustain it forever, we need the wind(grace) to come and fly it. Like this example we need to believe and have faith but faith alone gets us into grace by which we are saved.
+We should count our afflictions and trials as a blessing as, it produces endurance, endurance produces character, proven character produces hope and hope does not disappoint us, because the love of God has been poured into our hearts through the Holy Spirit. So sufferings produces love and God is love.
+
+Not only that, but we even boast of our afflictions, knowing that affliction produces endurance,
+4and endurance, proven character, and proven character, hope
+5and hope does not disappoint, because the love of God has been poured out into our hearts through the holy Spirit that has been given to us. Romans 5: 4-5
+
+We can be assured of God’s love for us and his saving mercy because he died for us while we were still sinners. We still have a choice to just leave Christ and ignore the price He paid for us on the cross. But he still loves us.
+But God proves his love for us in that while we were still sinners Christ died for us.
+
+9How much more then, since we are now justified by his blood, will we be saved through him from the wrath.
+10Indeed, if, while we were enemies, we were reconciled to God through the death of his Son, how much more, once reconciled, will we be saved by his life. Rom 5: 8-10
+
+We can rest assured of heaven if we have faith, and our faith produces works, but both our faith and works are not enough we need to be saved and Jesus saved us, while we were still sinners He died for us. We are washed by his blood and are redeemed, when we were sinners Jesus died for us how much more now that we are reconciled and are friends of God, we are trying to live a good Christian life, I’m sure we will be saved by God, by his grace and mercy.
+
+May the Holy Spirit lead us 🙏
