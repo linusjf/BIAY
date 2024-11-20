@@ -73,6 +73,7 @@
   * [November 19,2024](#november-192024)
     + [The Name of Jesus](#the-name-of-jesus)
     + [Day 324 Saved by grace](#day-324-saved-by-grace)
+    + [BIAY Day 324 By Cynthia Dsilva](#biay-day-324-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -1802,3 +1803,50 @@ But God proves his love for us in that while we were still sinners Christ died f
 We can rest assured of heaven if we have faith, and our faith produces works, but both our faith and works are not enough we need to be saved and Jesus saved us, while we were still sinners He died for us. We are washed by his blood and are redeemed, when we were sinners Jesus died for us how much more now that we are reconciled and are friends of God, we are trying to live a good Christian life, I’m sure we will be saved by God, by his grace and mercy.
 
 May the Holy Spirit lead us 🙏
+
+### BIAY Day 324 By Cynthia Dsilva
+
+Romans 4:16
+Paul referred to Abraham as "our father in faith," not because Abraham started out with deep faith at his first encounter with God, but because over the passage of time (25 years) Abraham’s faith in God became strong by journeying with God.
+Abraham is the first person in the Bible to be described as a prophet (Genesis 20:7) and this is a reminder for us that God’s prophets and leaders are often far from perfect.   While the Lord delights in using imperfect instruments like us, He’s never content to stop at our brokenness.  He always has bigger plans for us than we have for ourselves; and He longs to bring us on a journey of ever-deepening trust, just as He did thousands of years ago with Abraham, our father in faith.
+
+Romans 5:12
+*Sin came into the world through one man.*
+
+Adam was the head of the family and a type/symbol of Christ and Eve was a type/symbol of the Church.\
+Adam was supposed to protect his bride from evil just as Jesus saves His bride (the Church / the Christians) from evil (Ephesians 5:23-27).  Adam had the ultimate authority and therefore, like Jesus (Luke 4:3-12), he should have made the decision to reject Satan’s offer.  His decision was the final and definitive decision, not only for his family, but, for the entire human family. It was a lofty position given to him by God.  That is why they knew they were naked only after Adam ate the fruit (Genesis 3:7).
+
+When the Adam (man) of the family does not obey God’s commandments, does not gather his family for daily prayers, does not help his family to stay out of mortal sin, does not ensure that his family attends Mass every Sunday, and supports his bride’s evil deeds instead of correcting her, then he is inviting the devil into his domestic Eden (home).  Like the first Eve, his bride too will eventually fall into temptation (gossiping, quarrelling, disrespecting others, etc.)  and gradually the entire family will start walking on the wrong path.
+
+Romans 5:13
+*….. for up to the time of the law, sin was in the world, though sin is not accounted when there is no law.*
+
+Before the Law was given, through Moses, sin did exist in the world but the wicked ones could not be held guilty because God had not yet given His law to the people.  Therefore, people followed the natural law and did what they felt was right.
+
+Before the incarnation of Jesus the power of evil was greater than the power of good because Adam and Eve have given damaged souls (without divine life) to all humanity, and therefore majority of the old Covenant people followed the natural law because they found it difficult to lead good lives in the midst of evil.
+But from the time of the incarnation, when God touched the earth (the womb of Mary), the world has been divinized and we are able to be peaceful.  When we are baptized we receive the grace and peace of Christ which helps the people of goodwill to move towards God.
+
+Romans 5:15-16
+*And the free gift is not like the result of the one person’s sin. For after one sin there was the judgment that brought condemnation; but the gift, after many sins, brought acquittal.*
+The sin of one man (Adam) destroyed his divine life and thereby damaged his soul and brought physical and eternal death (Hell).  The consequence of Adam’s sin spread to all humanity like a contagious disease.  Therefore, except Jesus and His mother, all humans are born with damaged souls (without divine life), by default, and are therefore subject to physical and eternal death.\
+But the gift of eternal life which we receive through the redemption of one man (Jesus) does not spread to humanity as Adam’s sin did.
+
+We can receive eternal life if we have divine life within us (John 6:54) which is possible only after we enter the Church with faith in Christ, followed by baptism.  Thereafter we must receive the Sacraments of Reconciliation & Eucharist regularly, with faith, follow all the teachings of Christ and obey all God’s commandments as well as the Law of the Church.
+
+Romans 5:20
+*Where sin abounded, grace abounded all the more.*
+We tortured the divine Son of God and killed Him because of our sinful nature but Jesus offered the same tortured flesh and dripping Blood to God to save us because He loved us.
+On Good Friday, Jesus transformed the greatest evil in human history into the greatest good for all humanity.
+
+God permits evil in order to draw forth some greater good.
+
+The Mosaic law did not have the power to change hearts.  Our hearts can be changed towards God only through the power of the Holy Spirit.  The Mosaic Law was powerful enough to teach but it wasn't powerful enough to save.
+
+Sin comes to us naturally; we struggle to maintain holiness.
+
+The old law could not give the people the power to keep the law.  It could only point out sin. Thus, it increased sin because it made clear what constituted sin.  But, through the sacraments, Jesus gives us the grace to maintain holiness and to be able to live the new law.
+
+There is nothing to prevent human nature being raised up to something greater, even after sin.
+Whenever we encounter evil, God will give us the grace to overcome it, if we live in obedience to God's commandments and remain in a state of grace at all times.
+
+🔥🔥🔥🔥🔥🔥🔥
