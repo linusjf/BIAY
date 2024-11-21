@@ -77,6 +77,9 @@
   * [November 20,2024](#november-202024)
     + [Boldness in Faith](#boldness-in-faith)
     + [Day 325 Boldness to proclaim](#day-325-boldness-to-proclaim)
+  * [November 21,2024](#november-212024)
+    + [Life in the Spirit](#life-in-the-spirit)
+    + [Day 326 Life in the Spirit](#day-326-life-in-the-spirit)
 
 <!-- tocstop -->
 
@@ -1898,4 +1901,41 @@ What I do, I do not understand. For I do not do what I want, but I do what I hat
 
 We will struggle with sin and wrestle the old man in our all our lives, even until the last moments. We are called to fight the good fight and run the race till the end. We should strive to live by the Spirit and rest assured that after we have done everything and failed, Jesus will save us by His grace and Mercy. Thanks be to God for Jesus Christ who saves us.
 
+May the Holy Spirit lead us 🙏
+
+## November 21,2024
+
+### Life in the Spirit
+
+[![Life in the Spirit](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day326.jpg)](https://youtu.be/t-2wtHngQwc "Life in the Spirit")
+
+### Day 326 Life in the Spirit
+
+One common question that we come across is “How to pray?”, many people struggle with prayer and do not know how to pray. I cannot agree more with St Paul “for we do not know how to pray as we ought” -Rom 8:26 We more often than not need help with our prayer life, we are not sure how to pray when to pray and for what to pray?
+The Holy Spirit comes to our help, teaching us to pray according to the will of the Father.
+“In the same way, the Spirit too comes to the aid of our weakness; for we do not know how to pray as we ought, but the Spirit itself intercedes with inexpressible groanings.
+27And the one who searches hearts knows what is the intention of the Spirit, because it intercedes for the holy ones according to God’s will. ” Rom 8:26
+
+The Holy Spirit comes to our aid and helps us pray according to the will of God. We verbally pray for God’s will when we pray the Our Father - Thy will be done thy kingdom come. However, there are many situations and decisions that we need to take in life, praying in the Spirit will help us pray according to God’s will. Praying in the Spirit can include praying in the gift of tongues, like the disciples after Pentecost and every generation till today.
+We are children of God because the Spirt of God dwells within us.
+But you are not in the flesh; on the contrary, you are in the spirit, if only the Spirit of God dwells in you. Rom 8:9
+
+We also have resurrection and eternal life because of the Holy Spirit’s dwelling in us.
+If the Spirit of the one who raised Jesus from the dead dwells in you, the one who raised Christ from the dead will give life to your mortal bodies also, through his Spirit that dwells in you.
+The Spirit makes us Children of God, we are made heirs to the kingdom because the Holy Spirit joins with our human spirit to divinize us, so that we are able to become Children of God.
+“ For those who are led by the Spirit of God are children of God.
+15For you did not receive a spirit of slavery to fall back into fear, but you received a spirit of adoption, through which we cry, “Abba, Father!”
+16The Spirit itself bears witness with our spirit that we are children of God,
+17and if children, then heirs, heirs of God and joint heirs with Christ, if only we suffer with him so that we may also be glorified with him. “ Rom 8:14-17
+
+It is such a privilege to be filled with the Spirit, led by the Spirit, pray in the Spirit and become Children of God. And this beautiful relationship cannot be take away from us, for nothing can separate us from the love of God. That everything we face in life is for our own good, that God can make beautiful anything even our biggest mistakes.
+
+We know that all things work for good for those who love God, who are called according to his purpose.Rom 8:28
+What will separate us from the love of Christ? Will anguish, or distress, or persecution, or famine, or nakedness, or peril, or the sword?
+36As it is written:
+“For your sake we are being slain all the day;
+we are looked upon as sheep to be slaughtered.”
+37No, in all these things we conquer overwhelmingly through him who loved us. Rom 8:35-37
+
+And in all things we will be more than conquer, victorious in Jesus' name.
 May the Holy Spirit lead us 🙏
