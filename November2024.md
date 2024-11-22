@@ -80,6 +80,10 @@
   * [November 21,2024](#november-212024)
     + [Life in the Spirit](#life-in-the-spirit)
     + [Day 326 Life in the Spirit](#day-326-life-in-the-spirit)
+    + [BIAY Day 326 By Cynthia Dsilva](#biay-day-326-by-cynthia-dsilva)
+  * [November 22,2024](#november-222024)
+    + [Origin of the Diaconate](#origin-of-the-diaconate)
+    + [Day 327 The role of a Deacon in the Catholic Church.](#day-327-the-role-of-a-deacon-in-the-catholic-church)
 
 <!-- tocstop -->
 
@@ -1939,3 +1943,171 @@ we are looked upon as sheep to be slaughtered.”
 
 And in all things we will be more than conquer, victorious in Jesus' name.
 May the Holy Spirit lead us 🙏
+
+### BIAY Day 326 By Cynthia Dsilva
+
+Acts 5:3 & 9
+In lying to Peter, the Pope, Ananias and Sapphira were lying to the Holy Spirit.\
+It is the same with any Pope because the Holy Spirit guides the Church through the Pope.
+
+The Holy Spirit speaks through all Christians because each receives the anointing of the Holy Spirit through the Sacraments of initiation (Baptism, Communion, Confirmation).
+
+However, sometimes many Christians think that the Holy Spirit is speaking through them when He is not.  That is one reason among others why Jesus gave us the Pope and the bishops in union with Him. We can receive clarity from them as to “what the Spirit is saying to the Church” (Revelation 2:7, 11, 17, 29 and 3:6, 13, 22).
+
+Acts 5:12–16
+The creative breath of Jesus united the Apostles (His Church) to His Body, and empowered them to breathe His life into a dying world, to make it a new creation.  The Apostles were therefore fulfilling this mission with powers which only God possesses, the power to forgive sins (John 20:23) and to work “signs and wonders,” which were the mighty works of God (Exodus 7:3; 11:10).  The Apostles were given His life, which continues in the Church’s Word and Sacraments, so that we,  who have not seen, might inherit His blessings and “have life in His name.”
+
+Acts 5:38-39
+*If this plan or this undertaking is of human origin, it will fail; but if it is of God, you will not be able to overthrow them and in that case you may even be found fighting against God!”*
+
+When we see someone sharing the Word of God it is not correct for us to silence them. Jesus knows how to take care of His bride and the Holy Spirit blows where He wills, in His own way, to bring people into the Body of Christ (the Church).
+
+On the other hand, as the audience, each one of us has a choice. If we choose to accept the preaching we can stay and if we choose to reject the preaching we can always leave.
+
+Acts 5:41
+*So the apostles left the presence of the Sanhedrin, rejoicing that they had been found worthy to suffer dishonor for the sake of the name (of Jesus).*
+
+The Apostles were happy that they were fulfilling the beatitudes (Mathew 5:10-12).\
+It is only when we rejoice in our suffering that we are able to unleash the power of the Holy Spirit.
+Their joy was based on their faith that God would change their “mourning into dancing” (Psalm 30:11).
+
+Romans 8:1-4
+*There is therefore now no condemnation for those who are in Christ Jesus.  For the law of the Spirit of life in Christ Jesus has set you free from the law of sin and of death.*
+
+By His death on the Cross, Jesus destroyed the first Adam and by His resurrection He gave us the new Religious and Moral Law (John 15:12; Galatians 5:14).  So if we follow the Law and remain in a state of grace at all times then we cannot be condemned, because the power of the sacraments makes it possible for us to live out the Law of Christ even in a negative world.
+
+*For God has done what the law, weakened by the flesh, could not do: by sending his own Son in the likeness of sinful flesh, and to deal with sin, he condemned sin in the flesh, so that the just requirement of the law might be fulfilled in us, who walk not according to the flesh but according to the Spirit.*
+
+Jesus suffered and died in obedience to God the Father as an example for us to suffer to the point of death in obedience to God. This was not possible for the old Covenant people because they did not have the power of the risen Christ within them.
+
+In the new Covenant we are able to suffer to the point of death in obedience to God because when we receive the Body of Christ (Communion) in a state of grace, during Mass, Christ dwells within us and suffers with us, until we sin again.
+
+By our baptism we have died with Christ and we have been buried with Christ, which means that we have destroyed the desires of our flesh.  Therefore our intention now must be to live only for the desires of our spirit, which is to seek eternal life while we live on earth by living in total obedience to God.
+
+Romans 8:12-17
+The Holy Spirit bears witness for us.
+According to the law of Moses, if the people had two or three witnesses for violation of the law, they had a case.
+The Holy Spirit is poured into us so that Jesus can reproduce in us His divine life, not human life, and also so that Jesus can also reproduce in us His eternal love, not human love, so that our suffering and our dying can be transformed into our participation in the redemptive suffering and death of Christ.
+
+*So then, brothers and sisters, we are debtors, not to the flesh, to live according to the flesh, for if you live according to the flesh, you will die; but if by the Spirit you put to death the deeds of the body, you will live.  For all who are led by the Spirit of God are children of God.*
+
+We do not have the power to do what Christ did but when the risen Christ dwells within us, through the reception of the sacraments, He does the needful through us.
+
+Therefore, Paul tells us that we must focus on our spiritual life and not on the desires of our flesh (material life), so that Christ can save people through us.
+We must remain in a state of grace at all times so that the Spirit of God can lead us.
+
+*We are God's children by adoption, therefore heirs of God and joint heirs with Christ.*
+
+An adopted child has a legal right to share in the inheritance of the father just as a natural child has, but the DNA of an adopted child can never be the same as the DNA of the father's natural child by blood.
+
+Similarly, we are God's children by adoption through our Baptism. Therefore we can share in the inheritance of God the Father but our DNA can never be the same as that of Jesus, which means that, Jesus is God and always will be, but we don't become God when we go to Heaven.  By our adoption, Jesus is, and will always be, our older brother and therefore joint heirs with Him.
+
+Romans 8:19-23\
+*For creation waits with eager longing for the revealing of the children of God;  for creation was subjected to futility, not of its own will but by the will of the one who subjected it, in hope  that the creation itself will be set free from its bondage to decay and will obtain the freedom of the glory of the children of God.  We know that the whole creation has been groaning in labor pains until now;*
+
+Creation suffered death and decay because of man's original sin. Therefore, creation awaits restoration through the baptism of man.\
+But, unfortunately, the piling of unforgiven sins of Christians have made the suffering of creation even worse than before and that is why the earth suffers natural disasters more often now than before (hurricanes, tornadoes, floods, storms, cyclones, landslides, earthquakes, etc.).
+
+*And not only the creation, but we ourselves, who have the first fruits of the Spirit, groan inwardly while we wait for adoption, the redemption of our bodies.*
+
+Although we are baptized, like creation, we too groan because of the many problems we face in our daily lives due to our sinful and weak nature.  We will be relieved of our earthly pains only after we reach Heaven.
+
+In baptism we are buried with Christ "body and soul" but only the soul is cleansed of the stain of original sin; the body is not redeemed. The purification of our souls, however, depends on the regular reception of the sacraments through our bodies.
+
+Our body goes through the tests in life; our soul reaps the results.
+Our earthly bodies will be left behind on earth and those who go to Heaven will receive new glorified bodies at the end of time.
+
+Romans 8:26\
+*The Spirit helps us in our weakness; for we do not know how to pray as we ought, but that very Spirit intercedes with sighs too deep for words.*
+
+Praying and worshipping God must be done in supreme communion with God which is not possible for us due to the weak and damaged nature of our souls as a result of Original Sin.  The devil therefore constantly distracts us in many ways during prayer and worship.
+Due to our sinful nature, when we pray we mostly ask for the wrong things.
+
+Because of our wayward state, we are in constant need of the Holy Spirit's assistance in order to merit anything at all in the order of eternity. He has the power to restore us to the right relationship with God as well as to keep us in the right relationship with God.  Venial sins and the various disorders of the soul, which we all suffer from, make this essential.
+
+Romans 8:28–30
+*All things work together for good for those who love God, who are called according to his purpose.  For those whom he foreknew he also predestined to be conformed to the image of his Son, in order that he might be the firstborn within a large family.  And those whom he predestined he also called; and those whom he called he also justified; and those whom he justified he also glorified.*
+
+Salvation is a process from our calling to our glorification and the more we are sanctified the closer we get to our salvation (Romans 13:11).
+
+We are called to love God, to delight in His law, and to forsake every false way.  We are to conform ourselves daily ever more closely to the image of His Son.
+If we do this, we can approach His altar as a pleasing sacrifice, confident that all things work for the good, that we whom He has justified will also be glorified.
+
+All our tribulations will turn out to be mighty blessings if we truly love God by loving our neighbour, and remain focused on God and not on our problems and earthly life.
+
+*What is "divine foreknowledge"* (v. 29)?
+
+To know in advance.  This is a power which only God possesses (Psalm 139:1-4).  God is in complete control of everything and no one can prevent God from accomplishing His goal (Job 42:1-2).
+
+*What is "Predestination"?*
+
+God has already planned in advance how He is going to handle the salvation of the world inspite of our million sins to destroy God's plan, either directly or indirectly.  God's plan for salvation includes the glorification of the Saints to conform to His Son's divine nature (2 Peter 1:4), in other words, those who will be glorified will become mini Christs, therefore we must live like a mini Christ on earth (Galatians 2:20).
+
+To save the world God wants every human to be baptized and to obey the teachings of Christ but if we choose to walk out of God’s plan then God will not force us.
+
+Predestination does include free will to obey God but if we choose otherwise then God does not force us to obey Him (Sirach 15:14-17).  If we disobey Him, He already has a solution planned in advance to reach His goal.
+Thus, those who love and obey God are predestined to be glorified according to God's plan (v. 28); those who refuse to obey Him are not included in His plan for salvation.
+
+Are we interested in being part of God's plan for salvation or do we prefer to follow our own agendas?
+
+Romans 8:31
+*If God is for us, who can be against us?*
+
+When God delivered the Israelites from slavery and idolatry, neither was it the end of their problems, nor was it the beginning of lifelong celebrations.  The Israelites still had to obey God's commandments after their liberation.
+
+God will be for us, not because we are baptized but, only if we obey Him 100%, that is, if everything we do and say is according to His Will.
+
+Romans 8:35-38
+*Who can separate us from the love of Christ? Not hardship, or distress, or persecution, or famine, or nakedness, or peril, or sword. For it is written, “For your sake we are being killed all day long; we are accounted as sheep to be slaughtered.”*
+
+Suffering does not separate us from Christ. Suffering unites us to Christ. Suffering can separate us from Christ only when we refuse to go through the suffering and we look for solutions to get rid of the suffering.
+
+From the day we are baptized we must be willing to give up our entire life to Christ in everything we do and say, even if we have to go through suffering.  We must suffer willingly so that Christ can suffer through us to save others, and thus use us for the growth of His Kingdom on earth.
+
+Jesus can use anyone who is willing to suffer, at any time, but even if we suffer willingly, our own sins can separate us from Christ.
+
+Therefore, it is necessary that we must be in a state of grace at all times while we also accept our sufferings.
+
+*Neither death nor life… shall be able to separate us from the love of Christ.*
+
+All Christians belong to the family of God through Baptism.
+Our union with Christ and with the other members of the Body of Christ, does not cease at death.  Thus, we who are alive on earth can still benefit from the other members of the Body of Christ in Heaven (the saints), by asking them to pray for us, because they are still connected to us in Christ.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## November 22,2024
+
+### Origin of the Diaconate
+
+[![Origin of the Diaconate](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day327.jpg)](https://youtu.be/sf0Mmd5lXCc "Origin of the Diaconate")
+
+### Day 327 The role of a Deacon in the Catholic Church.
+
+There are two types of deacons in the Catholic church, transitional deacons and permanent deacons. During the formation of priests, one of the important parts is being a transitional deacon where they spend time at a parish to have first-hand experience of ministry.
+The second time type of deacons are permanent deacons, they can be either single or married men who feel the call to serve the church.
+
+At the liturgy, deacons assists the bishop and priests. At the Mass, the deacon proclaims the Gospel, may be invited to preach the homily, and assists at the altar. The deacon may also baptize, witness and bless marriages, preside at the Liturgy of the Hours, and preside at funeral liturgies among many other duties.
+The diaconate is not a new ministry but instituted in the early church. We read in the Acts of the Apostles.
+
+At that time, as the number of disciples continued to grow, the Hellenists complained against the Hebrews because their widows were being neglected in the daily distribution.
+So the Twelve called together the community of the disciples and said, “It is not right for us to neglect the word of God to serve at table.
+Brothers, select from among you seven reputable men, filled with the Spirit and wisdom, whom we shall appoint to this task,
+whereas we shall devote ourselves to prayer and to the ministry of the word.”
+
+The proposal was acceptable to the whole community, so they chose Stephen, a man filled with faith and the Holy Spirit, also Philip, Prochorus, Nicanor, Timon, Parmenas, and Nicholas of Antioch, a convert to Judaism.
+Even though the role of the deacons was the serve at tables, Stephen was an exceptional follower of Christ the Bible calls him a man filled with faith and the Holy Spirit.
+
+The diaconate was not any volunteer/temporary service but a full time /permanent role that is why we see them having an anointing.
+
+They presented these men to the apostles who prayed and laid hands on them. Acts 6:6
+The deacons are not just called to do ordinary ministry but can be led by the Spirit to do great service to the church. Stephen was such a good example of going above and beyond one’s normal duties. We cannot contain the Spirit of God, or put the power of God in a box. The Lord chooses different people to do different works.
+Now Stephen, filled with grace and power, was working great wonders and signs among the people. Acts 6:8
+
+Certain members of the Synagogue come to debate with him and could not withstand the wisdom and the spirit with which he spoke, so they falsely accused before the Sanhedrin, his face was like the face of an angel and when he began to speak such wisdom poured out he was able to put together the salvation history of Israel and spoke with such convictions that they got more and more angry, their hearts were hardened to the Word of God. They decided to stone him to death, but Stephen was so filled with the Spirit that he was able to forgive them even of this sin that cost him his life. He prayed prayers like the ones Jesus’ prayed on the cross.
+“Lord Jesus, receive my spirit.”
+
+60 Then he fell to his knees and cried out in a loud voice, “Lord, do not hold this sin against them”; and when he said this, he fell asleep. Acts 7:59,60
+
+Thus the first Christina martyr was a deacon, Deacon Stephen. Let us pray for all our dear Deacons in the Church that they be filled with similar grace and zeal for the Kingdom.
+
+May the Holy Spirit lead us. 🙏
