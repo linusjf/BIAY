@@ -89,6 +89,8 @@
     + [Stephen is Martyred](#stephen-is-martyred)
     + [Day 328 Do not conform yourselves to this age](#day-328-do-not-conform-yourselves-to-this-age)
     + [BIAY Day 328 By Cynthia Dsilva](#biay-day-328-by-cynthia-dsilva)
+  * [November 24,2024](#november-242024)
+    + [The Ethiopian Eunuch](#the-ethiopian-eunuch)
 
 <!-- tocstop -->
 
@@ -2283,3 +2285,9 @@ When someone attacks us, if we pray only for the safety of our families includin
 Whereas, if we pray for the conversion of our offenders and they change themselves, then the source of the chaos will be tackled and healed and there will be peace around us.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## November 24,2024
+
+### The Ethiopian Eunuch
+
+[![The Ethiopian Eunuch](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day329.jpg)](https://youtu.be/WXyd7zJYWWo "The Ethiopian Eunuch")
