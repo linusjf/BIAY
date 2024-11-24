@@ -2291,3 +2291,14 @@ Whereas, if we pray for the conversion of our offenders and they change themselv
 ### The Ethiopian Eunuch
 
 [![The Ethiopian Eunuch](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day329.jpg)](https://youtu.be/WXyd7zJYWWo "The Ethiopian Eunuch")
+
+[![Is Jesus the King of Your Life?](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/KingofLife.jpg)](https://youtu.be/tICxaSQFJGo "Is Jesus the King of Your Life?")
+
+HAPPY FEAST:
+Solemnity of Christ the King!
+
+Here’s a beautiful reflection about the feast and its relevance to our daily life:
+
+“Come then, Lord, and help your people,
+bought with the price of your own blood,
+and bring us with your saints to glory everlasting.”#divinereadings
