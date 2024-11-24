@@ -88,6 +88,7 @@
   * [November 23,2024](#november-232024)
     + [Stephen is Martyred](#stephen-is-martyred)
     + [Day 328 Do not conform yourselves to this age](#day-328-do-not-conform-yourselves-to-this-age)
+    + [BIAY Day 328 By Cynthia Dsilva](#biay-day-328-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -2202,3 +2203,83 @@ Do not be conquered by evil but conquer evil with good.
 Roms 9:9-21
 
 May the Holy Spirit lead us 🙏
+
+### BIAY Day 328 By Cynthia Dsilva
+
+Acts 7:2-53
+Stephen gave us a brief view of God’s spiritual family which started with Abraham in the old Covenant. He wants us to understand that God's family is not perfect.  It is filled with a lot of imperfect people, some good and some bad.
+
+Acts 7:55-56
+*But Stephen, filled with the Holy Spirit, looked up intently towards Heaven and saw the glory of God, and Jesus standing at the right hand of God.*
+
+Jesus was standing, not sitting on His throne, because He knew that Stephen would soon be killed and He was waiting to honor the first martyr of His Church.  Stephen was not afraid of death because he was filled with the Holy Spirit.
+
+And he said, “Behold, I see the heavens opened and the Son of Man standing at the right hand of God.”\*
+
+Stephen was affirming to the Sanhedrin that the prophecy which Jesus had made before them (Mark 14:62) had been fulfilled.
+
+Acts 7:58
+*Then they dragged him out of the city and began to stone him; and the witnesses laid their coats at the feet of a young man named Saul.*
+
+The Jews did not kill Jesus because they did not have the authority to execute anyone (John 18:31) and yet Saul gave the Jews permission to kill Steven.  In doing this Saul broke the Mosaic Commandment (“do not kill”).
+The congregation was attacked by Saul and his men because Rabbi Gamaliel had strictly told them not to harm the Apostles.
+
+Saul did not kill Stephen with his own hands, but he also did not stop the people from killing.
+
+Sometimes, like Saul, we allow others to commit crimes or do something sinful by not stopping them when we know about it, even though we have not directly contributed towards it, whether someone is planning to divorce, to bribe, to cheat, etc. or whether someone is just gossiping or insulting others, etc.
+If we have such an attitude then we are equally guilty of sin as the one who directly committed it (Ezekiel 33:8-9).
+
+Acts 7:60
+*Then he knelt down and cried out in a loud voice, “Lord, do not hold this sin against them”; and when he said this, he died.*
+
+Stephen followed Jesus faithfully even to the point of death.  Like his Lord and Master, Stephen too petitioned God to forgive his offenders and thus showed mercy, and his petition opened the door for Jesus to convert Saul (Acts 9:3-6).  Saul was later instrumental in bringing thousands of people into the Church.
+One act of mercy from Stephen brought salvation to thousands of people.
+
+All Christians are called to do the same.  When we petition God to forgive our offenders God’s grace starts flowing and thus we open the door for Jesus to bring salvation to many.
+
+In a Covenant relation it is the innocent who die for the sins of the wicked.  Thereafter, if the victim petitions God to forgive the culprit then, God's grace flows to save the souls of the wicked ones by transforming them.
+If the innocent ones are holy, more souls will be saved. The death of Jesus, therefore, has the capacity to save the whole world because He was a sinless man petitioning God to forgive His offenders.
+
+Romans 11:1-5
+*I ask, then, has God rejected his people? By no means! I myself am an Israelite, a descendant of Abraham, a member of the tribe of Benjamin.  God has not rejected his people whom he foreknew. Do you not know what the scripture says of Elijah, how he pleads with God against Israel?  “Lord, they have killed your prophets, they have demolished your altars; I alone am left, and they are seeking my life.”  But what is the divine reply to him? “I have kept for myself seven thousand who have not bowed the knee to Baal.”  So too at the present time there is a remnant, chosen by grace.*
+Just as God had already chosen His saints in the old Covenant, in advance (1 Kings 19:18), so also He has already chosen His saints in the new Covenant, in advance (Romans 11:5), those who are humble and obedient.
+Let us therefore humble ourselves and obey all that Jesus has commanded us to do so that we may be counted among the chosen ones.
+
+Romans 11:6
+*But if by grace, it is no longer because of works; otherwise grace would no longer be grace.*
+Grace is a gift from God, but if the grace demands payment or something in return, then grace is not a gift.  By default, God gives every human the grace to accept Christ.  Rejection of Christ is purely human choice.
+Grace is, therefore, not the result of our works, but a gift given to all humanity for our own salvation.
+
+Romans 11:11-15
+The Gospel was meant to be preached first to the Jews and then to the gentiles (Matthew 15:24).
+
+Paul therefore always preached first to the Jews and when they refused to accept the Gospel he went forward to preach to the gentiles.
+Thus the unbelief of the Jews paved the way for the preaching of the Gospel to the gentiles and for their easier acceptance of it outside the context of Jewish culture.
+
+Through his mission to the gentiles, Paul also hoped to fill his fellow Jews with jealousy.  Hence he hastened to fill the entire Mediterranean world with the Gospel.  Once all the gentile nations would accept the Gospel, Israel as a whole was expected to embrace it.
+
+If Israel’s rejection of the Gospel causes the whole world to be reconciled with God, then Israel’s acceptance would be as glorious as the resurrection of the dead.
+
+Romans 11:25-29
+In God’s design, Israel’s unbelief is being used to grant the light of faith to the Gentiles. Meanwhile, Israel still remains dear to God.
+
+Romans 12:1
+Our bodies can be acceptable sacrifices to God only when we offer our bodies in a state of grace along with all our aches and pains, our sicknesses and sufferings, and this offering must be made in union with the sacrifice of Christ offered on the Altar (1 Peter 2:5).
+
+However, if we have a sin and we make a firm commitment to receive the Sacrament of Reconciliation, then, because of our good intention, we can still offer ourselves to God after making a perfect act of contrition, bearing in mind that we must receive the sacrament soonest.
+The fact that we are sorry for our sins is a sign that the grace of God is present and is drawing us back to Him!  Thus, we need to cooperate with that grace, pray, and offer ourselves to God.
+
+Romans 12:14-21
+*Do good to those who hate you and pray for those who persecute you. Never take revenge. Conquer evil with good.*
+
+Persecution can be internal or external, from our domestic congregation at home or from the official congregation of the Church, from Christians or from non-Christians.
+Persecution can be physical or spiritual.
+When we choose to follow Christ, we may be strongly opposed or lured into changing our path.
+
+It is not in our power not to feel or to forget the pain caused to us by an offense; but the heart that offers itself to the Holy Spirit turns injury into compassion and purifies the memory in transforming the hurt into intercession (CCC 2843).
+Because when we pray for our offenders the Holy Spirit transforms our pain into intercession.
+
+When someone attacks us, if we pray only for the safety of our families including ourselves, then we are being selfish because we are asking God to protect us while the evil ones are still running loose attacking other innocent people.
+Whereas, if we pray for the conversion of our offenders and they change themselves, then the source of the chaos will be tackled and healed and there will be peace around us.
+
+🔥🔥🔥🔥🔥🔥🔥
