@@ -95,8 +95,10 @@
     + [BIAY Day 329 By Cynthia Dsilva](#biay-day-329-by-cynthia-dsilva)
   * [November 25,2024](#november-252024)
     + [Saul's Conversion](#sauls-conversion)
+    + [Day 330 The worst sinners make the best saints.](#day-330-the-worst-sinners-make-the-best-saints)
   * [November 26,2024](#november-262024)
     + [Peter Preaches to the Gentiles](#peter-preaches-to-the-gentiles)
+    + [Day 331 Proclaiming God’s Word is accompanied by signs and wonders.](#day-331-proclaiming-gods-word-is-accompanied-by-signs-and-wonders)
 
 <!-- tocstop -->
 
@@ -2396,8 +2398,68 @@ We can put on the armour of Light every morning after we wake up by starting the
 
 [![Saul's Conversion](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day330.jpg)](https://youtu.be/HOhsUfunEuM "Saul's Conversion")
 
+### Day 330 The worst sinners make the best saints.
+
+Saul was a young devout Jew, who witnessed the start of the persecution when Deacon Stephen was Martyred by stoning. Paul consented to the execution of Stephen.
+The witnesses laid down their cloaks at the feet of a young man named Saul. Acts 7:58
+
+Now Saul was consenting to his execution. Acts 8:1
+
+Soon after the execution of Stephen on that day, severe persecution caused the church to scatter.
+Saul was a zealous Jew and was thinking he was doing God’s when we went about persecuting the Christians.
+
+Now Saul, still breathing murderous threats against the disciples of the Lord, went to the high priest
+2and asked him for letters to the synagogues in Damascus, that, if he should find any men or women who belonged to the Way, he might bring them back to Jerusalem in chains.
+3On his journey, as he was nearing Damascus, a light from the sky suddenly flashed around him.
+4He fell to the ground and heard a voice saying to him, “Saul, Saul, why are you persecuting me?”
+5He said, “Who are you, sir?” The reply came, “I am Jesus, whom you are persecuting.
+6Now get up and go into the city and you will be told what you must do.”
+7The men who were traveling with him stood speechless, for they heard the voice but could see no one.
+8Saul got up from the ground, but when he opened his eyes he could see nothing; so they led him by the hand and brought him to Damascus.
+9For three days he was unable to see, and he neither ate nor drank. Acts 9:1-9
+
+Saul’s conversion account is so striking and dramatic that it seems unreal. Even though Saul did not crucify Jesus, Jesus said “Saul, Saul, why are you persecuting me?”. Later on in his letters, Paul will tell us the Jesus is the head and we are his body. What God started at Damascus will impact the early church and the future church – “us” in such a great way. Paul was the apostle to the Gentiles and helped build most of the early church doctrine and letters. The zeal that Saul showed towards his religion was something that Jesus probably admired. Paul would use that same zeal to proclaim the good news of Jesus Christ later.
+
+We should not undermine anyone, no matter how evil they may seem. We do not know their full story yet, God is still working on them. In an instance God can change their hearts and their lives can be amended. Let us continue to pray for them with great fervor.
+
+We know the rest of the story, Ananias was instructed in a vision to go and pray over Saul, was initially reluctant because of Saul’s persecutor image. Nothing stopped Saul from being baptized. After which nothing stopped him from preaching Christ, he was given such great revelation and such great zeal for the kingdom that no one could stop him.
+So let us pray for all the Sauls in our lives that they may be converted to Paul. That they see the real calling in their life.
+
+May the Holy Spirit lead us. 🙏
+
 ## November 26,2024
 
 ### Peter Preaches to the Gentiles
 
 [![Peter Preaches to the Gentiles](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day331.jpg)](https://youtu.be/xUHaQlJOiLY "Peter Preaches to the Gentiles")
+
+### Day 331 Proclaiming God’s Word is accompanied by signs and wonders.
+
+While St Peter was praying he was instructed in a vision that all meats are clean to eat, as he was trying to interpret the vision, the messengers of the Roman centurion Cornelius invited him to go to visit them. Usually, the Jews did not associate with pagans, but led by the Spirit Peter went up to Caesarea(a place of a lot of pagan worship) and visited Cornelius. Cornelius was earlier visited by an angel who instructed him to invite Peter, Cornelius and the other Jews that were gathered there fell down and wanted to worship Peter.
+
+Peter started to proclaim Jesus Christ to the Romans and they believed his teaching.
+While Peter was still speaking these things, the Holy Spirit fell upon all who were listening to the word.
+
+45The circumcised believers who had accompanied Peter were astounded that the gift of the holy Spirit should have been poured out on the Gentiles also,
+46for they could hear them speaking in tongues and glorifying God. Then Peter responded,
+47“Can anyone withhold the water for baptizing these people, who have received the holy Spirit even as we have?” Acts 10:44-47
+
+We see that as God’s word was proclaimed it was accompanied by the great sign of the gift of the Holy Spirit. They also started praying in tongues and glorifying God. Nothing was hidden anymore, Peter was able to see clearly what he seen in the vision, that God made everything and everyone equal that there is no restrictions for anyone to become Christian. Jews and Gentiles alike both need Jesus to be saved.
+We see a similar theme in the letter St Paul wrote to the church in Corinth.
+
+When I came to you, brothers, proclaiming the mystery of God, I did not come with sublimity of words or of wisdom.
+2For I resolved to know nothing while I was with you except Jesus Christ, and him crucified.
+3I came to you in weakness and fear and much trembling,
+4and my message and my proclamation were not with persuasive (words of) wisdom, but with a demonstration of spirit and power,
+5so that your faith might rest not on human wisdom but on the power of God. 1 Cor 2:1-5
+
+Paul did not convince people with his good education and preaching skills. He proclaimed the mystery of God with signs and wonders with a demonstration of the spirit and power. If our faith is based only on human teaching and wisdom, we may not stand strong when trials and temptations come our way. There should be signs and wonders when the Word of God is proclaimed, there should be lives changed and hearts touched by the presence of the Holy Spirit. If the preaching is only head knowledge then we may not get too far, we have to interiorize it and let is work on our hearts.
+For Christ did not send me to baptize but to preach the gospel, and not with the wisdom of human eloquence, so that the cross of Christ might not be emptied of its meaning. 1 Cor 1:18
+If we are only preaching with human eloquence then we might just be emptying the cross of its meaning. Let us who are preachers be very careful in listening to the promptings of the Holy Spirit, who will bring to our mind the correct verse or teaching that we should speak.
+Let us not limit the working of the Holy Spirit.
+
+“What eye has not seen, and ear has not heard, and what has not entered the human heart, what God has prepared for those who love him, this God has revealed to us through the Spirit. For the Spirit scrutinizes everything, even the depths of God.” 1 Cor 2:9,10
+
+The Holy Spirit is our teacher and helper who will guide us to see the great banquet that God has prepared for us in heaven.
+
+May the Holy Spirit lead us. 🙏
