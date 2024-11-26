@@ -95,6 +95,8 @@
     + [BIAY Day 329 By Cynthia Dsilva](#biay-day-329-by-cynthia-dsilva)
   * [November 25,2024](#november-252024)
     + [Saul's Conversion](#sauls-conversion)
+  * [November 26,2024](#november-262024)
+    + [Peter Preaches to the Gentiles](#peter-preaches-to-the-gentiles)
 
 <!-- tocstop -->
 
@@ -2393,3 +2395,9 @@ We can put on the armour of Light every morning after we wake up by starting the
 ### Saul's Conversion
 
 [![Saul's Conversion](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day330.jpg)](https://youtu.be/HOhsUfunEuM "Saul's Conversion")
+
+## November 26,2024
+
+### Peter Preaches to the Gentiles
+
+[![Peter Preaches to the Gentiles](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day331.jpg)](https://youtu.be/xUHaQlJOiLY "Peter Preaches to the Gentiles")
