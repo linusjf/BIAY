@@ -102,7 +102,7 @@
     + [BIAY Day 331 By Cynthia Dsilva](#biay-day-331-by-cynthia-dsilva)
   * [November 27,2024](#november-272024)
     + [Barnabas and Paul's Mission](#barnabas-and-pauls-mission)
-    + [Day 332 Restore God’s Kingdom on earth](#day-332-restore-gods-kingdom-on-earth)
+    + [Day 332 Do you not know – you are the temple of God.](#day-332-do-you-not-know-%E2%80%93-you-are-the-temple-of-god)
 
 <!-- tocstop -->
 
@@ -2541,20 +2541,22 @@ Our faith must be built on the power of Jesus, not on the priests or any spiritu
 
 [![Barnabas and Paul's Mission](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day332.jpg)](https://youtu.be/VdicF4xF3pQ "Barnabas and Paul's Mission")
 
-### Day 332 Restore God’s Kingdom on earth
+### Day 332 Do you not know – you are the temple of God.
 
-After Jesus' crucifixion, death, and resurrection Jesus presented Himself many times to the apostles with many proofs. If this was not true, I’m sure none of them would have given up their lives for Jesus.
+Many people search for God in many places and through many experiences. We can sometimes fail to overlook the dwelling of God in our hearts.
+Do you not know that you are the temple of God, and that the Spirit of God dwells in you?
+If anyone destroys God’s temple, God will destroy that person; for the temple of God, which you are, is holy. 1 Cor 3:16-17
 
-He presented himself alive to them by many proofs after he had suffered, appearing to them during forty days and speaking about the kingdom of God.Acts 1:3
+The Holy Spirit has been poured into our hearts and we are filled with the love of God. Our bodies are the temple of the Holy Spirit and God dwells in us. We should not abuse or destroy our bodies because we are God’s holy temple. Many sins like excessive drinking, eating, smoking, starving and the like are sins against the body which is the temple of God.
 
-Jesus was preparing the apostles for the biggest mission of their life to go out to the ends of the earth and preach the good news and build up the church. In order for them to able to do this, Jesus asked them to stay and pray.
-While meeting with them, he enjoined them not to depart from Jerusalem, but to wait for “the promise of the Father about which you have heard me speak. for John baptized with water, but in a few days you will be baptized with the Holy Spirit. Acts 1:4
+Given that our bodies are the temple of the Holy Spirit, we must not fail to recognize that other people’s bodies are also the temple of the Holy Spirit. This helps us respect other people's bodies, knowing that God dwells in them. This is the reason why we should not verbally or physically abuse anyone, because everyone is a creation of God and they are the temple of the Holy Spirit.
 
-Now Jesus was with them a long time – 40 days and they must have been getting impatient so they asked him “Lord, are you at this time going to restore the kingdom to Israel?”
-But you will receive power when the holy Spirit comes upon you, and you will be my witnesses in Jerusalem, throughout Judea and Samaria, and to the ends of the earth.”
-9When he had said this, as they were looking on, he was lifted up, and a cloud took him from their sight. Acts 1: 8-9
+We cannot submit any of our body parts to evil activity as the whole body belongs to Christ.
+Therefore, sin must not reign over your mortal bodies so that you obey their desires.
+13And do not present the parts of your bodies to sin as weapons for wickedness, but present yourselves to God as raised from the dead to life and the parts of your bodies to God as weapons for righteousness. Rom 6:12-13
 
-After Jesus gave them these final instructions He Ascended into heaven. After Jesus Ascended to Heaven, the disciples dedicated their time to prayer, they stayed together in the upper room and prayed. They must have been really scared as the Romans killed their leader and could kill any of them as well. They thought Jesus would restore the kingdom by defeating the Roman Empire, however, that did not happen. Now Jesus even entrusted this big task to the disciples and they probably had big doubts in their mind. They probably had no clue about how the Holy Spirit would empower them and how they would be Jesus’ witnesses in Jerusalem, throughout Judea and Samaria, and to the ends of the earth.
-But they just stuck together and prayed, waiting for the Holy Spirit to empower them.
+Let not sin reign in your bodies but let us use our bodies for the sake of the kingdom. Let us use all the strength that we have to serve the Lord and the serve the poor. We should use our bodies as weapons for righteousness. Dress modestly and give glory to God, let people see us, and glorify the Lord. We are all created beautiful so let us not fail to smile.
+
+" Let the smile on our faces reflect the presence of the Holy Spirit in our hearts. " - Michael Eltham
 
 May the Holy Spirit lead us. 🙏
