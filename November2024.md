@@ -103,6 +103,7 @@
   * [November 27,2024](#november-272024)
     + [Barnabas and Paul's Mission](#barnabas-and-pauls-mission)
     + [Day 332 Do you not know – you are the temple of God.](#day-332-do-you-not-know-%E2%80%93-you-are-the-temple-of-god)
+    + [BIAY Day 332 By Cynthia Dsilva](#biay-day-332-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -2560,3 +2561,57 @@ Let not sin reign in your bodies but let us use our bodies for the sake of the k
 " Let the smile on our faces reflect the presence of the Holy Spirit in our hearts. " - Michael Eltham
 
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 332 By Cynthia Dsilva
+
+Acts 11:1-18
+Admitting a Gentile into the Church with the Jews was going to cause a huge scandal.  But the Holy Spirit chose Peter, the Pope / Vicar of Christ, to do the needful because, as commanded by Jesus, all must obey the one who sits in the Seat of Moses (Mathew 23:2-3), which was now given to Peter (Mathew 16:18).
+
+Peter was chosen by Jesus to be the prince of the apostles and the first leader of the Church, but he too had difficulty understanding the plan of God.  He had to learn everything step by step, as from kindergarten to graduation.  God had to show Peter the vision three times for him to finally understand what God was trying to tell him. Jesus was teaching him the spiritual symbolism of unclean animals through examples just as He spoke to them in parables when He was on the earth with them.
+
+The transition from old Covenant to new Covenant was not easy for the apostles because nothing was given to them in detail, either orally or in writing.\
+The Church grew purely through the power of the Holy Spirit working in the Apostles and the early Christians.
+
+1 Corinthians 3:1-9
+To be “of the flesh" means we have still not overcome our physical appetites for the comfort and pleasures of our earthly life.
+
+Like the Corinthians, many of us too get involved in discussing and quarrelling about earthly matters.  That is because we have not asked the Holy Spirit help us overcome our earthly concerns, and to guide and lead us towards spiritual concerns.
+When we are in the flesh our pride rules our life, and therefore we look at life from a human perspective which does not take into account the divine perspective and the Will of the Lord.
+
+The Corinthian Christians were creating factions within God's family (the Church) and quarrelling with each other, much like the factions which we create within our earthly families, within our communities, within our countries and in the world.
+
+Let us take a look at our lives and check whether we are ruled by pride or by humility.  Are we looking at life from a human perspective or from the divine perspective?
+To make an honest check of ourselves and look at life from the divine perspective we need to spend some alone time with the Lord in silence, like Jesus (Matthew 14:23; Mark 1:35).
+
+1 Corinthians 3:5-7
+*Paul said "what is Paul? What is Apollo's? I planted, Apollo's watered but God was causing the growth. So neither the one who plants nor the one who waters is anything."*
+Bringing others to Christ is not about us or what we have done.  We may sow the seeds of the Gospel by evangelizing, and we may water these seeds with prayer and fasting, and helping the people nourish their spiritual lives, but it can only take root if the person is willing to co-operate with God’s grace.  We are not the ones who convert anyone.  It is God who converts people.  God alone, who makes the Church grow in His likeness, is everything, and therefore He alone deserves all the glory.
+
+If we have been instrumental in bringing people to the Church or close to God, we must ensure that we don't encourage others to give us praise or rewards.
+
+Meanwhile, God can cause the growth of the Church only if we sow the seeds.  If we are not doing what we are called to do then we are depriving many souls of eternal life therefore we will be culpable.
+
+When God gives us a task He provides workforce, resources, etc. for getting the task accomplished.  But God’s call to serve Him as co-workers is not only to a selected few; it is a call to all believers in Christ.  The preaching and spreading of the Gospel is also the responsibility of all believers.  We are all co-workers with Christ, and when we are committed to expanding the Kingdom of God on earth, *NOTHING* should hinder us from rendering undisturbed service to God.
+
+1 Corinthians 3:15
+*If the work is burned up, the builder will suffer loss; the builder will be saved, but only as through fire.*
+Those who die in a state of venial sin will be gathered in Purgatory, and all those who make it to Purgatory will be saved.  But during the purification process the works done during their lifetime will be evaluated (v.11-15).
+Works that were built on the foundation of Christ, akin to “gold, silver, and precious stones”, will survive and the person will be rewarded greatly.  These are works done in Christ with pure motives.
+
+But works that are analogous to “wood, hay, and stubble” will be burned up.  These are the venial sins or good works done with impure motives, such as helping the poor and needy for personal gain or glory.
+
+The “loss” suffered is a loss of greater reward.  Salvation is, however, assured, but the level of glory will be less for the one whose “work is partially burned up.”  In order to go to heaven, some of his works will have to be accepted (unless he died before the age of accountability). But since some of his works are “burned up” he will not receive as great a reward as he would have received if all his works would have been accepted.
+
+1 Corinthians 3:16-17\
+*Do you not know that you are God's temple and that God's Spirit dwells in you?  If anyone destroys God's temple, God will destroy that person, for God's temple is holy, and you are that temple.*
+God’s Spirit (divine life) is given to us when we are baptized (Matthew 28:19).  But when we commit a mortal sin, we destroy the divine life within us (Genesis 2:17), thereby destroying God’s temple.  We can, however, restore that divine life only after we receive the Body of Christ (Communion) (John 6:54) in a state of grace (1 Corinthians 11:27).
+
+If we die with a mortal sin we will not have divine life within us, thereby destroying our soul (God’s temple) forever.
+
+Knowing the weakness of our souls, God has given us the Sacraments of Reconciliation and Eucharist.  We must therefore be alert to sin at all times, live our lives according to God's Will and receive the sacraments regularly because the evil one is active 24/7 waiting to drag all Christians into his kingdom in many different ways.
+
+1 Corinthians 4:1
+\*Thus should one regard us: as servants of Christ and stewards of the mysteries of God.”
+Jesus gave His apostles the authority to dispense the mysteries of God (sacraments).
+
+🔥🔥🔥🔥🔥🔥🔥
