@@ -104,6 +104,8 @@
     + [Barnabas and Paul's Mission](#barnabas-and-pauls-mission)
     + [Day 332 Do you not know – you are the temple of God.](#day-332-do-you-not-know-%E2%80%93-you-are-the-temple-of-god)
     + [BIAY Day 332 By Cynthia Dsilva](#biay-day-332-by-cynthia-dsilva)
+  * [November 28,2024](#november-282024)
+    + [Peter Is Rescued from Prison](#peter-is-rescued-from-prison)
 
 <!-- tocstop -->
 
@@ -2615,3 +2617,9 @@ Knowing the weakness of our souls, God has given us the Sacraments of Reconcilia
 Jesus gave His apostles the authority to dispense the mysteries of God (sacraments).
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## November 28,2024
+
+### Peter Is Rescued from Prison
+
+[![Peter Is Rescued from Prison](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day333.jpg)](https://youtu.be/af9gHylLIoM "Peter Is Rescued from Prison")
