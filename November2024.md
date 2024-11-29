@@ -108,6 +108,8 @@
     + [Peter Is Rescued from Prison](#peter-is-rescued-from-prison)
     + [Day 333 The resurrection of the body](#day-333-the-resurrection-of-the-body)
     + [BIAY Day 333 By Cynthia Dsilva](#biay-day-333-by-cynthia-dsilva)
+  * [November 29,2024](#november-292024)
+    + [The Meaning of Fasting](#the-meaning-of-fasting)
 
 <!-- tocstop -->
 
@@ -2708,3 +2710,9 @@ Our body becomes the temple of the Holy Spirit when we live in a state of grace.
 Therefore, we must glorify God by using our bodies to evangelize, to create new life, to worship God, to do good works, to love others, etc.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## November 29,2024
+
+### The Meaning of Fasting
+
+[![The Meaning of Fasting](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day334.jpg)](https://youtu.be/a_8r-a9J8WU "The Meaning of Fasting")
