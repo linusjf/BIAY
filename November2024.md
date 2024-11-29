@@ -107,6 +107,7 @@
   * [November 28,2024](#november-282024)
     + [Peter Is Rescued from Prison](#peter-is-rescued-from-prison)
     + [Day 333 The resurrection of the body](#day-333-the-resurrection-of-the-body)
+    + [BIAY Day 333 By Cynthia Dsilva](#biay-day-333-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -2652,3 +2653,58 @@ Do you not know that the unjust will not inherit the kingdom of God? Do not be d
 Let us repent from all of these sins listed above, least we are denied entry into heaven. Let us not take these sins lightly, they are grave sins. We should keep our body holy as we are united with Christ. Our bodies will also be resurrected to heaven so let’s keep our body holy.
 
 May the Holy Spirit lead us.
+
+### BIAY Day 333 By Cynthia Dsilva
+
+1 Corinthians 5:4-5
+*When you are assembled, and my spirit is present with the power of our Lord Jesus, you are to hand this man over to Satan for the destruction of the flesh, so that his spirit may be saved in the day of the Lord.*
+
+An ex-communicated member of the Church is not allowed to have access to the sacraments and this puts the person's soul in the power of Satan who takes pleasure in destroying the body in whatever way he can.  Paul was hoping that this would bring the man to repentance and thereafter back to the Church, and it did.
+
+1 Corinthians 5:1-8
+In his role as an Apostle/Bishop of the Church, Paul's responsibility was to ensure the purity of the souls entrusted to him, not only by purging the evil (leaven) from their midst but also by repairing the damaged souls of his congregation, so that they could celebrate the Passover feast of the new Covenant (Mass), as it was commanded in the old Covenant, without any publicly known mortal sin (leaven) in their midst (Exodus 12:15 & 19).
+
+If a Bishop gets comfortable by only purging out the evil members and not caring about the renewal of their souls, then he is culpable in front of God.
+On the other hand, if the mortal sin of a member of the congregation has become publicly known, then it is the responsibility of the congregation to notify the Bishop about it.
+
+Therefore Paul was not happy to hear that the Corinthians were proud about their many spiritual gifts when they had ignored the most important thing, the leaven in their midst, which they should have tackled.
+
+While Paul was with the Corinthians he had worked hard to purge out evil from the Church and repair the damaged ones, and after he left he expected them to follow what he taught them, but he was disappointed with them because they had either not learnt anything from him or they were too afraid to take the initiative.
+
+The man, referred to, had violated the law (Leviticus 18:8).  Paul did not want the immoral man taking part in the breaking of the bread (Mass) (v. 7-8) along with the congregation because he had committed a mortal sin with his act. And if the man received the Body of Christ (Communion) with a mortal sin then he would not only be bringing judgement upon himself (1 Corinthians 11:27) but his sin would spread like cancer because others would be encouraged to follow his example.  Paul wanted the cancer to be removed so that the Body of Christ (the Church) would not be defiled.
+
+Paul therefore ordered the Corinthians to ex-communicate the man (v. 2) who was unfaithful to Christ, in line with the Law given by Jesus (Matthew 18:18).
+
+Ex-communication is analogous to divorce due to infidelity (Matthew 5:32 & 19:9) and is meant to humble the unfaithful person so that he repents, corrects his errors and comes back to his spouse.  If the ex-communicated person refuses to humble himself and return to his spouse (Jesus) then his soul will be lost.  The same applies to women also.
+
+Paul had commanded the congregation to surrender this man to Satan so that the man’s flesh may be dealt with (by going through suffering as a chastisement) and thus his spirit/soul may be saved.
+
+*You are to hand this man over to Satan for the destruction of the flesh.*
+This was the language Paul used for ex-communication.  It was seen as medicinal.
+Paul understood that God will “hand us over” to Satan in various ways in our lives for our purification and our ultimate good, though we always have free will.  We can choose whether, or not, we want to cooperate with God’s chastisement which leads to our salvation (Hebrews 7:8-12).
+Paul himself had gone through the experience of being handed over to Satan (2 Corinthians 12:6), as did Job (Job 1).
+Ex-communication of a person is, however, only done in extreme circumstances, if, after several warnings, the person still refuses to repent and correct his/her errors.  It is never what the Church desires, but sometimes it is necessary in order to stop the cancer from spreading and to cause the person to humble himself/herself and repent.
+
+1 Corinthians 5:7-8 (1)
+*Christ our Passover has been sacrificed.*
+Why did Paul refer to Jesus as “our Passover”?
+
+Jesus was not the first person to be crucified and Roman executions happened almost every day.  But what transformed an ordinary Roman execution into a true and complete sacrifice was its connection with the Last Supper, or the first Passover of the New Covenant, in the Upper Room.
+
+In the Jewish Passover feast the most important part was the sacrifice of the Lamb and consumption of all 4 cups of wine.  The slaughtered lamb had to be offered to God by a Priest, on the Altar.  But a sacrificed lamb didn’t become a Passover lamb unless it was sacrificed for the Passover feast and unless the family followed all the instructions of the Passover celebrations.  If any one step was missed out then God would be displeased with them.
+
+In this first Passover feast of the new Covenant, Jesus was the High Priest.  He went to the Cross with His sacrificial priestly garments (the seamless tunic) (John 19:23).  Jesus consumed three cups of the Passover wine in the Upper Room with His ordained priests (the Apostles), and thereafter consumed the fourth cup of wine after His Body was sacrificed/crucified, His Body being the Altar, to unite His sacrifice (the Lamb of God) with the Passover meal (the Last Supper) which he started in the Upper Room.  It is now the obligation of the new Israel (the Christians) to consume the sacrificial meal (the Body of the Lamb of God) to complete the Passover feast until the end of time (Exodus 12:47).
+
+Thus in the first Passover feast of the new Covenant, Jesus was the High Priest, the Passover Lamb and the Altar.
+
+1 Corinthians 6:19-20
+*Do you not know that your body is a temple of the Holy Spirit within you, which you have from God, and that you are not your own?  For you were bought with a price; therefore glorify God in your body.*
+
+Our bodies (which we can see) are an analogy for our souls (which we cannot see).
+Our bodies are temples of the Holy Spirit and are meant to be used in a godly way for godly things, to do God's work on earth. That is why God gave us a body and our bodies belong to the Lord.
+
+Our body becomes the temple of the Holy Spirit when we live in a state of grace.  Using our bodies for sinful words and deeds is scandalous to the Holy Spirit, therefore we must avoid vices, addictions, etc.  Thus, whatever we use our body for and whatever we do to our body has a direct effect on our soul.
+
+Therefore, we must glorify God by using our bodies to evangelize, to create new life, to worship God, to do good works, to love others, etc.
+
+🔥🔥🔥🔥🔥🔥🔥
