@@ -110,6 +110,7 @@
     + [BIAY Day 333 By Cynthia Dsilva](#biay-day-333-by-cynthia-dsilva)
   * [November 29,2024](#november-292024)
     + [The Meaning of Fasting](#the-meaning-of-fasting)
+    + [BIAY Day 334 By Cynthia Dsilva](#biay-day-334-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -2717,8 +2718,7 @@ Therefore, we must glorify God by using our bodies to evangelize, to create new 
 
 [![The Meaning of Fasting](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day334.jpg)](https://youtu.be/a_8r-a9J8WU "The Meaning of Fasting")
 
-BIAY Day 334
-_By Cynthia Dsilva_
+### BIAY Day 334 By Cynthia Dsilva
 
 Acts 13:9
 *But Saul, also known as Paul, .......*
