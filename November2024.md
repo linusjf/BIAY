@@ -2716,3 +2716,76 @@ Therefore, we must glorify God by using our bodies to evangelize, to create new 
 ### The Meaning of Fasting
 
 [![The Meaning of Fasting](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day334.jpg)](https://youtu.be/a_8r-a9J8WU "The Meaning of Fasting")
+
+BIAY Day 334
+_By Cynthia Dsilva_
+
+Acts 13:9
+*But Saul, also known as Paul, .......*
+Paul's Jewish name was Shauul, the English version being Saul,
+and his Greek name was Pavlos, the English version being Paul.
+
+Acts 13:1-52
+<https://biblia.com/bible/rsvce/Acts/13/1-5>
+<https://biblia.com/bible/rsvce/Acts/13/13-15>
+<https://biblia.com/bible/rsvce/Acts/13/43-52>
+
+During the liturgical service of the Old Covenant, the priests read the Law of Moses and the corresponding writings of the prophets.  Then they explained the law to the people and celebrated with a sacrificial meal (Nehemiah 8:2–10).
+
+God had showed them, through Moses, how to conduct a liturgical service so that they would not have any difficulty when they switched to the New Covenant worship.  But, after the Resurrection, the Jews, who had not accepted Christ, still continued reading only the Law and the Prophets.
+
+Paul additionally preached the Gospel and delivered a sermon/homily to the people, as Jesus taught His disciples (Luke 24:27, 30-32 and 45-47), so that the people could understand the link between the old Covenant and the new and that Jesus was the promised Messiah whom the prophets spoke about.
+
+The Church still follows the same pattern to this day.  Therefore, during the liturgical service (Mass), every Sunday, we have four Readings (each from the Old Testament, Psalm, New Testament and Gospel).
+
+After hearing the Gospel the first time, many Jews and Gentiles wanted to hear the Word of God again.  But the following Sabbath when some Jews saw that the crowds had increased and Paul was getting popular, they were filled with envy and opposed his teaching.  God wanted the Gospel to be preached throughout Israel, but since the Jews rejected Christ, Paul and Barnabas turned to the gentiles who willingly accepted Christ and many were converted.
+
+Meanwhile, the envious Jews, along with the influential people of that town, plotted a persecution against Paul and Barnabas and drove them out of their town.  Before leaving town, in obedience to the instructions of Jesus, Paul and Barnabas shook off the dust from their feet in judgement for rejecting Christ (Matthew 10:14-15; Mark 6:11).
+
+<https://biblia.com/bible/rsvce/Nehemiah/8/2%E2%80%9310>
+<https://biblia.com/bible/rsvce/Luke/24/27>
+<https://biblia.com/bible/rsvce/Luke/24/30-32>
+<https://biblia.com/bible/rsvce/Luke/24/45-47>
+<https://biblia.com/bible/rsvce/Matthew/10/14-15>
+<https://biblia.com/bible/rsvce/Mark/6/11>
+
+Acts 13:13
+*Then Paul and his companions set sail from Paphos and came to Perga in Pamphylia. John, however, left them and returned to Jerusalem.*
+Paul and John Mark were working together to serve the Lord but it seems like something happened that created a wall between them and John Mark walked out.
+We do not have details of why John Mark left them but what is more important is that Paul and Mark later reconciled with each other (2 Timothy 4:11; Philemon 24).
+
+We should therefore not be scandalized or lose our faith when Church authorities have issues with each other because it is not something new.  It has been the case since the beginning of the Church because Church authorities are human, like us, and will therefore tend to fall from grace very often due to the weakness of their souls.
+
+Just as Satan tried to destroy the physical Body of Christ by instigating a priest of God (Judas) from within the ministry of Christ, so also Satan will try to destroy the Church (the mystical Body of Christ) by instigating a priest of God from within the Church.
+The important thing is that when Church authorities have tension between each other, they must not hold long-term grudges. They must eventually calm down, realize their errors and reconcile with each other.
+
+During such times it is the duty of the congregation to pray for them and help them to reconcile.
+
+Acts 13:40
+The Mosaic law does not give us salvation.  It was given to the old Covenant people to prepare and train them on how God wanted to be worshipped in the new Covenant.
+
+Acts 13:43
+*….. continue in the grace of God.*
+Paul and Barnabas urged the people to continue in the grace of God because baptism is not a guarantee for salvation.  Once we are baptized there are 100% chances that we can “fall from grace” as Paul reminds us (Galatians 5:4) because Satan’s main targets are the baptized ones.
+
+Spiritual life is all about walking with Jesus and remaining in Christ, therefore, with the demons keeping an eye on us 24x7 and waiting round the corner to grab our souls, it is not easy to be in a state of grace always.  Sometimes the demons do it through violence and sometimes through false friendship, deceptive love, etc.
+
+Jesus sums up the reason very plainly:
+
+“… apart from me, you can do nothing” (John 15:5),
+
+Paul also tells us:
+I can do all things in Christ who strengthens me (Phil. 4:13).
+
+For he will render to every man according to his works: to those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life” (Romans 2:6-7);
+
+Do not be deceived; God is not mocked, for whatever a man sows, that he will also reap. For he who sows to his own flesh will, from the flesh, reap corruption; but he who sows to the Spirit will, from the Spirit, reap eternal life. And let us not grow weary in well-doing, for in due season we shall reap, if we do not lose heart” (Galatians 6:7-9).
+
+Let us therefore ensure that we stay alert to sin and keep our souls purified at all times by receiving the Sacraments of Reconciliation and Eucharist regularly, as long as we live.
+
+1 Corinthians 7:32-35
+It is not wrong to ordain married people to religious life but it is difficult for a person to do justice to married life and religious life at the same time.  Therefore, Paul recommends celibacy for those choosing religious life so that they can focus on serving God by serving only the official Church (their parish congregations).
+
+Meanwhile, married people can focus on serving God by serving their domestic Churches (their families) while they also assist the official Church.
+
+🔥🔥🔥🔥🔥🔥🔥
