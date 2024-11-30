@@ -111,6 +111,8 @@
   * [November 29,2024](#november-292024)
     + [The Meaning of Fasting](#the-meaning-of-fasting)
     + [BIAY Day 334 By Cynthia Dsilva](#biay-day-334-by-cynthia-dsilva)
+  * [November 30,2024](#november-302024)
+    + [Run the Race](#run-the-race)
 
 <!-- tocstop -->
 
@@ -2789,3 +2791,9 @@ It is not wrong to ordain married people to religious life but it is difficult f
 Meanwhile, married people can focus on serving God by serving their domestic Churches (their families) while they also assist the official Church.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## November 30,2024
+
+### Run the Race
+
+[![Run the Race](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day335.jpg)](https://youtu.be/51YSft7AXMk "Run the Race")
