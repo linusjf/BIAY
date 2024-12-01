@@ -111,8 +111,10 @@
   * [November 29,2024](#november-292024)
     + [The Meaning of Fasting](#the-meaning-of-fasting)
     + [BIAY Day 334 By Cynthia Dsilva](#biay-day-334-by-cynthia-dsilva)
+    + [Day 334 Celibacy makes for dedicated service to the Lord.](#day-334-celibacy-makes-for-dedicated-service-to-the-lord)
   * [November 30,2024](#november-302024)
     + [Run the Race](#run-the-race)
+    + [Day 335 Strive for salvation.](#day-335-strive-for-salvation)
 
 <!-- tocstop -->
 
@@ -2792,8 +2794,45 @@ Meanwhile, married people can focus on serving God by serving their domestic Chu
 
 🔥🔥🔥🔥🔥🔥🔥
 
+### Day 334 Celibacy makes for dedicated service to the Lord.
+
+A very practical reason for priests and religious taking the vow of celibacy is the freedom to serve the Lord. This is a small ‘t’ tradition of the Catholic Church.
+If we think of it in a very practical sense, a married man/woman is focused on the family, and how to make the spouse, children, parents, and in-laws happy. Preparing meals, dropping of the kids to school and sports, caring for elderly parents, saving money for college tuition, praying as a family, and raising good kids. I don’t think any parent reading this will say they have enough of time or resources to be a married person, it seems never enough. If we add the service of the Lord to the equation, either one would be neglected, although this is not the case always – there are many people in lay ministry that are able to balance both family and the Lord’s service. For example a permanent deacon has threefold responsibilities, family, work and deaconate. However for a parish priest, bishop, cardinal, pope, nun, mother superior, religions priest being single would be most practical as they are able to dedicate 100% of their time and energy for the service of the Lord.
+
+I should like you to be free of anxieties. An unmarried man is anxious about the things of the Lord, how he may please the Lord.
+
+33But a married man is anxious about the things of the world, how he may please his wife,
+34and he is divided. An unmarried woman or a virgin is anxious about the things of the Lord, so that she may be holy in both body and spirit. A married woman, on the other hand, is anxious about the things of the world, how she may please her husband. 1 Cor 7: 32-34
+
+It is great to be single and serving the Lord, but in all truth anyone who had taken the vow of celibacy in all truth is not single but married to the Lord. Their spouse is the Lord and the community is their family.
+
+However, sometimes it’s not practical for some people to live a celibate life as they may not be called to it or may not have the willpower to abstain from sex. Or if they feel too lonely without someone to share their life with.
+If anyone thinks he is behaving improperly toward his virgin, and if a critical moment has come and so it has to be, let him do as he wishes. He is committing no sin; let them get married.
+
+37 The one who stands firm in his resolve, however, who is not under compulsion but has power over his own will, and has made up his mind to keep his virgin, will be doing well. 1 Cor 7: 36-37
+
+We should pray for our priests and religious to be able to continue in their firm resolve to live celibate lives with undivided love for Christ and the Church.
+
+May the Holy Spirit lead us. 🙏
+
 ## November 30,2024
 
 ### Run the Race
 
 [![Run the Race](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day335.jpg)](https://youtu.be/51YSft7AXMk "Run the Race")
+
+### Day 335 Strive for salvation.
+
+I feel that zeal for salvation is lacking in our generation, we see people taking great care to secure a job, educate their kids, save for retirement, get promotions, build their bodies, diet etc. We do so much for the earthly life and do very little for the eternal life. Look at any athlete or sports person, they dedicate their whole lives to sport and aim to win a medal. However, everyone will forget about the game or the medal in a few hours. How much more should we prepare for our eternal goal?
+Do you not know that the runners in the stadium all run in the race, but only one wins the prize? Run so as to win.
+
+25Every athlete exercises discipline in every way. They do it to win a perishable crown, but we an imperishable one.
+26Thus I do not run aimlessly; I do not fight as if I were shadowboxing.
+27No, I drive my body and train it, for fear that, after having preached to others, I myself should be disqualified. 1 Cor 9:24-25
+
+We should take a moment to compare the efforts that we make to secure our earthly life as compared to eternal life. Make a list of all the things you do for spiritual life, Bible in a year, Daily Mass, regular confession, personal prayer, and charity, ….
+
+Compare it to the list that you have for earthly life, job, learning, savings, diet, exercise….
+Hopefully, you are making more effort for eternal life, striving, running the race, training our spiritual bodies, and depriving our earthly bodies of good things so that our heart, mind and body is focused on the main goal which is eternal life. All these earthly things will be added on. Let us run and win, I’m sure we all will need God’s grace to be saved. But that should not stop our striving, it should fuel our striving. The worst case would be if we preach to others and fail to live out our calling.
+
+May the Holy Spirit lead us. 🙏
