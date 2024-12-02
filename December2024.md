@@ -4,6 +4,8 @@
   * [December 01,2024](#december-012024)
     + [The Council at Jerusalem](#the-council-at-jerusalem)
     + [BIAY Day 336 By Cynthia Dsilva](#biay-day-336-by-cynthia-dsilva)
+  * [December 02,2024](#december-022024)
+    + [The Importance of Love](#the-importance-of-love)
 
 <!-- tocstop -->
 
@@ -110,3 +112,9 @@ Likewise, each individual Christian cannot say that he/she is the Body of Christ
 Therefore, if we don't live our Christian lives in union with Christ (the Head), then our sinful soul will eventually decay and end up in Hell.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## December 02,2024
+
+### The Importance of Love
+
+[![The Importance of Love](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day337.jpg)](https://youtu.be/ekHYubXUoCA "The Importance of Love")
