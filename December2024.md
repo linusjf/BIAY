@@ -6,6 +6,7 @@
     + [BIAY Day 336 By Cynthia Dsilva](#biay-day-336-by-cynthia-dsilva)
   * [December 02,2024](#december-022024)
     + [The Importance of Love](#the-importance-of-love)
+    + [BIAY Day 337 By Cynthia Dsilva](#biay-day-337-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -118,3 +119,67 @@ Therefore, if we don't live our Christian lives in union with Christ (the Head),
 ### The Importance of Love
 
 [![The Importance of Love](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day337.jpg)](https://youtu.be/ekHYubXUoCA "The Importance of Love")
+
+### BIAY Day 337 By Cynthia Dsilva
+
+Acts 16:3
+*Paul wanted Timothy to accompany him; and he took him and had him circumcised because of the Jews who were in those places, for they all knew that his father was a Greek.*
+
+Paul wanted Timothy to be circumcised because the Jews would not allow an uncircumcised man to enter their territory.  The Jews still strongly believed that every man had to be circumcised, whether he wanted to be a member of the Temple or the Church.  Paul needed Timothy to assist him in his religious work so the only option left was to circumcise Timothy so that they could both enter the Jewish areas and continue their work.
+
+Although the decision had been made during the first council that circumcision was not required to enter the Church, Peter's encyclical had not yet reached all the Churches (v. 4).  It was therefore very important for Paul to visit those areas to settle the disputes between the Jews and the gentiles.
+
+Since circumcision was ordained by God, Timothy was willing to go through it for the sake of the Gospel.
+
+In the process of doing God's work, like Timothy, we must be willing to sacrifice our comfort, if we have to, for the sake of the Gospel, making sure that whatever we do is according to God's Will.
+
+Acts 16:6-10
+Everything that Paul was doing for the Church was good work but there's a difference between doing good work and God's work.
+
+Paul had a desire to go to preach in Asia, but God had different plans. God wanted Paul to focus his preaching more in the Greeko-Roman territory because of his knowledge of multiple languages and the culture of the people. Although Paul's intentions were good and he was doing his work for the Lord, he humbled himself and submitted himself to the Lord's desire.
+
+It was at this point that Paul met Luke. Also, the Macedonians were in some kind of trouble and they needed urgent help.
+
+If Paul had gone to Asia against God's Will then maybe he would not have met the evangelist Luke and the Macedonians would not have been saved on time.
+
+Like Paul, sometimes when we have a particular plan laid out to do God’s work, God may inspire our superiors to use our potential in a different way or in a different area that may not have been in our plans. During such time let us humble ourselves and submit ourselves to the Lord's desire, even if we don't like the new mission, rather than fighting with our superiors and being adamant about following only the desire of our heart.  If we forcibly decide to do God's work our own way then the good work which we do is not God's work because it is being done in disobedience to God and therefore contrary to God’s plan.  In the process of doing God's work, like Paul, we must be willing to sacrifice our plans for the sake of the Gospel.  If we allow pride to stand before us, God may give the chance to someone else and not use us at all.
+
+Evangelisation is not about doing God's work the way *we* want it done.
+Evangelisation is about doing God's work the way *God* wants it done.
+When in doubt, always pray.
+
+Acts 16:25-27
+*About midnight, while Paul and Silas were praying and singing hymns to God as the prisoners listened, there was suddenly such a severe earthquake that the foundations of the jail shook; all the doors flew open, and the chains of all were pulled loose.  When the jailer woke up and saw the prison doors wide open, he drew \[his\] sword and was about to kill himself, thinking that the prisoners had escaped.*
+
+Paul and Silas were beaten and thrown in prison but they did not complain or curse their offenders.  Instead, they spent their time in prison praying and singing hymns to God.  Therefore, through their suffering Jesus converted the jailer.
+God allowed the earthquake and opened the gates of the prison to move the jailer to ask for salvation.
+
+Acts 16:30-31
+*Then the jailer brought them out and said, “Sirs, what must I do to be saved?”*
+*And they said, “Believe in the Lord Jesus and you and your household will be saved.”*
+
+The faith of the head of the family was sufficient to baptize the entire non-Christian household because the entire household is expected to obey and respect the head of the family.  Minor children and infants were also included in the baptism because they are under the authority of their parents.  Moreover, children were not allowed to choose a different faith than their parents.
+
+On the other hand, if we are disturbed with the behaviour of any of our family members, God is well aware of what is happening but He will not intervene to bring peace into our homes because He is waiting for us to repent and change ourselves.
+
+If we repent with godly repentance (2 Corinthians 7:10) and lead holy lives, our fallen-away family members can eventually be saved.
+
+God allowed the violent earthquake and whatever happened at the prison on that day because He wanted the jailer and his household to be converted.
+
+The apostles converted the entire households of many Jews and gentiles in the first century AD because one member accepted Jesus and the rest of their families followed in their footsteps.
+
+Therefore,  instead of wasting our time trying to change our difficult spouse, our rebellious children, our nagging in-laws, etc., let us first examine ourselves and check if we have been obedient to the Lord in all we do and say.  And let us be thankful to God in every situation, positive or negative, even though we cannot see any good in the negatives.
+
+1 Corinthians 13:1-3
+*If I speak in the tongues of mortals and of angels, but do not have love, I am a noisy gong or a clanging cymbal.*
+*And if I have prophetic powers, and understand all mysteries and all knowledge, and if I have all faith, so as to remove mountains, but do not have love, I am nothing.  If I give away all my possessions, and if I hand over my body to be burnt so that I may boast, but do not have love, I gain nothing.*
+
+Speaking in tongues, prophetic powers, faith in Christ, knowledge of scriptures, donating all our possessions, martyrdom, etc., are all good, but if we hate or dislike even one human, living or dead, then we are not in a state of grace and everything else we do is in vain.
+
+The new law is a law of pure, unconditional, sacrificial love, written on our hearts, and must be put into practice.  It is not meant just to be kept in our memories or on our tongues.
+
+If we cannot love everyone 100 percent and if we cannot help those in need then we have disobeyed the new Commandment and our worship is all false.
+
+True faith in God combined with true love of neighbor produces good works of mercy just as a good tree produces good fruits (Matthew 21:18-22).
+
+🔥🔥🔥🔥🔥🔥🔥
