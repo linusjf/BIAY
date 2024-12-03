@@ -4,9 +4,11 @@
   * [December 01,2024](#december-012024)
     + [The Council at Jerusalem](#the-council-at-jerusalem)
     + [BIAY Day 336 By Cynthia Dsilva](#biay-day-336-by-cynthia-dsilva)
+    + [Day 336 The gifts of the Holy Spirit.](#day-336-the-gifts-of-the-holy-spirit)
   * [December 02,2024](#december-022024)
     + [The Importance of Love](#the-importance-of-love)
     + [BIAY Day 337 By Cynthia Dsilva](#biay-day-337-by-cynthia-dsilva)
+    + [Day 337 Love never fails](#day-337-love-never-fails)
 
 <!-- tocstop -->
 
@@ -114,6 +116,52 @@ Therefore, if we don't live our Christian lives in union with Christ (the Head),
 
 🔥🔥🔥🔥🔥🔥🔥
 
+### Day 336 The gifts of the Holy Spirit.
+
+In our modern day and age, we seem to have either suppressed or forgotten the gifts of the Holy Spirit. St Paul urges us not to be unaware of the gifts of the Holy Spirit.
+Now in regard to spiritual gifts, brothers, I do not want you to be unaware.
+There are different kinds of spiritual gifts but the same Spirit;
+5there are different forms of service but the same Lord;
+6there are different workings but the same God who produces all of them in everyone. 1 Cor 12:1-6
+
+There are different gifts but there is only one reason for them, for the service of the Lord. All these gifts are given to us by the same Spirit. These gifts can be used to edify our own spiritual lives and the lives of everyone around us. The gifts are for the building up of the church. The gifts do not make one great or one insignificant, let us remember that it is a gift we did not earn it or deserve it.
+To one is given through the Spirit the expression of wisdom; to another the expression of knowledge according to the same Spirit;
+9to another faith by the same Spirit; to another gifts of healing by the one Spirit;
+10to another mighty deeds; to another prophecy; to another discernment of spirits; to another varieties of tongues; to another interpretation of tongues. 1 Cor 12:8-10
+
+The gifts can be listed as:
+
+1. Wisdom
+2. Knowledge
+3. Faith
+4. Healing
+5. Mighty deeds(Miracles)
+6. Prophecy
+7. Discernment of spirits
+8. Tongues
+9. Interpretation of tongues
+
+The gift of knowledge is to gain supernatural insight into something or someone’s life like people have a vision of something or a strong feeling that the Holy Spirit is speaking to them about something.
+
+The gift of Wisdom is similar to knowledge only difference is it’s usually direction from the Holy Spirit on how to act, it’s more like getting hearing Holy Spirit teach us the will of God or at least a hint about what God wants us to do.
+The gift of Faith is not just regular faith that we all have, faith the Jesus is God and the other basic teachings of the church. The gift of Faith is a supernatural gift that we gain such confidence at a certain moment that we know that we are able to pray for God’s supernatural intervention.
+People with the gift of healing can lay hands and pray over the sick for natural or supernatural healing.
+
+The gift to work mighty deeds and Miracles are a great sign for the non-believers.
+A person with the gift of prophecy is able to listen to the Spirit and speak out God’s words, usually, you will hear the person with this gift say “I sense the Lord saying” followed by the message – it usually is a like a verse from the Bible. The prophecy should always be in alignment with the teaching of Jesus and the church.
+
+The gift of discernment of spirit is a gift that will help us know the where the prophecy is coming from or what spirit is behind a certain action. Like a person who seems to be possessed by the evil may actually only have a medical problem. Anyone with the gift of discernment will be able to discern if it’s because of evil spirit or not.
+
+The gift of tongues is one of the most common gifts, the person with the gift of tongues prays according to the will of the Father in mourns and groans too deep for any human language to explain. But God who looks into the hearts knows the intent.
+
+The gift of tongues is most useful to the congregation when someone has the gift of interpretation of tongues. So that everyone in the congregation will be able to know what the person praying in tongues has just prayed.
+Although the gifts of the Spirit may see pretty spectacular, we should not use the gifts as a yardstick for the greatness of the person. Because the gifts are not earned but given, the gifts will cease but one thing will remain. Let us wait till tomorrow to know what is greater than any gift.
+
+Strive eagerly for the greatest spiritual gifts.
+But I shall show you a still more excellent way. 1 Cor 12:31
+
+May the Holy Spirit lead us. 🙏
+
 ## December 02,2024
 
 ### The Importance of Love
@@ -183,3 +231,36 @@ If we cannot love everyone 100 percent and if we cannot help those in need then 
 True faith in God combined with true love of neighbor produces good works of mercy just as a good tree produces good fruits (Matthew 21:18-22).
 
 🔥🔥🔥🔥🔥🔥🔥
+
+### Day 337 Love never fails
+
+The gifts of the Holy Spirit are not sanctifying gifts, they are for the common good of the Church. Of course, they can aid in our sanctification if we cooperate with God’s will. But the gifts of the Holy Spirit are not the yardstick, the fruits of the Holy Spirit are what we should look for.
+If I speak in human and angelic tongues but do not have love, I am a resounding gong or a clashing cymbal.
+2And if I have the gift of prophecy and comprehend all mysteries and all knowledge; if I have all faith so as to move mountains but do not have love, I am nothing. 1 Cor 13:1-2
+
+So if someone has all the gifts and no fruits they are a noisy cymbal. All the gifts of the Holy Spirit should operate out of love. Love in our modern-day standards is stripped of its true meaning. The true meaning of love is stated in Corinthians.
+Love is patient,
+Love is kind.
+Love is not jealous,
+Love is not pompous, it is not inflated,
+Love is not rude,
+Love does not seek its own interests
+Love is not quick-tempered
+Love does not brood over injury,
+Love does not rejoice over wrongdoing but rejoices with the truth.
+Love bears all things, believes all things, hopes all things, endures all things.
+Love never fails. 1 Cor 13:4-8
+
+The best way to judge a person is not with the gifts but by the fruits. We should see if the person is patient, kind, not proud, not jealous, not rude or quick-tempered, does not brood over injury or hold a record of wrongs. The person can bear all things, believe and hope for all things and endures all things.
+We need to grow and develop the fruits of the Spirit, cooperate with God’s grace and develop fruit. That is why St Paul said that Love will never fail, everything else will be pass away.
+
+If there are prophecies, they will be brought to nothing; if tongues, they will cease; if knowledge, it will be brought to nothing.
+9For we know partially and we prophesy partially,
+10but when the perfect comes, the partial will pass away.
+So faith, hope, love remain, these three; but the greatest of these is love. 1 Cor 13:8-10, 13.
+
+So let us strive for the gifts of the Holy Spirit, so we can serve the church and also edify our spiritual lives. But our focus should be on our relationship with the Lord. We should grow in the fruits of the Holy Spirit because only the fruit last the gifts will cease.
+
+Let us grow in love, joy, peace, patience, kindness, generosity, faithfulness, gentleness and self-control. Gal 5:22,23
+
+May the Holy Spirit lead us. 🙏
