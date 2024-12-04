@@ -9,6 +9,8 @@
     + [The Importance of Love](#the-importance-of-love)
     + [BIAY Day 337 By Cynthia Dsilva](#biay-day-337-by-cynthia-dsilva)
     + [Day 337 Love never fails](#day-337-love-never-fails)
+  * [December 03,2024](#december-032024)
+    + [Death Defeated](#death-defeated)
 
 <!-- tocstop -->
 
@@ -264,3 +266,9 @@ So let us strive for the gifts of the Holy Spirit, so we can serve the church an
 Let us grow in love, joy, peace, patience, kindness, generosity, faithfulness, gentleness and self-control. Gal 5:22,23
 
 May the Holy Spirit lead us. 🙏
+
+## December 03,2024
+
+### Death Defeated
+
+[![Death Defeated](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day338.jpg)](https://youtu.be/hOyFIABD9IY "Death Defeated")
