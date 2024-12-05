@@ -11,6 +11,13 @@
     + [Day 337 Love never fails](#day-337-love-never-fails)
   * [December 03,2024](#december-032024)
     + [Death Defeated](#death-defeated)
+    + [Day 338 O death where your is your sting](#day-338-o-death-where-your-is-your-sting)
+  * [December 04,2024](#december-042024)
+    + [Priscilla and Aquila](#priscilla-and-aquila)
+    + [Day 339 Living as a loving community](#day-339-living-as-a-loving-community)
+  * [December 05,2024](#december-052024)
+    + [The Power of the Holy Spirit](#the-power-of-the-holy-spirit)
+    + [Day 340 A true Christian life should have a personal relationship with Jesus and be led by the Holy Spirit.](#day-340-a-true-christian-life-should-have-a-personal-relationship-with-jesus-and-be-led-by-the-holy-spirit)
 
 <!-- tocstop -->
 
@@ -272,3 +279,92 @@ May the Holy Spirit lead us. 🙏
 ### Death Defeated
 
 [![Death Defeated](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day338.jpg)](https://youtu.be/hOyFIABD9IY "Death Defeated")
+
+### Day 338 O death where your is your sting
+
+All the advancement in science and technology has not allowed anyone to live forever. Death can be extended but never overcome.
+None of the gods in this world can say they have overcome death or are able to rise again from the dead. Thanks be to God Jesus died and rose again, He now gives us eternal life.
+
+“Death is swallowed up in victory.
+55Where, O death, is your victory?
+Where, O death, is your sting?”
+56The sting of death is sin, and the power of sin is the law.
+57But thanks be to God who gives us the victory through our Lord Jesus Christ.
+1 Cor 15: 54-57
+
+We have nothing to fear as the worst thing that can happen to anyone death, has been conquered by Jesus Christ. We have victory through Christ, we have life eternal, after we died we live forever. We just transition from earthly life to eternal heavenly life.
+
+Behold, I tell you a mystery. We shall not all fall asleep, but we will all be changed,
+52in an instant, in the blink of an eye, at the last trumpet. For the trumpet will sound, the dead will be raised incorruptible, and we shall be changed.
+53For that which is corruptible must clothe itself with incorruptibility, and that which is mortal must clothe itself with immortality. 1 Cor 15:51-53
+
+On our own we are not holy enough to enter into God’s presence, we are mortal and corrupt. But when we put on Christ, the immortal and incorruptibility we are made perfect and holy so we can enter into the presence of God.
+Some of us have a lifetime to prepare and some will not, so we are to always be ready for the Lord. The seasons of the church, Advent and Lent are perfect times to reset and reevaluate our lives. Everything corrupt needs to be clothed with Christ.
+
+May the Holy Spirit lead us. 🙏
+
+## December 04,2024
+
+### Priscilla and Aquila
+
+[![Priscilla and Aquila](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day339.jpg)](https://youtu.be/m_kksSTatG0 "Priscilla and Aquila")
+
+### Day 339 Living as a loving community
+
+Many people stay away from church because of a bad experience with other folks at church. People are hurt intentionally or unintentionally, and people feel excluded or unworthy. Let us try to overcome all of these and come together as a loving community for Christ.
+
+Be on your guard, stand firm in the faith, be courageous, be strong.
+Your every act should be done with love.
+I rejoice in the arrival of Stephanas, Fortunatus, and Achaicus, because they made up for your absence,
+18for they refreshed my spirit as well as yours. So give recognition to such people.
+All the brothers greet you. Greet one another with a holy kiss.
+1 Cor 20: 13,14,17,18,20
+
+St Paul encourages us to be on our guard and to stand firm in our faith, to be courageous and strong, and do everything out of love. We have to be strong both inside and outside the church, we should stand firm when someone tries to push us around, our faith should overcome any fear or overpower any negativity. We should do everything out of love, remember love is patient, kind, enduring, does not hold grudges, not proud or rude. We are called to be a good example in the church, and exhibit love where there seems to be a lack of love.
+
+We should also love the Lord above everything else.
+If anyone does not love the Lord, let him be accursed. Marana tha. 1 Cor 12:3
+
+St Paul seems to be coming off to strong here when we said if anyone does not love the Lord let him be accursed. But a deeper understanding of the word can help.
+
+Accursed: literally, “anathema.” This expression (cf. 1 Cor 12:3) is a formula for exclusion from the community; it may imply here a call to self-examination before celebration of the Eucharist, in preparation for the Lord’s coming and judgment
+
+During the season of Advent don’t we pray Maranatha?
+
+Marana tha: an Aramaic expression, probably used in the early Christian liturgy. As understood here (“O Lord, come!”), it is a prayer for the early return of Christ.
+Come Lord Jesus Come.
+
+May the Holy Spirit lead us 🙏
+
+## December 05,2024
+
+### The Power of the Holy Spirit
+
+[![The Power of the Holy Spirit](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day340.jpg)](https://youtu.be/S66B7h4dObE "The Power of the Holy Spirit")
+
+### Day 340 A true Christian life should have a personal relationship with Jesus and be led by the Holy Spirit.
+
+Many people complain that faith and religion are boring and that they get nothing out of church. Sunday Mass becomes another weekend chore like grocery shopping. We may be missing one of these two important parts of our faith.
+We see how the evil spirit tossed up the sons of Sceva, because they did not have a personal relationship with Jesus.
+
+Then some itinerant Jewish exorcists tried to invoke the name of the Lord Jesus over those with evil spirits, saying, “I adjure you by the Jesus whom Paul preaches.”
+14When the seven sons of Sceva, a Jewish high priest, tried to do this,
+15the evil spirit said to them in reply, “Jesus I recognize, Paul I know, but who are you?”
+16The person with the evil spirit then sprang at them and subdued them all. He so overpowered them that they fled naked and wounded from that house.
+We cannot live our faith lives with textbook knowledge of Jesus, we need to have a loving and living relationship with Jesus. We cannot just claim to know “about” Jesus but need know him.
+
+“You are one with Jesus as the body is one with the head. You must then have one breath with him, one soul, one life, one will, one mind, one heart, and he must be your breath, heart, love, life, your all.”—Saint John Eudes
+
+The second thing missing in our life may be a relationship with the Holy Spirit. We may be like the Christians in Ephesus who had no clue who the Holy Spirit us.
+When I was younger I though the Holy Spirit was just a nice dove that flew around and descended on Jesus at His Baptism. Some people think of the Holy Spirit as a symbol of fire, dove or wind.
+
+He said to them, “Did you receive the holy Spirit when you became believers?” They answered him, “We have never even heard that there is a holy Spirit.”
+3He said, “How were you baptized?” They replied, “With the baptism of John.”
+4Paul then said, “John baptized with a baptism of repentance, telling the people to believe in the one who was to come after him, that is, in Jesus.”
+5When they heard this, they were baptized in the name of the Lord Jesus.
+6And when Paul laid \[his\] hands on them, the holy Spirit came upon them, and they spoke in tongues and prophesied.Ep 19:2-6
+
+The Holy Spirit is no simple dove, but the very life support of our souls. The Holy Spirit is our advocate, counselor, helper, teacher, guide and the very help that Jesus promised us. Jesus said it was better that He went away so that the Holy Spirit can be sent. The Holy Spirit gave the fearful disciples courage to come out of hiding and preach the good news – without fearing even death.
+Let us spend time to speak with Jesus each day and listen to His words, be led by the Holy Spirit and live a love and joy filled life.
+
+May the Holy Spirit lead us. 🙏
