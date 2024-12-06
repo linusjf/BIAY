@@ -18,8 +18,10 @@
   * [December 05,2024](#december-052024)
     + [The Power of the Holy Spirit](#the-power-of-the-holy-spirit)
     + [Day 340 A true Christian life should have a personal relationship with Jesus and be led by the Holy Spirit.](#day-340-a-true-christian-life-should-have-a-personal-relationship-with-jesus-and-be-led-by-the-holy-spirit)
+    + [BIAY Day 340 By Cynthia Dsilva](#biay-day-340-by-cynthia-dsilva)
   * [December 06,2024](#december-062024)
     + [Eternal Weight of Glory](#eternal-weight-of-glory)
+    + [Day 341 We walk by faith, not by sight.](#day-341-we-walk-by-faith-not-by-sight)
 
 <!-- tocstop -->
 
@@ -371,8 +373,59 @@ Let us spend time to speak with Jesus each day and listen to His words, be led b
 
 May the Holy Spirit lead us. 🙏
 
-## December 06,2024 ##
+### BIAY Day 340 By Cynthia Dsilva
 
-### Eternal Weight of Glory ###
+Acts 19:5-6
+*When they heard this, they were baptized in the name of the Lord Jesus.*
+*And when Paul laid his hands on them, the Holy Spirit came upon them, and they spoke in tongues and prophesied.*
+
+The believers received two Sacraments.
+The believers entered the Church with faith.  They were then baptized with water (v.5) (Sacrament of Baptism) to wash away all past sins (for adults), including the curse of original sin (for all), and make them worthy of being part of God’s family, thus enabling them to receive sanctifying graces and take part in the sacrificial meal (Communion).  Thereafter Paul (the Apostle/Bishop) confirmed them by laying his hands upon them (v.6) to receive the Holy Spirit (Sacrament of Confirmation).
+When we receive the first Sacrament (water baptism) the Holy Spirit baptizes us into Jesus (1 Corinthians 12:13) but when we receive the second Sacrament (Confirmation) Jesus baptizes us with the Holy Spirit (Acts 1:5; 2:4).
+Through Baptism we receive the life of the Trinity and through Confirmation we receive the mission of the Trinity.
+
+Acts 19:11-12
+*So extraordinary were the mighty deeds God accomplished at the hands of Paul that when face cloths or aprons that touched his skin were applied to the sick, their diseases left them and the evil spirits came out of them.*
+God heals people even through material things or through dead bodies just as God heals our bodies through the doctors, and heals our souls through the priests; and just as God sanctifies us through water (baptism), and anoints us through oil, etc.
+When the dead body of a Moabite touched Elisha’s dead body the Moabite became alive (2 Kings 13:20-21).
+People were healed when they touched the fringe of the garment of Jesus (Mathew 14:35-36; Mark 5:28-29).
+God uses people and material things to heal people because He wants us to remain in communication with each other to build a family relation.
+
+Acts 19:13-16
+*Then some itinerant Jewish exorcists tried to use the name of the Lord Jesus over those who had evil spirits, saying, “I adjure you by the Jesus whom Paul proclaims.”  Seven sons of a Jewish high priest named Sceva were doing this.  But the evil spirit said to them in reply, “Jesus I know, and Paul I know; but who are you?”  Then the man with the evil spirit leaped on them, mastered them all, and so overpowered them that they fled out of the house naked and wounded.*
+Exorcism in the name of Jesus cannot be performed without faith in Jesus.
+Exorcism performed without the name of Jesus would be demonic.
+Exorcism performed without being in a state of grace can be dangerous for the exorcist.
+
+The authority to exorcise demons was given by Jesus only to the 12 apostles. He didn't give the authority to His other disciples.
+Exorcising demons is not something that anyone can do. To be a successful exorcist it is very important that a man has to be an ordained priest living in a state of grace otherwise it can prove to be disastrous or even fatal for him.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## December 06,2024
+
+### Eternal Weight of Glory
 
 [![Eternal Weight of Glory](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day341.jpg)](https://youtu.be/_JwmReST630 "Eternal Weight of Glory")
+
+### Day 341 We walk by faith, not by sight.
+
+The Christian life is a life of dependence on God, we may not know God’s plan for us but we trust Him fully. We do not go by what we see but walk by faith, knowing that the God who created us will take care of us. We may feel abandoned or alone on this journey especially when we are going through the trials of life. Let us rest assured that Jesus is walking with us and is carrying us.
+
+“We walk by faith, not by sight.” 2corinthians 5:5
+We will face many challenges in life, we may feel as though we are crushed but we will rise again in the strength of the Lord.
+We are afflicted in every way, but not constrained; perplexed, but not driven to despair;
+9persecuted, but not abandoned; struck down, but not destroyed;
+2 Cor 4:8-9
+
+Although we may seem persecuted, afflicted and struck down, we should have faith and we God will make a way out for us. We will never be constrained or driven to despair or destroyed. We will rise up with wings as eagles and our strength will be renewed. The Lord Himself will hold our hands and lift us up. When we are weak He is strong.
+always carrying about in the body the dying of Jesus, so that the life of Jesus may also be manifested in our body.
+
+11For we who live are constantly being given up to death for the sake of Jesus, so that the life of Jesus may be manifested in our mortal flesh. 2 Cor 4:10-11
+
+When we suffer, we suffer with Christ, He is the head and we are the body. But our suffering will bring new life in heaven. Our suffering takes on a new meaning when we unite our suffering with Christ's suffering for the salvation of the world.
+knowing that the one who raised the Lord Jesus will raise us also with Jesus and place us with you in his presence. 2 Cor 4: 14
+
+Our suffering will not be in vain the Holy Spirit will raise us up into the presence of Jesus.
+
+May the Holy Spirit lead us. 🙏
