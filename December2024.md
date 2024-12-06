@@ -18,6 +18,8 @@
   * [December 05,2024](#december-052024)
     + [The Power of the Holy Spirit](#the-power-of-the-holy-spirit)
     + [Day 340 A true Christian life should have a personal relationship with Jesus and be led by the Holy Spirit.](#day-340-a-true-christian-life-should-have-a-personal-relationship-with-jesus-and-be-led-by-the-holy-spirit)
+  * [December 06,2024](#december-062024)
+    + [Eternal Weight of Glory](#eternal-weight-of-glory)
 
 <!-- tocstop -->
 
@@ -368,3 +370,9 @@ The Holy Spirit is no simple dove, but the very life support of our souls. The H
 Let us spend time to speak with Jesus each day and listen to His words, be led by the Holy Spirit and live a love and joy filled life.
 
 May the Holy Spirit lead us. 🙏
+
+## December 06,2024 ##
+
+### Eternal Weight of Glory ###
+
+[![Eternal Weight of Glory](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day341.jpg)](https://youtu.be/_JwmReST630 "Eternal Weight of Glory")
