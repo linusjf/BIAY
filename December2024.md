@@ -29,6 +29,8 @@
   * [December 08,2024](#december-082024)
     + [God Uses Paul's Past](#god-uses-pauls-past)
     + [Day 343 Boast in our weakness](#day-343-boast-in-our-weakness)
+  * [December 09,2024](#december-092024)
+    + [The Thorn in Paul's Side](#the-thorn-in-pauls-side)
 
 <!-- tocstop -->
 
@@ -540,3 +542,9 @@ As a spiritual exercise let us try to reflect on two things.
 In our weakness, we are strong, because God's power is made perfect in out weakness.
 
 May the Holy Spirit lead us. 🙏
+
+## December 09,2024
+
+### The Thorn in Paul's Side
+
+[![The Thorn in Paul's Side](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day344.jpg)](https://youtu.be/GZadAsEqM8o "The Thorn in Paul's Side")
