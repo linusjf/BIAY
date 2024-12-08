@@ -25,8 +25,10 @@
   * [December 07,2024](#december-072024)
     + [Generous Hearts](#generous-hearts)
     + [Day 342 The real struggles of being a disciple of Christ.](#day-342-the-real-struggles-of-being-a-disciple-of-christ)
+    + [BIAY Day 342 By Cynthia Dsilva](#biay-day-342-by-cynthia-dsilva)
   * [December 08,2024](#december-082024)
     + [God Uses Paul's Past](#god-uses-pauls-past)
+    + [Day 343 Boast in our weakness](#day-343-boast-in-our-weakness)
 
 <!-- tocstop -->
 
@@ -467,8 +469,74 @@ Let us pray for all teachings, leaders, priests, parents, elders, or anyone in a
 
 May the Holy Spirit lead us. 🙏
 
-## December 08,2024 ##
+### BIAY Day 342 By Cynthia Dsilva
 
-### God Uses Paul's Past ###
+Acts 21:13
+*Then Paul replied, “What are you doing, weeping and breaking my heart? I am prepared not only to be bound but even to die in Jerusalem for the name of the Lord Jesus.”*
+
+The man who once took the life of a Christian because of his faith (Acts 7:58) was now ready to give his own life for the same faith.  One act of mercy from Stephen changed the life of Paul forever and brought thousands into the Church.
+Paul's conversion should give us hope that if we forgive our persecutors and pray for them, it is possible that they will repent and accept Christ some day.\
+However sinful a person may be, God can convert anyone anytime and use them for His glory.
+
+Therefore, while we make sure to pray for our brothers and sisters who are victims of persecution, let us not forget to pray for the conversion of the persecutors.
+
+2 Corinthians 6:2
+*For he says: “In an acceptable time I heard you, and on the day of salvation I helped you.”  Behold, now is a very acceptable time; behold, now is the day of salvation.*
+For us, the day of salvation is not what happened 2000 years ago.  For us, the day of salvation is "today" because we are members of the Body of Christ.
+We ask the Lord to give us our new Manna "today" (Matthew 6:11) so that we can consume it “today” because if we keep it for the next day it will rot (Exodus 16:19-20).\
+We are building bridges, not walls.
+
+2 Corinthians 6:16–18
+*We are the temple of the living God; as God said, “I will live in them and move among them, and I will be their God, and they shall be my people.  Therefore, come out from them, and be separate from them, says the Lord, and touch nothing unclean; then I will welcome you, and I will be a father to you, and you shall be my sons and daughters.”*
+
+This promise was made to the Israelites (Leviticus 26:11-12; Ezekiel 20:41) but now it is only for the Christians (Jewish and non-Jewish).
+
+When we receive the Body of Christ (John 6:54) in a state of grace (1 Corinthians 11:27-29) we receive divine life and thus we become temples of the living God because God will live in us until we commit a mortal sin.
+
+2 Corinthians 7:10
+*For godly sorrow worketh repentance to salvation not to be repented of: but the sorrow of the world worketh death.*
+True godly sorrow is sorrow over having wounded and broken God’s heart with our sins.  The Holy Spirit will bring out that sorrow.  We cannot truly repent without the Holy Spirit convicting us of our sin.
+
+Trying to appear repentant and sorrowful to escape the consequences of our wrong doings in this world, after being caught, is not true repentance.\
+Repenting and confessing sins without the feeling of guilt, just to keep out of Hell, is also not true repentance.\
+Those are all types of worldly sorrow.
+
+When we realize just how much God loves us, and when we feel the pain that Jesus felt during His passion for our sins, the Holy Spirit will make that awareness come to us and cause us to grieve. It is more like a rebellious young man in a prison cell reflecting on how he hurt and disgraced his parents and siblings by committing a crime; that is godly sorrow.  It is the sorrow that comes from our heart.
+
+2 Corinthians 8:9
+*For you know the generous act of our Lord Jesus Christ, that though he was rich, yet for your sakes he became poor, so that by his poverty you might become rich.*
+Jesus was rich when He was divine but He became a poor human so that by receiving Him into our bodies in a state of grace we can share in His divine nature.  In other words, Jesus in His generosity gave up His divinity to make us spiritually rich.\
+Likewise, in imitation of Christ, we too must give up all our earthly comfort and luxury and lead simple lives so that we can give our excess to the poor to help raise them up to our level (Acts 4:34-35).
+
+Thus we can gradually erase poverty with our generosity.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## December 08,2024
+
+### God Uses Paul's Past
 
 [![God Uses Paul's Past](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day343.jpg)](https://youtu.be/303oZA9f-Fo "God Uses Paul's Past")
+
+### Day 343 Boast in our weakness
+
+St Paul went through many trails and hardships as he persistently preached Jesus.
+I am still more, with far greater labors, far more imprisonments, far worse beatings, and numerous brushes with death.
+
+24Five times at the hands of the Jews I received forty lashes minus one.
+25Three times I was beaten with rods, once I was stoned, three times I was shipwrecked, I passed a night and a day on the deep;
+26on frequent journeys, in dangers from rivers, dangers from robbers, dangers from my own race, dangers from Gentiles, dangers in the city, dangers in the wilderness, dangers at sea, dangers among false brothers;
+27in toil and hardship, through many sleepless nights, through hunger and thirst, through frequent fastings, through cold and exposure.
+28And apart from these things, there is the daily pressure upon me of my anxiety for all the churches. 1 Cor 11:23-28
+
+St Paul was beaten, stoned, shipwrecked, exposed to the dangers of elements, robbers, wilderness, sea, fasting, hunger and most hard of all daily pressure and anxiety for all the churches. Instead of running away from suffering, Paul decided to boast in them, boast in his weakness.
+“If I must boast, I will boast of the things that show my weakness” 2 Cor 11:30.
+
+As a spiritual exercise let us try to reflect on two things.
+
+1. What suffering am I willing to go through for the sake of the Kingdom?
+2. What do I boast in, my strengths or my weaknesses.
+
+In our weakness, we are strong, because God's power is made perfect in out weakness.
+
+May the Holy Spirit lead us. 🙏
