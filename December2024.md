@@ -25,6 +25,8 @@
   * [December 07,2024](#december-072024)
     + [Generous Hearts](#generous-hearts)
     + [Day 342 The real struggles of being a disciple of Christ.](#day-342-the-real-struggles-of-being-a-disciple-of-christ)
+  * [December 08,2024](#december-082024)
+    + [God Uses Paul's Past](#god-uses-pauls-past)
 
 <!-- tocstop -->
 
@@ -464,3 +466,9 @@ Sometimes as parents or leaders, we should not hesitate to correct those in our 
 Let us pray for all teachings, leaders, priests, parents, elders, or anyone in authority.
 
 May the Holy Spirit lead us. 🙏
+
+## December 08,2024 ##
+
+### God Uses Paul's Past ###
+
+[![God Uses Paul's Past](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day343.jpg)](https://youtu.be/303oZA9f-Fo "God Uses Paul's Past")
