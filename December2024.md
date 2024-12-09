@@ -29,6 +29,7 @@
   * [December 08,2024](#december-082024)
     + [God Uses Paul's Past](#god-uses-pauls-past)
     + [Day 343 Boast in our weakness](#day-343-boast-in-our-weakness)
+    + [BIAY Day 343 By Cynthia Dsilva](#biay-day-343-by-cynthia-dsilva)
   * [December 09,2024](#december-092024)
     + [The Thorn in Paul's Side](#the-thorn-in-pauls-side)
 
@@ -542,6 +543,34 @@ As a spiritual exercise let us try to reflect on two things.
 In our weakness, we are strong, because God's power is made perfect in out weakness.
 
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 343 By Cynthia Dsilva
+
+Acts 22:30
+God could have definitely freed Paul but it was not His Will at that moment because it would not accomplish God's salvation plan.
+
+If we are going through some problem or sickness or suffering, there is no harm in asking God to free us from the problem or sickness or suffering but until the solution comes we must continue focusing on God's Will because that may have been God's way of leading us on His path.
+
+2 Corinthians 9:7
+*Each of you must give as you have made up your mind, not reluctantly or under compulsion, for God loves a cheerful giver.*
+The sheep received their heavenly reward because they were charitable and the goats were condemned.
+Paul was teaching the people how important it was to be charitable.
+
+2 Corinthians 10:12
+*We do not dare to classify or compare ourselves with some of those who commend themselves. But when they measure themselves by one another, and compare themselves with one another, they do not show good sense.*
+False prophets equal themselves to eloquent speakers to prove that they are the true prophets.
+
+2 Corinthians 11:4
+*For if someone comes and proclaims another Jesus than the one we proclaimed, or if you receive a different spirit from the one you received, or a different gospel from the one you accepted, you submit to it readily enough.*
+The false prophets may have been teaching one or more of the below heresies which had already started spreading during the first century AD:
+
+1. Jesus was not God
+2. Jesus was not man,
+3. Jesus wasn't crucified,
+4. Jesus didn't rise from the dead.
+   Paul gave the people a choice.  They could either embrace the truth, even if the preacher was not a good speaker, or they could accept an impressive preacher who tickled their ears with lies.
+
+🔥🔥🔥🔥🔥🔥🔥
 
 ## December 09,2024
 
