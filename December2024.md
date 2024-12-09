@@ -32,6 +32,7 @@
     + [BIAY Day 343 By Cynthia Dsilva](#biay-day-343-by-cynthia-dsilva)
   * [December 09,2024](#december-092024)
     + [The Thorn in Paul's Side](#the-thorn-in-pauls-side)
+    + [Day 344 My grace is sufficient for you, for power is made perfect in weakness.](#day-344-my-grace-is-sufficient-for-you-for-power-is-made-perfect-in-weakness)
 
 <!-- tocstop -->
 
@@ -577,3 +578,22 @@ The false prophets may have been teaching one or more of the below heresies whic
 ### The Thorn in Paul's Side
 
 [![The Thorn in Paul's Side](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day344.jpg)](https://youtu.be/GZadAsEqM8o "The Thorn in Paul's Side")
+
+### Day 344 My grace is sufficient for you, for power is made perfect in weakness.
+
+St Paul received great revelation from God, he did not meet the other disciples or learn much from them, we all remember Jesus appeared to him during his conversion when he was struck down from the horse. It seems he was receiving all this doctrine supernaturally.
+
+Therefore, that I might not become too elated, a thorn in the flesh was given to me, an angel of Satan, to beat me, to keep me from being too elated.
+
+Three times I begged the Lord about this, that it might leave me,
+9 but he said to me, “My grace is sufficient for you, for power is made perfect in weakness.” I will rather boast most gladly of my weaknesses, in order that the power of Christ may dwell with me.
+10Therefore, I am content with weaknesses, insults, hardships, persecutions, and constraints, for the sake of Christ; for when I am weak, then I am strong. 2 Cor 12:8-10
+
+St Paul was given a thorn in his flesh, we can only speculate if it was a sin, sickness or disability. Or probably the inability to speak well in public or his poor eyesight. Whatever it was it really troubled him, Paul begged God to take it away 3 times, here 3 times is not literally 3 times it must have been more than three. 3 is a complete number symbolizing the trinity – so St Paul really prayed through and prayed completely for this thorn to be removed.
+
+God did not answer him positively but gave him a better solution. The solution was God himself, it was not by our holiness but by God’s power that our weakness is made strong. We are made perfect in Christ. God’s grace is sufficient for us, whatever is lacking in us is filled by God’s love.
+God was saving Paul from the greatest sin of all, the sin of Pride. That is why the thorn was permitted in Paul’s life.
+
+So when you struggle with habitual sin or a chronic condition and wonder why God does not deliver you from it, maybe it’s God’s way of keeping us close to Him. Whenever you find yourself lacking or weak run to Jesus in the sacrament of Reconciliation and the Eucharist. God’s grace is sufficient for us, power is made perfect in weakness.
+
+May the Holy Spirit lead us. 🙏
