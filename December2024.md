@@ -36,6 +36,7 @@
     + [BIAY Day 344 By Cynthia Dsilva](#biay-day-344-by-cynthia-dsilva)
   * [December 10,2024](#december-102024)
     + [One in Christ](#one-in-christ)
+    + [Day 345 Just being a good person is not our Christian calling.](#day-345-just-being-a-good-person-is-not-our-christian-calling)
 
 <!-- tocstop -->
 
@@ -631,3 +632,25 @@ The proof of a prophet or apostle chosen by God is seen in the miracles which th
 ### One in Christ
 
 [![One in Christ](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day345.jpg)](https://youtu.be/iTLJ-8gh3Zk "One in Christ")
+
+### Day 345 Just being a good person is not our Christian calling.
+
+"I have been crucified with Christ; yet I live, no longer I, but Christ lives in me"
+
+Many people try to justify not going to Church by saying – “I’m a good person”. They are trying to justify themselves by following the law, not the Jewish law but their own law. People make up their own rules or follow the moral rules of natural law and think they will get to heaven. Heaven is described as a place where God is present and if people don’t want to have anything to do with God on earth then there is no point in going to heaven to be with God forever.
+
+who know that a person is not justified by works of the law but through faith in Jesus Christ, even we have believed in Christ Jesus that we may be justified by faith in Christ and not by works of the law, because by works of the law no one will be justified.Gal 2:16
+
+We are not saved by works, so just doing good works will not get us to heaven. If we could be saved by being a good person then there was no need for Jesus to die for us.
+If we are satisfied by just being a good person we fall into the trap of being perfect and not needing a savior, because we have already achieved what is good.
+We are to have faith in Christ, we need to die to ourselves and live in Christ.
+
+For through the law I died to the law, that I might live for God. I have been crucified with Christ;
+20yet I live, no longer I, but Christ lives in me; insofar as I now live in the flesh, I live by faith in the Son of God who has loved me and given himself up for me.
+21I do not nullify the grace of God; for if justification comes through the law, then Christ died for nothing.Gal 2: 19-21
+
+Living a life united with Christ on earth will get us to heaven. When goodness itself lives in our heart, we radiate the love of Christ to this dark world.
+It is no longer about me, it’s about Christ present in my heart. My hands are not mine anymore but Christ’s hands which love the poor and weak. My feet are not mine but Christ’s which are feet that bring good news to the world.
+I have been crucified with Christ, it is no longer I who live but Christ lives in me.
+
+May the Holy Spirit lead us
