@@ -33,6 +33,9 @@
   * [December 09,2024](#december-092024)
     + [The Thorn in Paul's Side](#the-thorn-in-pauls-side)
     + [Day 344 My grace is sufficient for you, for power is made perfect in weakness.](#day-344-my-grace-is-sufficient-for-you-for-power-is-made-perfect-in-weakness)
+    + [BIAY Day 344 By Cynthia Dsilva](#biay-day-344-by-cynthia-dsilva)
+  * [December 10,2024](#december-102024)
+    + [One in Christ](#one-in-christ)
 
 <!-- tocstop -->
 
@@ -597,3 +600,34 @@ God was saving Paul from the greatest sin of all, the sin of Pride. That is why 
 So when you struggle with habitual sin or a chronic condition and wonder why God does not deliver you from it, maybe it’s God’s way of keeping us close to Him. Whenever you find yourself lacking or weak run to Jesus in the sacrament of Reconciliation and the Eucharist. God’s grace is sufficient for us, power is made perfect in weakness.
 
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 344 By Cynthia Dsilva
+
+Acts 23:6-11
+Paul was aware of the mixed crowd in front of him and therefore used his wisdom to create a situation which would force the Sanhedrin to transfer him to Rome, where he wanted to take the Gospel because Rome was the center of the world during those days. He distracted them with his statement and pitted them against each other, causing an uproar in the House so that he would be removed from the trial.
+
+2 Corinthians 12:7-10
+*Therefore, that I might not become too elated because of the abundance of the revelations, a thorn in the flesh was given to me, an angel of Satan, to beat me, to keep me from being too elated.   Three times I begged the Lord about this, that it might leave me, but he said to me, “My grace is sufficient for you, for power is made perfect in weakness.”  I will rather boast most gladly of my weaknesses, in order that the power of Christ may dwell with me.   Therefore, I am content with weaknesses, insults, hardships, persecutions, and constraints, for the sake of Christ; for when I am weak, then I am strong.*
+
+The thorn in the flesh may have been an adversary of Paul who was making his life miserable, or it may have been a wound that hurt him real bad, like a throbbing pain, so he begged the Lord to take away his suffering.
+
+Like Jesus in the garden of Gethsemene, three times Paul begged Jesus to spare him of the suffering but the answer was "no," therefore Paul accepted the suffering as God's Will.  The healing was withheld for a higher purpose.
+
+When God chooses people for His mission, He will break them with sufferings (sickness, insults, humiliation, rejection, problems, etc.) so that when people see the positive results inspite of the suffering they will believe that it is because of the power of God working in those chosen people and not because of their expertise.  The suffering is also meant to humble the chosen ones so that they may not boast about their achievements.
+
+When Paul spoke of his credentials he did not refer to the degrees or certificates which he had acquired from learning under the guidance of the famous Rabbi.  Rather he spoke of his sufferings (2 Corinthians 11:23-28) because, by being patient and resigned during his sufferings for the sake of Christ he had allowed Christ to suffer through him and thus made Christ victorious in bringing salvation to others.
+
+Paul clearly understood his mission as a follower of Christ and was faithful to his mission.
+If we have not understood our mission as Christians then let us ask the Lord to help us understand His Will for us.
+
+2 Corinthians 12:12
+*The signs of a true apostle were performed among you with utmost patience, signs and wonders and mighty works.*
+The proof of a prophet or apostle chosen by God is seen in the miracles which the prophet or apostle  works.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## December 10,2024
+
+### One in Christ
+
+[![One in Christ](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day345.jpg)](https://youtu.be/iTLJ-8gh3Zk "One in Christ")
