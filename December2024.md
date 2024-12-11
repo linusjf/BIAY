@@ -40,6 +40,8 @@
     + [BIAY Day 345 By Cynthia Dsilva](#biay-day-345-by-cynthia-dsilva)
   * [December 11,2024](#december-112024)
     + [Fruits of the Spirit](#fruits-of-the-spirit)
+  * [December 12,2024](#december-122024)
+    + [Witness to Unbelievers](#witness-to-unbelievers)
 
 <!-- tocstop -->
 
@@ -706,3 +708,9 @@ Paul was not speaking about good works of mercy, or against it.  According to th
 ### Fruits of the Spirit
 
 [![Fruits of the Spirit](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day346.jpg)](https://youtu.be/ai-TYQfqfJo "Fruits of the Spirit")
+
+## December 12,2024 ##
+
+### Witness to Unbelievers ###
+
+[![Witness to Unbelievers](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day347.jpg)](https://youtu.be/SpICMs89QF0 "Witness to Unbelievers")
