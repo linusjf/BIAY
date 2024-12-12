@@ -40,8 +40,10 @@
     + [BIAY Day 345 By Cynthia Dsilva](#biay-day-345-by-cynthia-dsilva)
   * [December 11,2024](#december-112024)
     + [Fruits of the Spirit](#fruits-of-the-spirit)
+    + [Day 346 The Fruit of the Spirit](#day-346-the-fruit-of-the-spirit)
   * [December 12,2024](#december-122024)
     + [Witness to Unbelievers](#witness-to-unbelievers)
+    + [Day 347 Promises & Blessings from Ephesians 1](#day-347-promises--blessings-from-ephesians-1)
 
 <!-- tocstop -->
 
@@ -709,8 +711,58 @@ Paul was not speaking about good works of mercy, or against it.  According to th
 
 [![Fruits of the Spirit](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day346.jpg)](https://youtu.be/ai-TYQfqfJo "Fruits of the Spirit")
 
-## December 12,2024 ##
+### Day 346 The Fruit of the Spirit
 
-### Witness to Unbelievers ###
+Just as a tree is known by its fruit, a disciple of Jesus is known by their fruits.
+
+In contrast, the fruit of the Spirit is love, joy, peace, patience, kindness, generosity, faithfulness, gentleness, self-control.Gal 5:22-23
+
+We could spend hours going over each of these fruits and we should ponder on each of these each day. We can use the fruits of the Spirit to examine our conscience every night, check if we loved enough, had joy in our trials, keep the peace, were kind to strangers, generous to those in need, faithful to God, family and friends, did we have self-control on our senses? I’m sure we all will feel that we are lacking in some area or the other.
+So how do we grow more fruit? The answer is simple we need to nourish the tree. We nourish ourselves with the Sacraments, especially the Holy Eucharist, we prune dead branches at the sacrament of reconciliation. The trees need the sun to live so do we, we need the “Son” to live. Personal prayer and Bible reading are a critical part of our nourishment as well. Also trees stay together in a forest so they can withstand gusty winds and other elements, we likewise need the love of a community to grown and be strong.
+Most important thing for a tree is water, we need the living waters – the Holy Spirit to thrive.
+
+For the flesh has desires against the Spirit, and the Spirit against the flesh; these are opposed to each other, so that you may not do what you want. But if you are guided by the Spirit, you are not under the law. Gal 5:17-18
+
+If we want to bear fruit we need to be guided by the Holy Spirit, we just cannot do what the flesh desires. The desires of the flesh are opposed to the Holy Spirit. The works of the flesh can drag us down and stunt our growth.
+
+Now the works of the flesh are obvious: immorality, impurity, licentiousness,
+20idolatry, sorcery, hatreds, rivalry, jealousy, outbursts of fury, acts of selfishness, dissensions, factions,
+21occasions of envy, drinking bouts, orgies, and the like. I warn you, as I warned you before, that those who do such things will not inherit the kingdom of God. Gal 5:19-21
+
+Let us steer clear of the above traps of the flesh and be led by the Holy Spirit. If we can focus on leading a holy life, a life led and guided by the Holy Spirit the fruit of the Spirit will automatically grow and people will take joy in our presence. People will be drawn to us when they see the love, joy, peace, patience…..
+
+May the Holy Spirit lead us. 🙏
+
+## December 12,2024
+
+### Witness to Unbelievers
 
 [![Witness to Unbelievers](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day347.jpg)](https://youtu.be/SpICMs89QF0 "Witness to Unbelievers")
+
+### Day 347 Promises & Blessings from Ephesians 1
+
+Sometime the best thing to do is read and ponder on the Bible. Let us do just that as we read the promises and blessings from Ephesians 1.
+
+4 God choose us in Christ before the creation of the world
+
+5 From Eternity he destined us in love to be his adopted sons and daughters in Christ
+
+7 in Christ we obtain freedom, sealed by His blood
+have forgiveness of sins greatness of his grace he lavishes on us
+
+14 We were sealed by the Holy Spirit
+
+17 May God reveal himself to you & give you a spirit of wisdom & revelation
+
+18 May he enlighten your inner vision
+May we know how great the inheritance, the glory, God sets apart for us
+
+19 May we understand with what extraordinary power he acts in favor of us who believe
+
+20 Jesus Christ is above all rule, power, authority, dominion or any supernatural force that could be named
+
+22 God put all things under his feet, Christ is the head we are the body.
+
+Let us Pray: Lord Jesus, reveal your self to me and may I experience the greatness of your grace. Thank you for working in my favor with extraordinary power. I submit my life at your feet Lord, lead me Lord.
+
+May the Holy Spirit lead us.
