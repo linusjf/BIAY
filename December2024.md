@@ -48,6 +48,7 @@
   * [December 13,2024](#december-132024)
     + [Rules for the New Life](#rules-for-the-new-life)
     + [Day 348 Put on the armor of God](#day-348-put-on-the-armor-of-god)
+    + [BIAY Day 348 By Cynthia Dsilva](#biay-day-348-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -841,3 +842,106 @@ SWORD OF THE SPIRIT – THE WORD OF GOD
 Imagine a soldier in a battle without his sword. The enemy will keep on attacking until the armor is broken. That is the case with many Christians today, they do not know the word of God. “My people are destroyed for lack of knowledge” So rightly said in Hosea we are unable to stand up against the devil because we do not know the Word of God. Remember Jesus in the desert fought off the devil with the Word of God. The Sword is the only offensive weapon we have, and so is the Word of God, it is sharper than any two-edged sword. If you want to live a victorious life, read scripture and memorize it. The Holy Spirit will bring to you the right scripture in battle.
 
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 348 By Cynthia Dsilva
+
+Acts 27:17
+*They hoisted it aboard, then used cables to undergird the ship. Because of their fear that they would run aground on the shoal of Syrtis, they lowered the drift anchor and were carried along in this way.*
+
+The sailors were afraid of being driven across to the quicksands of the African coast, so they lowered the topsails and were thus driven before the wind.
+The ship that Paul was sailing on encountered a huge storm with hurricane force winds. For fourteen days they didn’t see the sun or the stars. The sailors tried their best to steer the ship, did everything they could to keep control, but the winds were too strong. Therefore, instead of fighting it and trying to force where they wanted the ship to go, they took down the sails and let the wind drive them.
+
+Are we trying to control everything and getting upset because it’s not happening according to our way?  Are we trying to force things to happen our way?
+
+When we have done everything we can —we have prayed, we have believed, we have stood in faith—there comes a time when we have to do like the sailors did:  Quit fighting it, quit trying to force it to work out, quit losing sleep, and release control of it into God’s hands. Then rest in faith and trust Him.  God will take the same winds that were meant to stop us and shift them to blow us forward according to His plan.
+
+Acts 27:33-38
+After breaking bread (“artos” in Greek) (v. 27:35), Paul did not distribute it as is the normal procedure.  Paul celebrated the new Passover (Mass) and consumed the Body of Christ (Holy Eucharist) himself, while the other people in the boat ate normal food (“trapheh” in Greek) (v. 27:34 & 36), probably because they were not baptized people.
+
+Ephesians 4:7 and 11-13
+*But each of us was given grace according to the measure of Christ’s gift.  The gifts he gave were that some would be apostles, some prophets, some evangelists, some pastors and teachers, to equip the saints for the work of ministry, for building up the body of Christ, until all of us come to the unity of the faith and of the knowledge of the Son of God, to maturity, to the measure of the full stature of Christ.*
+
+The duty of the people in authority in the Church is not only to spread the Gospel but also to train their subordinates to spread the Gospel. And the role of the subordinates in the Church is not a passive role of just listening to the Word of God, but, along with the people in authority, the subordinates must also play an active role in the Church by assisting in spreading the Gospel.
+
+Ephesians 4:26
+*Be angry but don't sin.*
+
+When we are offended by others or when we see the wicked ones harming the innocent ones, it is understandable that such behavior makes us angry. But, in our anger, when we go one step further to retaliate, then we are no different than those sinners.
+
+Creating a negative situation is the devil's way of dragging the good ones on his path.
+God allows that to happen as a test for us and also so that we can bring those negative people close to Him with our patience, prayers and forgiveness.
+When we face such situations let us remember that when Jesus was attacked physically and verbally, He did not retaliate.  Instead, He patiently bore the pain of the extreme torture and forgave them.
+
+Ephesians 5:1-20
+If a man uses his neighbors or friends to help him daily with his work, he will pay them at the end of the day or the month and send them home, but he will not give a share of his inheritance for his neighbors or friends.  His inheritance will always be for his obedient children, not even for his rebellious ones.  The rebellious ones may end up in prison for life.
+
+Similarly, since God is a Holy Father, He may use many people to do His kingdom work on earth but His inheritance will only be for His obedient children.  The rebellious ones may end up in prison (Hell) for life.
+
+Paul therefore warns us to beware of unholy life.  We must avoid sinful thoughts, sinful words and sinful deeds.  God’s children belong to Heaven and must therefore not allow anger, hatred, revenge, greed, selfishness, lies, disobedience, etc., etc. to enter their hearts (Ephesians 4:31-32).  Alcohol must be consumed within limits so that they don’t get drunk or else the evil spirit will start controlling them.  We must lead holy lives so that we keep the flame of the Holy Spirit burning within us always (v.18).
+
+We are called to be like God by practicing our virtues.  We must therefore be kind, loving, generous, forgiving, etc.
+
+Ephesians 5:1
+*Be imitators of God, as beloved children.*
+
+Paul was not asking us to divinize ourselves.
+
+We have been created in the image and likeness of God (Genesis 1:26-27), therefore we have the ability to be loving, forgiving, generous, kind, patient, understanding, etc. and we can imitate God by practicing these virtues.  This means that we must always remain in a Covenant relation with God, not with Satan.  We can go a long way by doing little acts of love and forgiveness, little acts of generosity and kindness, etc. both in and out of our homes.
+
+God is love, and those who live in love live in God, and God lives in them (1 John 4:16).  God's Covenant love is free, faithful, total and fruitful.
+
+If we say that we have surrendered ourselves to Christ, then we must love everyone around us unconditionally like Christ, and we must also be ready to suffer like Christ, because there is no true love without suffering.
+
+Ephesians 5:3-7
+When our faith is weak, we must not associate ourselves with people who take us away from God.  Instead, we must strengthen our faith and do our best to bring others closer to God by the way we live, speak and interact with others.
+Idolatry is not just about worshipping statues of creation. Idolatry is also about spending more time with creation than required and less time with God.\
+Example:  working extra hours, spending too much time with social media, entertainment (movies, TV shows, sports, etc.), etc.
+
+Ephesians 5:8-14
+Paul was addressing the Ephesians who were pagans before they came into the Church. They were probably not aware of what was good and what was bad because in paganism it was normal to accept certain practices which were abhorrent to God, such as abuse of women and children, idolatry, immorality, etc.
+Christians must therefore, not only avoid doing those evils but they must also avoid speaking about them.
+
+Ephesians 5:14-16
+*Awake, O sleeper, rise from the dead, and Christ will shine on you. Be careful then how you live, not as unwise people but as wise, making the most of the time, because the days are evil.*
+
+Paul wants us to wake up from the sinful world, stay away from it and try to do everything that pleases God.  We do not know when our time on earth will end therefore we must spend our earthly life in making wise decisions that will help us to come closer to God by the way we live and by the way we act.
+
+Ephesians 5:15-16
+*Be careful then how you live, not as unwise people but as wise, making the most of the time, because the days are evil.*
+
+We must use our time to do God's Will and try to accomplish God's mission, as if we are going to die tomorrow. We must try to do whatever is possible when we are alive. We must not use our time to get involved with worldly things.
+
+Ephesians 5:18-20
+*Do not get drunk with wine, for that is debauchery; but be filled with the Spirit, as you sing psalms and hymns and spiritual songs among yourselves, singing and making melody to the Lord in your hearts, giving thanks to God the Father at all times and for everything in the name of our Lord Jesus Christ.*
+
+God gave the Israelites a land which was rich in grapes (Numbers 13:23), because wine was to be used in the daily offerings during the Liturgical services, in the old Covenant (Exodus 29:38-42) as well as in the new Covenant (Matthew 26:27; Revelation 6:6).
+
+Therefore Paul does not say "don't drink wine"; He warns us not to get drunk because excess of anything, other than God, is a sin and the beginning of disaster.  Drinking wine is not a sin but if we don’t have self-control then it is better not to touch wine.
+
+The Ephesians may have had a serious addiction to wine because Paul doesn't speak so strongly to the other Churches about getting drunk.  However, Paul's instructions are valid even today. When we consume wine beyond limit it causes evil words to flow out of our mouths, and thus we separate ourselves from God (Proverbs 23:31-35).  Instead, Paul wants us to use our tongues to worship God by singing Psalms, hymns, spiritual songs, etc. and engage ourselves with activities that bring us closer to God.
+
+Ephesians 5:21-33
+The first level of humility is obedience.  The next level is service.
+A baptized man is a symbol of Christ (the new Adam) and a baptized woman is a symbol of the Church (the new Eve) (Ephesians 5:23-24).
+When a man does not obey God's commandments then he must not have any expectations from his wife because when the head of the family is in a Covenant with Satan then the whole family struggles spiritually.
+
+Marriage with conditions is a contract, not a Covenant and is not from God.\
+In marriage there is no return policy.
+Man and wife must love and serve each other to bring out the best person in the spouse, and not to highlight their spouse’s weaknesses (Ephesians 5:21).  We must allow God to use our spouses to correct us whenever we are wrong.  Both man and wife must find ways to serve each other, and not expect to be served.
+
+As the head of the family, a man's mission is to die to himself every day in order to make his wife holy.  Whatever he does he must do for his wife and not for himself.  The intention is to ensure that with their love and care for each other, no sin enters their home and their lives, so that they will both receive eternal life.
+
+The Holy Family is a great example for us. Jesus was the Son of God the Father and Mary was the Mother of God the Son. Joseph was the only ordinary human and the least among the three. But Jesus and Mary did not rule over Joseph. They subjected themselves to Joseph in obedience to his every decision.
+
+Ephesians 6:10-20
+In Ephesians 5 Paul just finished giving us advice on how to live a holy family life, by loving each other with sacrificial love; love between man and wife, between parents and children, between masters and slaves.
+But in Ephesians 6 Paul starts speaking of spiritual warfare.
+The greatest battle field we have to stand on in life is the battle field of our own homes.  Jesus commanded us to carry our crosses faithfully every day (Luke 9:23) but the most difficult crosses which we have to carry may be in our own homes.   We may, therefore, sometimes find it more easier to practice our Christian faith faithfully outside our homes rather than inside.
+Marriage was God's plan for bringing forth new life therefore family is what Satan hates because he is the author of death.
+
+Therefore, if we have a difficult or unfaithful spouse, rebellious children, nagging in-laws, etc. let us remember that it is not our family members that are bad but it is Satan using our family members to force us to eat the forbidden fruit through quarrels, misunderstanding, accusations, blaming each other, etc. to drag us into his kingdom along with our families.\
+Let us, therefore, ensure that we forgive each other as God forgives us, not with sarcastic apologies, but with genuine apologies from the heart.
+It is not wrong to put on the full armour of God when we are outside our homes, but God wants us to put on His full armour first in our own homes.\
+Spiritually healthy families together make a healthy Church.
+
+🔥🔥🔥🔥🔥🔥🔥
