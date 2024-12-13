@@ -44,6 +44,10 @@
   * [December 12,2024](#december-122024)
     + [Witness to Unbelievers](#witness-to-unbelievers)
     + [Day 347 Promises & Blessings from Ephesians 1](#day-347-promises--blessings-from-ephesians-1)
+    + [BIAY Day 347 By Cynthia Dsilva](#biay-day-347-by-cynthia-dsilva)
+  * [December 13,2024](#december-132024)
+    + [Rules for the New Life](#rules-for-the-new-life)
+    + [Day 348 Put on the armor of God](#day-348-put-on-the-armor-of-god)
 
 <!-- tocstop -->
 
@@ -766,3 +770,74 @@ May we know how great the inheritance, the glory, God sets apart for us
 Let us Pray: Lord Jesus, reveal your self to me and may I experience the greatness of your grace. Thank you for working in my favor with extraordinary power. I submit my life at your feet Lord, lead me Lord.
 
 May the Holy Spirit lead us.
+
+### BIAY Day 347 By Cynthia Dsilva
+
+Acts 26:14
+*"It hurts you to kick against the goads (spikes)."*
+
+This is a Greek proverb about useless and harmful resistance, well understood by the farmers. Stubborn yoked oxen that kick against the plowman will only hurt themselves on the goads (sharp spikes) behind them.
+
+Jesus had told Paul that Paul’s resistance to the Gospel was futile to the point of being personally harmed.
+
+This is true, not only for Paul, but for every human, Christian and non-Christian.
+It is possible that a Christian can reject the Gospel some time after he is baptized, if he desires to follow another faith, either because he is threatened or offered some benefits or for any other reason.
+
+Acts 26:32
+*And Agrippa said to Festus, “This man could have been set free if he had not appealed to Caesar.”*
+
+Paul appealed to the emperor (Caesar), not because he wanted to be set free but because he had a strong desire to preach the Gospel to Caesar (Acts 28:xxxxx).\
+Do we have that kind of passion to spread the Gospel even when times are bad for us?
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## December 13,2024
+
+### Rules for the New Life
+
+[![Rules for the New Life](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day348.jpg)](https://youtu.be/DXRlsHSDHRo "Rules for the New Life")
+
+### Day 348 Put on the armor of God
+
+To live as a true Christian means to live in a war zone on earth. The world around us is not a perfect place to live in, there are many distractions, temptations, anxieties, and opposition. The world values are opposed to the Kingdom's values and principles. We sometimes overlook the fact that the devil and his fallen angels are constantly at war against us trying to rob, steal, and destroy our souls.
+For our struggle is not with flesh and blood but with the principalities, with the powers, with the world rulers of this present darkness, with the evil spirits in the heavens Ep 6:12
+
+We need to draw strength from the Lord who is all-powerful and the enemy stands defeated in His Mighty and Matchless name, the name of Jesus.
+Finally, draw your strength from the Lord and from his mighty power. Ep 6:10
+
+We need to guard ourselves against the contact attack we are under, the way to do that is to put on the whole armor of God. In fact, it is stated twice to put on the armor of God. When things are important they are mentioned twice. Just like Jesus said “truly truly I say to you”
+Put on the armor of God so that you may be able to stand firm against the tactics of the devil. Ep 6:11
+
+Therefore, put on the armor of God, that you may be able to resist on the evil day and, having done everything, to hold your ground. Ep 6:13
+The armor of God is compared to a soldier’s armor, because we are in the battlefield.
+So stand fast with your loins girded in truth, clothed with righteousness as a breastplate,
+15and your feet shod in readiness for the gospel of peace.
+16In all circumstances, hold faith as a shield, to quench all \[the\] flaming arrows of the evil one.
+17And take the helmet of salvation and the sword of the Spirit, which is the word of God. Ep 6:14-17
+
+· Belt of Truth
+· Breastplate of righteousness
+· Shoes of Peace
+· Shield of Faith
+· Helmet of Salvation
+· Sword of the Spirit – the word of God
+
+BELT OF TRUTH
+As a Christian we know that the truth sets us free, so we always have to secure our lives in the truth. Just as the belt holds our cloths secure and prevents us from disgrace, so does truth. My mom always said – “if you tell one lie, you will need to tell 10 more lies to cover that up.” We have to hold firm to the truth of the Gospel and the truth about ourselves.
+
+BREASTPLATE OF RIGHTEOUSNESS
+None our us can claim to be righteous except through the righteousness we receive from Christ. We should always stay in a state of grace, going to confession if we have any mortal sin on our hearts. Going to regular Mass helps wash away the venial sins.
+
+SHOES OF PEACE
+Blessed are the feet that bring good news to the world. We are called to be peacemakers and ones who will bring people together. We are called to go out to the ends of the earth to proclaim God’s word. Wearing shoes means ready and willing to go out as the Holy Spirit leads.
+How beautiful on the mountains are the feet of those who bring good news, who proclaim peace, who bring good tidings, who proclaim salvation, who say to Zion, “Your God reigns!” Is 52:7
+
+SHIELD OF FAITH
+In all circumstances we should hold faith as a shield, to quench all the flaming arrows of the evil one. The evil one will shoot arrows of doubt, negativity, lies, confusion, envy, jealously, anger… we are to hold up the shield of Faith, knowing that God will take care of us. Holding up the shield of faith means knowing that God is on our side and no weapon formed against us will prosper.
+
+HELMET OF SALVATION
+Knowing that Jesus has saved us from death and that He will give us eternal life should always be on our minds. If you struggle with suicidal thoughts or depression, guard your mind with the Helmet of Salvation.
+SWORD OF THE SPIRIT – THE WORD OF GOD
+Imagine a soldier in a battle without his sword. The enemy will keep on attacking until the armor is broken. That is the case with many Christians today, they do not know the word of God. “My people are destroyed for lack of knowledge” So rightly said in Hosea we are unable to stand up against the devil because we do not know the Word of God. Remember Jesus in the desert fought off the devil with the Word of God. The Sword is the only offensive weapon we have, and so is the Word of God, it is sharper than any two-edged sword. If you want to live a victorious life, read scripture and memorize it. The Holy Spirit will bring to you the right scripture in battle.
+
+May the Holy Spirit lead us. 🙏
