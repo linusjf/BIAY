@@ -52,6 +52,7 @@
   * [December 14,2024](#december-142024)
     + [Holy Indifference](#holy-indifference)
     + [Day 349 Work out your salvation](#day-349-work-out-your-salvation)
+    + [BIAY Day 349 By Cynthia Dsilva](#biay-day-349-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -985,3 +986,64 @@ Remember Jesus promised that the disciples would pick up snakes with their hands
 Let us know that even if we are in a situation where we have a viper in our hands and it bites us, Jesus will protect us. No venom can kill us because Jesus is in our hearts. We need to just trust in Jesus fully as there are bound to be attacks of the evil on our lives.
 
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 349 By Cynthia Dsilva
+
+Philippians 1:6
+*I am confident of this, that the one who began a good work in you will continue to complete it until the day of Christ Jesus.*
+
+In the old Covenant, God's people waited with joyful expectation for the first coming of the Lord. But in the new Covenant, most of God’s people are scared or anxious when they think of the second coming of the Lord and the final judgment, because they are not really sure if they are leading their lives according to God's Will or not and whether they have completed the mission for which they were sent to earth.
+
+Paul was therefore assuring the Philippians, and us, that if we continue growing in holiness as well as working for the growth of God’s Kingdom, then it is not us working but the work of Christ dwelling in us.  Therefore, we don’t have to be anxious about whether or not we will complete our mission before the Lord’s parousia, because what Christ started doing in us, He will definitely finish before the last day, and if we are loyal to Him and allow Him to remain in us as long as we live then we will definitely be with him and share in His eternal glory.
+
+Philippians 1:15-18
+*Some proclaim Christ from envy and rivalry, but others from goodwill.  These proclaim Christ out of love, knowing that I have been put here for the defense of the gospel;  the others proclaim Christ out of selfish ambition, not sincerely but intending to increase my suffering in my imprisonment.  What does it matter? Just that Christ is proclaimed in every way, whether out of false motives or true; and in that I rejoice.*
+
+The Philippians did not have good relations with many people in their neighbourhood.  Even the two ladies, who were working with Paul to assist him in his preaching, had difficulty agreeing with each other (Philippians 4:2).
+
+Although some were preaching the Gospel in Paul’s absence, all the preachers  were not trying to bring people to God out of love for Christ because they weren't leading holy lives themselves.
+
+Some of the preachers were envious of Paul’s popularity and leadership role.  They started preaching because they wanted to grab Paul’s position and popularity for themselves while he was in prison.
+
+Some of them were preaching for their own benefit, while some were preaching out of rivalry against each other, etc.  There were only a few who were genuinely preaching the Gospel out of love for Christ.   But whatever reason the preachers were preaching for, Paul was happy that they were bringing people to God.  Regarding their personal character they would have to deal with God directly.
+And so it is with us.
+
+When we do good works with ungodly motives, the beneficiary will definitely benefit from it but our heavenly reward will depend on our motive.
+
+Philippians 1:21\
+*For to me, living is Christ and dying is gain.*
+
+Christian life is a win-win life because life is Christ and death is gain.
+If we receive the Body of Christ in a state of grace at all times (1 Corinthians 11:27) then we will have divine life within us, therefore Satan will not have power over our souls, and if we die with divine life within us then Satan will not be able to claim our souls, and our souls will be raised on the last day (John 6:54).
+
+So, whether we are living or dead in this world, it is a win-win situation because our souls will always be in the custody of Christ (John 10:27-28), therefore, we should not be afraid of death.
+
+Paul was anxiously waiting for his natural death so that he could be with Christ for eternity but God wanted him to stay on earth for a while to accomplish the mission assigned to him (Philippians 1:22-24).
+
+Paul and the other Apostles are not the only ones who had a mission to accomplish. Every Christian has a mission to accomplish for the Lord.
+Let us therefore ask the Lord, without delay, to help us know what our mission is, so that we can get busy with helping in the growth of God’s Kingdom as long as we are here on earth while we also maintain our holiness.
+
+Philippians 2:1-8
+If we are the Body of Christ and Christ is the Head, then the body must be in sync with the head.
+
+Our body is an analogy for our souls.
+If our body does not obey what our head/mind tells us to do, then our body suffers in many ways and we may have to see a doctor for physical treatment. We tell him our symptoms and he prepares/prescribes medicine for us along with some lifestyle changes.
+
+Similarly, if we do not obey what Christ wants us to do, then we suffer in many ways due to our sins and we may have to see a spiritual doctor (the priest) for spiritual treatment.  We tell him our symptoms (sins) and he prescribes some lifestyle changes (penance).  Thereafter he prepares the medicine (the Body of Christ / Communion) for us, to be consumed regularly.
+
+To begin thinking like Christ, Paul is not asking us to move mountains or build projects.  Paul advises us to start with baby steps. He just wants us to do, what we do for others, with love and concern for them, starting with our own families and the people around us, and not by selfishly pursuing our own interests or by looking at others as lower than us.\
+Additionally, we must read the scriptures every day (the old and the new).
+At all times we must humble ourselves and use whatever power or authority we have in our hands, to serve others, just as Christ did.
+
+Unlike the first Adam, who in his pride grasped at being like God without God, the new Adam (Jesus) humbled himself to become a slave, obedient even unto death on the Cross (Romans 5:12–17). In this He has shown sinners, each one of us, the way back to the Father. We can only come to God to serve in His vineyard (the Church), by having that same attitude as Christ.
+
+Philippians 2:12
+*Work out your salvation with fear and trembling.*
+
+Paul was aware that his Baptism was not sufficient for salvation.\
+Salvation is an ongoing lifetime process.
+We were saved when we were baptized, we are saved during our lifetime whenever we receive the Sacraments of Reconciliation and Eucharist, and we will eventually be saved if we die in a state of grace.
+
+We must, therefore, be alert to sin at all times and keep ourselves purified as long as we live.
+
+🔥🔥🔥🔥🔥🔥🔥
