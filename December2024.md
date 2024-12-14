@@ -49,6 +49,9 @@
     + [Rules for the New Life](#rules-for-the-new-life)
     + [Day 348 Put on the armor of God](#day-348-put-on-the-armor-of-god)
     + [BIAY Day 348 By Cynthia Dsilva](#biay-day-348-by-cynthia-dsilva)
+  * [December 14,2024](#december-142024)
+    + [Holy Indifference](#holy-indifference)
+    + [Day 349 Work out your salvation](#day-349-work-out-your-salvation)
 
 <!-- tocstop -->
 
@@ -945,3 +948,40 @@ It is not wrong to put on the full armour of God when we are outside our homes, 
 Spiritually healthy families together make a healthy Church.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## December 14,2024
+
+### Holy Indifference
+
+[![Holy Indifference](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day349.jpg)](https://youtu.be/1lreKo78BWI "Holy Indifference")
+
+### Day 349 Work out your salvation
+
+We are called to work out our salvation, as opposed to a passive I’ll do nothing but God will save me. Being a Christian means striving to be holy and do good works of mercy. Although our holiness will never be enough because of our fallen nature and the corrupt world we live in, God in His Mercy and Grace will purify us and welcome us into heaven.
+So then, my beloved, obedient as you have always been, not only when I am present but all the more now when I am absent, work out your salvation with fear and trembling.
+13For God is the one who, for his good purpose, works in you both to desire and to work. Ph 2:12-13
+
+God is on our side and God works in us with both desire(faith) and works. We need not fear for our God is the almighty one, everything on earth bows down to our God.
+Rather, he emptied himself,
+taking the form of a slave, coming in human likeness; and found human in appearance, he humbled himself, becoming obedient to death, even death on a cross.
+9Because of this, God greatly exalted him
+and bestowed on him the name
+that is above every name,
+10that at the name of Jesus
+every knee should bend,
+of those in heaven and on earth and under the earth,
+11and every tongue confess that
+Jesus Christ is Lord,
+to the glory of God the Father. Ph 2:7-11
+
+Our God is greater than anything we see, feel or experience. Jesus is Lord over all the earth and the heavens. We need not fear anything as long as we are humbly working out our salvation. Jesus will provide and protect us. Just as Paul was protected from the viper bites.
+Paul had gathered a bundle of brushwood and was putting it on the fire when a viper, escaping from the heat, fastened on his hand.
+4When the natives saw the snake hanging from his hand, they said to one another, “This man must certainly be a murderer; though he escaped the sea, Justice has not let him remain alive.”
+5But he shook the snake off into the fire and suffered no harm.
+6They were expecting him to swell up or suddenly to fall down dead but, after waiting a long time and seeing nothing unusual happen to him, they changed their minds and began to say that he was a god Acts 28:3-6
+
+Remember Jesus promised that the disciples would pick up snakes with their hands and not be hurt.
+“they will pick up snakes with their hands; and when they drink deadly poison, it will not hurt them at all; they will place their hands on sick people, and they will get well.” Mark 16:18
+Let us know that even if we are in a situation where we have a viper in our hands and it bites us, Jesus will protect us. No venom can kill us because Jesus is in our hearts. We need to just trust in Jesus fully as there are bound to be attacks of the evil on our lives.
+
+May the Holy Spirit lead us. 🙏
