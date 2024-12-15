@@ -53,6 +53,9 @@
     + [Holy Indifference](#holy-indifference)
     + [Day 349 Work out your salvation](#day-349-work-out-your-salvation)
     + [BIAY Day 349 By Cynthia Dsilva](#biay-day-349-by-cynthia-dsilva)
+  * [December 15,2024](#december-152024)
+    + [Faith and Works](#faith-and-works)
+    + [Day 350 Doers of the Word, not hearer only.](#day-350-doers-of-the-word-not-hearer-only)
 
 <!-- tocstop -->
 
@@ -1047,3 +1050,38 @@ We were saved when we were baptized, we are saved during our lifetime whenever w
 We must, therefore, be alert to sin at all times and keep ourselves purified as long as we live.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## December 15,2024
+
+### Faith and Works
+
+[![Faith and Works](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day350.jpg)](https://youtu.be/2lCax3ZsJXk "Faith and Works")
+
+### Day 350 Doers of the Word, not hearer only.
+
+We are called to be not just hearers of the Word but doers as well.
+Be doers of the word and not hearers only, deluding yourselves.
+
+23For if anyone is a hearer of the word and not a doer, he is like a man who looks at his own face in a mirror.
+24He sees himself, then goes off and promptly forgets what he looked like. James 1:23-24
+
+Imagine going in front of the mirror in the morning and not combing your hair, it seems foolish, doesn’t it. But if we read God’s Word and commands and do not act upon them then we are fooling ourselves.
+In the same way, if we say that we have faith that can move mountains but do not have works to prove it, then our faith is dead.
+The formula “Believe in your heart and confess with your lips that Jesus is Lord and you will be saved” is not complete.
+Although Faith is necessary but faith alone is not enough, works are needed to demonstrate our faith. We are not hearers only but doers as well. In reality, we are not saved only by faith and works but are saved by grace.
+What good is it, my brothers, if someone says he has faith but does not have works? Can that faith save him?
+15If a brother or sister has nothing to wear and has no food for the day,
+16and one of you says to them, “Go in peace, keep warm, and eat well,” but you do not give them the necessities of the body, what good is it?
+17So also faith of itself, if it does not have works, is dead. James 2:14-17
+
+So the next time someone tells you faith only saves, ask them to search the Bible for the words “Faith alone” the only verse that will come up is James 2:17 which said faith by itself is dead.
+
+It is easy to hear God’s word and love it, but hard to act on it. We may feel overwhelmed or powerless to be doers of the Word. Let me encourage you and remind you that God empowers us and we can do all things through Christ who strengthens us.
+
+I have the strength for everything through him who empowers me. Phil 4:13
+
+And we can rest assured that God will supply all our needs in accordance to the glorious riches we have in Christ Jesus.
+
+My God will fully supply whatever you need, in accord with his glorious riches in Christ Jesus. Phil 4:19
+
+May the Holy Spirit lead us. 🙏
