@@ -60,6 +60,7 @@
   * [December 16,2024](#december-162024)
     + [Draw Near to God](#draw-near-to-god)
     + [Day 351 Words have power](#day-351-words-have-power)
+    + [BIAY Day 351 By Cynthia Dsilva](#biay-day-351-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -1181,3 +1182,83 @@ As we draw near to God we come to a realization of our sin and want to cleanse o
 Let all our words be holy and positive, for our words have power. Let us speak blessings on our children everyday. Let praise be on our lips all the days of our life.
 
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 351 By Cynthia Dsilva
+
+James 3:1
+*Not many of you should become teachers, my brothers and sisters, for you know that we who teach will be judged with greater strictness.*
+When we become teachers of the faith it is possible that we can swell up with pride because we may see ourselves as better than those who we teach.  As teachers of faith it is important that we ourselves practice what we teach others.  We must accept correction from others when we are wrong.
+
+God gave us a tongue to praise and worship Him, not to abuse, curse or speak ill of those who are made in the likeness of God.\
+Let us learn to use our tongue to praise and worship God and to bring happiness in the lives of others.
+Let us not be quick to find fault with others or to make negative comments about them.
+Let us learn to use our tongue to speak well of others, to remember their good deeds, and to express gratitude.
+Let us learn to use our tongue to ask for forgiveness from those whom we offend and to forgive those who offend us.
+Let us pray to God to help us practice self-control and to use our tongue wisely.
+
+James 3:13-18
+As James explains, worldly wisdom is reflected in covering up our sins or tactfully justifying ourselves for a wrong or evil action.  By justifying our ungodly actions we are actually saying that evil is right.
+Worldly wisdom causes us to misuse others, specially the less fortunate ones, for our benefit.
+Worldly wisdom causes us to pretend that we are perfect and that we have knowledge of everything. We pretend that we are what we are not. We believe that everything we say and do is right, and we refuse to accept corrections.
+Worldly wisdom causes us to work for the devil in the name of God.
+Thus worldly wisdom causes us to live spiritually bipolar lives.
+
+James advises us to show godly wisdom through our actions and by living good and honest lives.
+
+James 5:7-10
+Patience is a virtue which we must practice because we have to wait for God to answer our prayers. While we practice patience we get spiritually healed.
+We must have patience before we draw a negative conclusion about a person or a situation.\
+We must have patience when dealing with negative people, specially with those who provoke us.
+
+The sibling of patience is time. They collaborate with each other to solve our difficulties or problems and the long wait helps us to understand the situation better.
+Let us ask the Lord to give us the grace to be patient at all times, and specially during our difficult times.
+
+James 5:14-15
+James was talking about the Sacrament of Anointing the Sick with holy oil.
+But James was not introducing this Sacrament as a new procedure.
+
+He was telling the people that they must not let this already existing opportunity go waste.
+
+He was reminding the people to call the Priests when someone was in danger of dying, so that maximum souls could be saved.
+The Apostles continued anointing the sick with holy oil, as Jesus had taught them before the Resurrection (Mark 6:13).\
+Unlike baptism, this anointing must be administered only by a Priest ("Presbyters" in Greek / elders) (James 5:14) for the Sacrament to be effective, that is, for God's grace to flow through it.
+
+James 5:16
+*Therefore confess your sins to one another, and pray for one another, so that you may be healed.*
+Before the Resurrection the people’s sins were forgiven by God (Jesus) through a Priest (Jesus) (Mathew 9:2-8).
+After the Resurrection Jesus commissioned His Apostles/Priests to forgive sins (John 20:21-23), but the grace was given to them only after Pentecost Sunday.
+
+James was not introducing the Sacrament of Reconciliation as a new procedure.  He was just reminding the people of what they already knew about but were probably neglecting.
+
+When we confess our sins we are not really sharing our dirty little secrets with God, because He already knows everything we think, say and do, whether good or bad.  Instead, we are humbling ourselves before God and opening the door to the healing power of His mercy which He wants to give us but cannot, unless we ask for it through His anointed priest.  Confessing our sins to a Priest teaches us to practice humility, which is the virtue that removes Pride, the source of sin.
+
+The words of absolution which come from Jesus through the Priest, are not just the babbling of a clergyman or the performance of a ritual.  Those words are more powerful than when God said “let there be light ….” (Genesis 1:3), and when Jesus said “Lazarus come out” (John 11:43), because creation and Lazarus were not meant to last forever, but our souls will, when we are spiritually healed.
+While we spend so much time and effort to keep our physical bodies clean, let us not forget to give regular attention to our spiritual hygiene also.
+
+Colossians 1:24-27
+It was the ancient belief that suffering comes only to sinners so the Colossian Christians could not understand why Paul was going through suffering even though he was an Apostle.  Paul was explaining to them why he, and all Christians, must go through suffering.
+
+Paul earlier mentioned that all the fullness of God dwells in Christ bodily (Colossians 1:18-19).  If Christ is fully divine then He cannot be lacking in His afflictions or suffering of the Cross.
+
+However, if a sinner's love can cover a multitude of sins (1 Peter 4:8), then God's infinite love can cover an infinite multitude of sins. Therefore, there cannot be anything lacking in the sacrifice of Christ.  And as Paul himself said, the Blood of the Cross had the power to reconcile, not only humanity but, the entire cosmos to God (v. 20).
+
+But Paul was not talking about the suffering of Jesus on the Cross. He was talking about his own participation (v. 24) which was lacking in the suffering of Christ (Matthew 16:24).
+
+On Good Friday Jesus inaugurated His redemptive suffering and afflictions with the intention that it will continue in His mystical Body through us (the Christians on earth) which is His Church so that He could be united with His bride (the Church).  Therefore, when we (the Christians) suffer, inspite of leading holy lives, we do not suffer in vain.  Rather, we suffer in union with Christ for our own salvation and for the salvation of others.
+
+Let us, therefore, not waste our sufferings by pitying ourselves or complaining or retaliating, etc.  Let us suffer willingly while we offer all our sufferings (aches & pains, sickness, financial problems, legal problems, etc.) to Christ as penance for our sins as well as for the sins of our offenders (if any) or the sins of those who we feel are in need of being saved.
+
+Colossians 1:24-27
+It was the ancient belief that suffering comes only to sinners so the Colossian Christians could not understand why Paul was going through suffering even though he was an Apostle.  Paul was explaining to them why he, and all Christians, must go through suffering.
+
+Paul earlier mentioned that all the fullness of God dwells in Christ bodily (Colossians 1:18-19).  If Christ is fully divine then He cannot be lacking in His afflictions or suffering of the Cross.
+
+However, if a sinner's love can cover a multitude of sins (1 Peter 4:8), then God's infinite love can cover an infinite multitude of sins. Therefore, there cannot be anything lacking in the sacrifice of Christ.  And as Paul himself said, the Blood of the Cross had the power to reconcile, not only humanity but, the entire cosmos to God (v. 20).
+
+But Paul was not talking about the suffering of Jesus on the Cross. He was talking about his own participation (v. 24) which was lacking in the suffering of Christ (Matthew 16:24).
+
+On Good Friday Jesus inaugurated His redemptive suffering and afflictions with the intention that it will continue in His mystical Body through us (the Christians on earth) which is His Church so that He could be united with His bride (the Church).  Therefore, when we (the Christians) suffer, inspite of leading holy lives, we do not suffer in vain.  Rather, we suffer in union with Christ for our own salvation and for the salvation of others.
+
+Let us, therefore, not waste our sufferings by pitying ourselves or complaining or retaliating, etc.  Let us suffer willingly while we offer all our sufferings (aches & pains, sickness, financial problems, legal problems, etc.) to Christ as penance for our sins as well as for the sins of our offenders (if any) or the sins of those who we feel are in need of being saved.
+
+🔥🔥🔥🔥🔥🔥🔥
