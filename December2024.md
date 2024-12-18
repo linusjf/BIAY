@@ -67,6 +67,7 @@
     + [BIAY Day 352 By Cynthia Dsilva](#biay-day-352-by-cynthia-dsilva)
   * [December 18,2024](#december-182024)
     + [Sharing the Gospel](#sharing-the-gospel)
+    + [Day 353 A gentle and calm disposition](#day-353-a-gentle-and-calm-disposition)
 
 <!-- tocstop -->
 
@@ -1340,3 +1341,22 @@ By humbling Himself and washing the feet of His disciples (John 13:5), Jesus, th
 ### Sharing the Gospel
 
 [![Sharing the Gospel](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day353.jpg)](https://youtu.be/GajbGINcGPE "Sharing the Gospel")
+
+### Day 353 A gentle and calm disposition
+
+True beauty is not found in fashion, accessories, hairstyles or jewelry. Many people pay to a lot of money on designers cloths and accessories. It's true they may be in fashion but believing that it makes you more beautiful is a lie.
+Your adornment should not be an external one: braiding the hair, wearing gold jewelry, or dressing in fine clothes,
+4but rather the hidden character of the heart, expressed in the imperishable beauty of a gentle and calm disposition, which is precious in the sight of God. 1 Pet 3:3,4
+
+True beauty is from a gentle and calm disposition, internal beauty of the person is more important than looks.
+A calm internal disposition is hard to come by in this disturbing world. But it’s not impossible to have it if can cast all our care unto the Lord.
+Cast all your worries upon him because he cares for you.1 Pet 5:7
+
+The God who created everything we see cares about us, so we need not worry about anything, just stay close to God. God will take care of all our needs. We need to just humble ourselves under the mighty hand of God and we will be exalted in due time.
+
+So humble yourselves under the mighty hand of God, that he may exalt you in due time. 1 Pet 5:6
+
+We also have to be on the watch because the devil our enemy is prowling around looking for who he can devour, he comes to rob steal and destroy.
+Let us stay close to God who cares for us, we will be protected if we stay in God’s shadow.
+
+May the Holy Spirit lead us. 🙏
