@@ -75,6 +75,7 @@
     + [BIAY Day 354 By Cynthia Dsilva](#biay-day-354-by-cynthia-dsilva)
   * [December 20,2024](#december-202024)
     + [The Things of This World](#the-things-of-this-world)
+    + [Day 355 If we acknowledge our sins, he is faithful and just and will forgive](#day-355-if-we-acknowledge-our-sins-he-is-faithful-and-just-and-will-forgive)
 
 <!-- tocstop -->
 
@@ -1552,3 +1553,34 @@ Therefore, Paul’s prophecy was about the end times or the second coming of the
 ### The Things of This World
 
 [![The Things of This World](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day355.jpg)](https://youtu.be/DiTWA-wbY2I "The Things of This World")
+
+### Day 355 If we acknowledge our sins, he is faithful and just and will forgive
+
+One lie of the devil that is spreading rapidly in our younger generation is indifference to God/Religion and relativism. Many people say your truth is your truth and mine is mine. When we have our own standards instead of the standards of God, the concept of sin disappears.
+
+Let us be reminded that we all have sinned and fallen short of God’s glory. If we say we have no sin then we make God to be a liar.
+
+If we say, “We are without sin,” we deceive ourselves, and the truth is not in us.
+9If we acknowledge our sins, he is faithful and just and will forgive our sins and cleanse us from every wrongdoing.
+10If we say, “We have not sinned,” we make him a liar, and his word is not in us. 1 Jh 1:8-10
+
+And for those who follow Christ, we need to be in the light and follow his commandments. This will guarantee that we know Christ if we keep his commandments.
+
+The way we may be sure that we know him is to keep his commandments. Whoever says, “I know him,” but does not keep his commandments is a liar, and the truth is not in him.
+1 John 2:3-4
+
+We ought to demonstrate our love for Christ by loving our earthly brothers and sisters.
+Whoever says he is in the light, yet hates his brother, is still in the darkness.
+10Whoever loves his brother remains in the light, and there is nothing in him to cause a fall. 1 Jh 3:9-10
+
+The world will know us by the love we show to our brothers and sisters. If we say we love God but hate our brother then we are liars and we are not walking in the light.
+Do not love the world or the things of the world. If anyone loves the world, the love of the Father is not in him.
+16For all that is in the world, sensual lust, enticement for the eyes, and a pretentious life, is not from the Father but is from the world.
+17Yet the world and its enticement are passing away. But whoever does the will of God remains forever 1 Jh 2:15-17
+
+We should not love the things of the world as they are passing away. The world with all its glitter and temporary satisfaction will not fulfill our desires. The lust of the eyes, the lust of the flesh and the pride of life are all passing away. Let us only focus on love of the Lord and his commands. Let us not lust over our brothers and sisters but love them instead. The path to holiness is to humble ourselves instead of walking around proud and pretending to be great. Let us hold to the highest standard of holiness, which is love. Love our brothers and sisters as Christ loved us.
+
+Let us not fear but repent for If we acknowledge our sins, he is faithful and just and will forgive our sins and cleanse us from every wrongdoing.
+May the Lord direct your hearts to the love of God and to the endurance of Christ.2 Th 3:5
+
+May the Holy Spirt lead us 🙏
