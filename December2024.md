@@ -72,6 +72,9 @@
   * [December 19,2024](#december-192024)
     + [Partakers of the Divine Nature](#partakers-of-the-divine-nature)
     + [Day 354 Always Rejoice, Pray and Give Thanks](#day-354-always-rejoice-pray-and-give-thanks)
+    + [BIAY Day 354 By Cynthia Dsilva](#biay-day-354-by-cynthia-dsilva)
+  * [December 20,2024](#december-202024)
+    + [The Things of This World](#the-things-of-this-world)
 
 <!-- tocstop -->
 
@@ -1493,3 +1496,59 @@ Let us always:
    “for this is the will of God.”
 
 May the Holy Spirit lead us. 🙏
+
+### BIAY Day 354 By Cynthia Dsilva
+
+2 Peter 1:4
+Saints in Heaven will have certain characteristics of God (example: power, holiness, intelligence, knowledge, love, etc.) but not to the same degree, that is, they will not have the “omni” attributes.  Saints in Heaven will still be human but of a highly superior quality.  They will be children of God, they will be parttakers of God’s divine nature and they will be completely sanctified (1 John 3:2-3).
+
+2 Peter 1:20-21
+*Know this first of all, that there is no prophecy of scripture that is a matter of personal interpretation, for no prophecy ever came through human will; but rather human beings moved by the Holy Spirit spoke under the influence of God.*
+
+Peter rules out the option of personal interpretation of the Scriptures.  The authority to interpret the Scriptures was given only to the apostles who in turn handed it down to their succeeding apostles / Apostolic bishops.
+
+Often cited, along with 2 Tm 3:16, on the “inspiration” of scripture or against private interpretation, these verses in context are directed against the false teachers of 2 Pt 2 and clever tales (2 Pt 1:16). The prophetic word in scripture comes admittedly through human beings (2 Pt 1:21), but moved by the holy Spirit, not from their own interpretation, and is a matter of what the author and Spirit intended, not the personal interpretation of false teachers. Instead of under the influence of God, some manuscripts read “holy ones of God.”
+
+2 Peter 3:8\
+*But do not let this one fact escape your notice, beloved, that with the Lord one day is like a thousand years, and a thousand years like one day.*
+
+We, on earth, are bound by time (days / weeks / months / years, etc.) because light (day) on earth is interrupted by darkness (night) and darkness represents evil.  So when we see light again we call it another day and that’s how we measure time.
+But God is not bound by time because in Heaven there is no evil and therefore no darkness, and time cannot be measured when there is no change in the existence of light.
+
+Therefore, even if we complete ten thousand years on earth, in Heaven it is still day 1, which was, which is, and which will be the same forever.\
+In other words, there will never be a day 2 in Heaven.
+
+2 Peter 3:9\
+*The Lord is not slow to fulfill his promise as some count slowness, but is patient toward you, not wishing that any should perish, but that all should reach repentance.*
+
+There are people who do such horrendous things in society that our minds struggle to understand such things.  Such people make our hearts cry out for justice, and rightly so.  But often we go a step further and condemn them to Hell.\
+The revolutionary attitude takes solace in the destruction of the aggressor.\
+When people do terrible things, we may sometimes wonder why God does not strike them down immediately and send them to Hell.  But this is not God’s mind.  God is teaching us to desire the conversion of hardened sinners, and to pray for them.
+Jesus was thirsty (John 19:28), not only for the souls of the saintly, but also for the souls of the most hardened sinners (Matthew 9:12).
+
+God is slow in punishing the wicked because He waits for His children (the Christians) to carry out His Will by helping the wicked to come to repentance with love, peace, kindness, sacrifice, prayers, etc.
+
+Therefore, when a crime is committed, while we generously pray for the victim we must also remember to pray for the culprit, because God wishes that all should be saved.
+
+In a Covenant relation it is always the innocent ones who suffer / pay the price for the sins of the wicked so that the wicked may be saved, just as Jesus suffered for us so that we may be saved.
+
+1 Thessalonians 4:15-17
+*For this we declare to you by the word of the Lord, that we who are alive, who are left until the coming of the Lord, will by no means precede those who have died.  For the Lord himself, with a cry of command, with the archangel’s call and with the sound of God’s trumpet, will descend from heaven, and the dead in Christ will rise first.  Then we who are alive, who are left, will be caught up in the clouds together with them to meet the Lord in the air; and so we will be with the Lord forever.*
+
+When Paul wrote to the people to be ready always because the end would come soon, the people stopped cultivation and waited for the end of the world.  Therefore he changed his message later saying that the end would come soon but we do not know when (2 Thessalonians 2:1-12).
+
+After the final judgment, Jesus will send His angels to gather His elect who are left behind (Matthew 24:31; Revelation 11:15), but Paul and the first century Christians believed that this would happen during their lifetime and so Paul was insisting on the Christians to be prepared for the coming of the Lord.  Paul had written the same message to the Corinthians also (1 Corinthians 15:51-52), but the Christians who escaped to the mountains in Pella during the destruction of the Temple, were not taken up alive.  Many of them returned to Jerusalem six decades later.
+
+The prophecy of Jesus (Matthew 24:3-8) was meant, primarily, for Jerusalem, to mark the end of the age of the old creation, the old Covenant, the old sacrifice, the old priesthood, and the old Temple because Jesus had already inaugurated the beginning of the new creation when He was baptized and the only thing standing in the way of the new Covenant, the new sacrifice, and the new priesthood was the old Temple.  Therefore, it had to be removed and the man-made Temple was destroyed in AD 70 because we now have a temple that is not made by hands, the mystical Body of Christ, the Bread of Life.
+
+The destruction of the Temple in AD 70 was, however, a prophetic sign of the future.  The condition of the people was so devastating and horrible that the people thought it was the end of the world.  But what happened to Jerusalem and the Temple locally will happen to the Church globally at the end of time.  The Church (the mystical Body of Christ) must go through its final passion just as the physical Body of Christ did.
+
+Therefore, Paul’s prophecy was about the end times or the second coming of the Lord in His glory before the Last Judgement, and the holy ones who will still be living at that time will not see death but an immediate transformation of their bodies, which means that Jesus will not wait for every single human to die before His second physical appearance.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## December 20,2024
+
+### The Things of This World
+
+[![The Things of This World](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day355.jpg)](https://youtu.be/DiTWA-wbY2I "The Things of This World")
