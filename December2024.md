@@ -80,8 +80,10 @@
   * [December 21,2024](#december-212024)
     + [God Is Love](#god-is-love)
     + [BIAY Day 356 By Cynthia Dsilva](#biay-day-356-by-cynthia-dsilva)
+    + [Day 356 One Mediator and Traditions](#day-356-one-mediator-and-traditions)
   * [December 22,2024](#december-222024)
     + [Truth and Love](#truth-and-love)
+    + [Day 357 The love of money is the root of all evils](#day-357-the-love-of-money-is-the-root-of-all-evils)
 
 <!-- tocstop -->
 
@@ -1711,8 +1713,78 @@ Jesus is the only mediator between God the Father and man, but not the only inte
 
 🔥🔥🔥🔥🔥🔥🔥
 
+### Day 356 One Mediator and Traditions
+
+We all have Christian names and go to church, but what really shows that we are Christians is the love that we have each other.
+
+Beloved, let us love one another, because love is of God; everyone who loves is begotten by God and knows God.
+8Whoever is without love does not know God, for God is love.
+Beloved, if God so loved us, we also must love one another.
+12No one has ever seen God. Yet, if we love one another, God remains in us, and his love is brought to perfection in us.
+We love because he first loved us.
+20If anyone says, “I love God,” but hates his brother, he is a liar; for whoever does not love a brother whom he has seen cannot love God whom he has not seen.
+1 Jh 4: 7,8,11,12,19,20
+
+So it is obvious that God loved us first and we received a nature of love from God as we are Children of God. As children of God we ought to love God and love our neighbor. Loving God can seem easy as we need to follow his commandments and we receive a lot of love from God. It can seem awfully hard to love our neighbor as we live among broken people. People have anger problems and can be liars, lovers of money, blinded by lust and selfish. We also naturally love ourselves a lot and find it hard to love others like we love ourselves.
+Who can save us from this, thanks be to God, the one in me is greater than the one in the world.
+
+You belong to God, children, and you have conquered them, for the one who is in you is greater than the one who is in the world. 1 Jh 4:4:
+We should draw strength from the Holy Spirit in us, to fight off the evil forces outside us.
+On a couple of apologetic topics, there is usually a lot of confusion about the one mediator verse in Timothy.
+
+For there is one God.
+There is also one mediator between God and the human race, Christ Jesus, himself human,
+6who gave himself as ransom for all. 1 Tim 2:5,6
+
+This is used a lot against the sacrament of confession – we also know that Jesus instituted the sacrament himself and gave authority to the apostles to forgive sins. Just as they act as mediators to baptize people or pray for healing or preach God’s word. Mary and the saints are also mediators of God’s grace from heaven. The heavenly church(church glorified) does not have any powers or graces of their own, they are but mediators that bring our prayer intentions to God.
+Another topic is that the Bible is the ultimate source of truth. For starters the Bible never claims to be the ultimate source of truth, in fact, it was the church led by the Spirit that put the Bible together. Jesus never gave us a book but he gave us a Pope – Peter and gave him authority which got handed over to this very generation.
+
+But if I should be delayed, you should know how to behave in the household of God, which is the church of the living God, the pillar and foundation of truth. I Tim 3:15
+
+In fact the Bible says that Church is the pillar and foundation of truth. And that the apostles and prophets are the foundation of the Church.
+built upon the foundation of the apostles and prophets, with Christ Jesus himself as the capstone. Ep 2:20
+
+Also we are called to hold firm to the traditions of the church which have be taught through word and letter.
+
+So then, brethren, stand firm and hold to the traditions which you were taught by us, either by word of mouth or by letter. 2 The 2:15
+
+So here is an apologetics 101 answer to the questions the “one Mediator” and “Sola scriptura -Bible alone”
+
+May the Holy Spirit lead us 🙏
+
 ## December 22,2024
 
 ### Truth and Love
 
 [![Truth and Love](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day357.jpg)](https://youtu.be/Tr9HFrAbtxE "Truth and Love")
+
+### Day 357 The love of money is the root of all evils
+
+We live in a very materialistic world and people try to buy themselves out of all problems. This approach will never leave anyone fulfilled. Money can’t buy you everything in fact the more money one has the more one wants to get. Many people have spent their whole lives trying to be successful and end up so sick that they can’t even enjoy the money they saved.
+For the love of money is the root of all evils, and some people in their desire for it have strayed from the faith and have pierced themselves with many pains. 1 Tim 6:10
+
+We see people working multiple jobs to make it big in life, constantly thinking of how to make more money. This has caused them to skip Mass and other important spiritual activities. This also has drawn people away from family life. We see many young couples not wanting kids because they want a successful career. Let us stop for a moment and think what if we gain the whole world but lose our soul.
+Those who want to be rich are falling into temptation and into a trap and into many foolish and harmful desires, which plunge them into ruin and destruction. 1 Tim 6:9
+
+For we brought nothing into the world, just as we shall not be able to take anything out of it. 1 Tim 6:7
+
+Let us remember that we came in empty-handed into this world and we will take nothing back with us.
+Alexander the Great who conquered most of the world said “With my third wish of having my hands dangling out of the coffin, I want people to know that I came empty-handed into this world and likewise will go empty-handed from this world.”
+Let us learn from Alexander the Great that when we die we take nothing with us.
+Let us learn from the rich people who commit suicide due to depression that money does not buy everything.
+In fact, the more money we give away for a good cause, the happier we feel. The other extreme is also dangerous, where people don’t want to spend anything on themselves.
+When we give we should be smart in giving, as some people are in the habit of taking money and having a good time. Like beggars who only beg to have their next drink or joint.
+There are also lazy and greedy people in this world who would take money even though they are not truly in need.
+In the early church, some widows were probably taking advantage of the church’s generosity. The apostles had to become prudent about who gets aid and who does not.
+If any woman believer has widowed relatives, she must assist them; the church is not to be burdened so that it will be able to help those who are truly widows. 1 Tim 5:16
+
+So the next time you think of giving someone money, pray about it and try to use sound judgment. Give to those who are in need and will really use it. For example, you may want to give food instead of money to a drunk.
+The Lord will bless us with good finances if we don’t run after money. Seek first His kingdom and all things will be added to you.
+The right use of money is essential.
+7Tell the rich in the present age not to be proud and not to rely on so uncertain a thing as wealth but rather on God, who richly provides us with all things for our enjoyment.
+18Tell them to do good, to be rich in good works, to be generous, ready to share,
+19thus accumulating as treasure a good foundation for the future, so as to win the life that is true life. 1 Tim 6:17-19
+
+Our goal is eternal life, money will come and money will go, but our soul will live forever.
+
+May the Holy Spirit lead us.
