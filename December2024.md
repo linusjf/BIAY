@@ -88,6 +88,11 @@
   * [December 23,2024](#december-232024)
     + [From Rebellion to Faithfulness](#from-rebellion-to-faithfulness)
     + [Day 358 St Michael the ArchAngel protect us](#day-358--st-michael-the-archangel-protect-us)
+    + [BIAY Day 358 By Cynthia Dsilva](#biay-day-358-by-cynthia-dsilva)
+  * [December 24,2024](#december-242024)
+    + [John's Apocalypse](#johns-apocalypse)
+    + [Day 359 Behold I stand at the door and knock.](#day-359-behold-i-stand-at-the-door-and-knock)
+    + [BIAY Day 359 By Cynthia Dsilva](#biay-day-359-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -1846,3 +1851,176 @@ St. Michael the Archangel has always been known to be a powerful intercessor aga
 Let us not fail to invoke the protection of St Michael the archangel everyday.
 
 May the Holy Spirit lead us.
+
+### BIAY Day 358 By Cynthia Dsilva
+
+Jude 1:9
+*But when the archangel Michael argued with the devil in a dispute over the body of Moses, Michael did not venture to pronounce a reviling judgment upon him but said, “May the Lord rebuke you!”*
+
+If an Archangel refrained from reviling the devil, then it is even more wrong for mere humans to revile the angels or any of God’s creation, irrespective of whether they are good or bad.
+
+God sends rain and sunshine on the good as well as on the evil (Mathew 5:45), because in God’s eyes we are all His children and we are all equal.  Even the bad angels were created by God therefore we don’t please God when we revile or speak ill of the bad angels or bad people.  Instead, when we revile the bad ones we are actually making a Covenant with Satan to fight with his devils, and Michael was aware of this.
+God wills that everyone should be saved (1 Timothy 2:4-5), therefore, instead of being judgemental about those who have gone away from God, let us help them to come back to God.
+
+Normally Satan is always interested in claiming souls of the dead but this time he was interested in the body of the dead.
+
+It is not clear why Satan was interested in the body of Moses but Satan does not have the power to use the bodies of the dead because he would have to resurrect those bodies in order to use them and that requires infinite power which he does not have. Only God can truly raise the dead.
+
+Satan is, however, constantly trying to stop God’s will from being executed in the world.  Therefore, most likely, he would either have been given the knowledge that God has a special plan for the body of Moses or he may have guessed it because of the angelic activity that would have surrounded the body of Moses along with Michael.\
+Moses, eventually, did appear during the transfiguration of Jesus, which was witnessed by three of the apostles.
+
+Jude 1:11
+*Woe to them! They followed the way of Cain, abandoned themselves to Balaam’s error for the sake of gain, and perished in the rebellion of Korah.*
+
+*What was Korah’s rebellion?*
+Korah was a non-ordained Levite, but his 250 men were not even Levites and yet they all claimed that they too were holy and could offer the sacrifices relegated to the priesthood (Numbers 16:3), even though they were not called by God for the priesthood.  By protesting against Moses and Aaron who were God’s anointed people, they were protesting against God.  Therefore the earth opened up and swallowed them and thus they all perished physically.
+
+Jude did not write to the Jews but to Christians and warned us not to claim what is not allowed to us.  We are required to carry out whatever mission God has assigned to us even if it has no significance.  Whatever mission we carry out on earth is all part of God’s plan therefore we must not be picky and choosey about what we are expected to do.  If we protest against God’s anointed people, we will perish spiritually (Hell).
+
+Cain was envious of his own brother and therefore killed him.
+Balaam was given supernatural power but he used his gift to fill his pockets.
+
+Let us not imitate any of these three men.
+
+2 Timothy 1:1-7
+Paul had developed a very close friendship with Timothy who was also very active in the Church and someone whom Paul could entrust with the preaching of the Gospel.
+
+It is very important for us to have friends who walk with us towards God.
+
+Timothy learnt about the faith from his mother and grandmother.
+
+It is important for us to live our faith as true Christians so that the next generation will see our fidelity to Christ and pass that on to their future generations.
+
+Paul was writing from prison and at that time Timothy may have not felt confident enough, on his own, to handle the negative issues that the Church has to constantly face.  But Timothy was going to be Paul's successor therefore Paul was writing words of encouragement to Timothy that by his ordination he received a Spirit of power, not of fear. Therefore Timothy was required to stir up the Holy Spirit, boldly face the attacks of the evil one, whether physical or spiritual, and stand for the truth, while maintaining his own holiness, even if it meant that he had to go through suffering for the sake of the Gospel.
+
+But this advice was not only for Timothy.
+
+When we receive the Holy Spirit through the sacraments (Baptism, Confirmation, Matrimony, Holy Orders, etc.) we are required to obey God and pray to the Holy Spirit every day to help us keep His flame burning in us always, as long as we live, so that we can be instrumental in making Christ known to the people around us by the way we live our Christian lives, even if we have to go through suffering for the sake of the Gospel.
+
+*For this reason I remind you to rekindle the gift of God that is within you through the laying on of my hands;*
+By the power of God invested in them through their ordination, the Bishops and priests bring God's graces to their congregations in a special and reverent way, through the sacraments.
+
+*For God did not give us a spirit of cowardice but a spirit of power and love and self-control.*
+The Lord will always give us the love and self-control we need to bear our share of hardship for the Gospel, with a strength that can come from God alone.
+Our task is to continue doing what He has commanded, to love and to build up His kingdom.
+
+2 Timothy 2:14-19
+It is not wrong to be a good public speaker but using that talent to mislead people and take them away from God for selfish reasons is wrong.
+
+2 Timothy 1:8-10
+Paul was addressing Timothy but this epistle is valid for Christians of all times.
+Many of the first century Jewish Christians believed that when a person becomes a Christian he will be free of suffering, because it was the ancient belief in Israel that suffering is caused by the sins of either the suffering person or his parents (John 9:2).  They were probably of the opinion that baptism will wash away all the sins of their lifetime (past, present and future).  But the reality is different.
+
+Suffering is not always caused by our sins.  Sometimes we have to suffer because of our faith in Christ.\
+By our baptism we are adopted into God’s family and we become missionaries of Christ to help in the growth of the Church (the Kingdom of God on earth).  But we cannot become members of God’s family unless we are sinless, and baptism washes away all past sins including original sin, but not our future sins.
+
+According to God’s initial divine plan, man and woman were to increase and multiply and fill the earth (Genesis 1:28).  At that point the earth was sanctified and man & woman were holy and full of grace.  Therefore, man & woman were given the responsibility to fill the earth and worship God on earth, as it is in Heaven, until it was time for man & woman and all their progeny to go to God.  But when sin entered the world God had to alter His divine plan.
+
+Therefore Baptism is not the result of our works.  It is a gift from God to save us from eternal punishment by entering His Kingdom on earth (the Church) and preparing ourselves to have communion with Him for eternity by worshipping Him in a state of grace and growing in holiness through the sacraments, while we also busy ourselves with the growth of His Kingdom on earth by filling the Church with souls.
+
+This means, after we are baptized we must be willing to share the suffering of Christ even to the point of death, because whenever there is an outpouring of the Holy Spirit, there’s strong resistance from the demonic, and that is because sin still exists in the world.  Jesus came to earth to divinize the world with His touch, but because of sin He had to suffer, shed His Blood and taste death.
+
+Paul was reminding Timothy, and us, to take our share of suffering for the Gospel (or “good news”) because each individual Christian, as a member of the Body of Christ, has a share in the suffering, death and resurrection of Christ for the sake of the Gospel.
+Paul used the word “Gospel” to refer to the passion, death and resurrection of Christ.\
+We are called to the faith by a Holy Calling, through the grace of baptism, the very reason for which we were created.
+
+2 Timothy 2:8-13
+In baptism, Christians die spiritually with Christ and hope to live with him and reign with him forever, but Christian life includes endurance, witness, and even suffering, as Paul’s own case makes clear; while he is bound by chains in prison, for preaching the Gospel (2 Timothy 2:9), he continues teaching his people because the Word of God is not chained.  By his example he shows us that nothing should stop us from our love for God and sharing the Word of God with others (Romans 8:35-37).   Therefore Paul’s sufferings are helpful to the elect for obtaining the salvation and glory available in Christ (2 Timothy 2:10), who will be true to those who are faithful even through suffering, and will disown those who deny him (2 Timothy 2:12).
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## December 24,2024
+
+### John's Apocalypse
+
+[![John's Apocalypse](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day359.jpg)](https://youtu.be/cLKNkdyrb94 "John's Apocalypse")
+
+### Day 359 Behold I stand at the door and knock.
+
+In the book of the revelations John finds himself in what seems like heaven, he finds himself face to face with Jesus. Of Course it’s hard to describe in human language what he actually saw and heard. He tries to compare it to things that we can relate to, the phrases “like a fiery flame”, “voice was like the sound of rushing water “, “his face shone like the sun at its brightest.” It is impossible to describe God, especially when we encounter Him in all his glory. Our reaction would be no less than John’s reaction, in fact we may be even more fearful as none of use are as worthy as John who stood by Jesus at the cross, accepted Jesus’ mother Mary as his own and even was willing to die for Christ, he was boiled but did not die - thrown on the island of Patmos to die.\
+When I caught sight of him, I fell down at his feet as though dead. He touched me with his right hand and said, “Do not be afraid. I am the first and the last, the one who lives. Once I was dead, but now I am alive forever and ever. I hold the keys to death and the netherworld. Rev 1:17,18
+Jesus has already died on the cross for us and paid for our sins. He rose again and lives forever, now Jesus holds the keys to death and life and wants us to make every effort possible to be saved. Many have the idea that Jesus died for us and we don’t need to do anything to go to heaven. Not doing anything is like having a billion dollars in the bank but not using it. The reading in Timothy that we heard today drives this point home.
+7 I have fought the good fight, I have finished the race, I have kept the faith. 8 Henceforth there is laid up for me the crown of righteousness, which the Lord, the righteous judge, will award to me on that Day, and not only to me but also to all who have loved his appearing. 2 Tim 4:7-8
+Tying the above scripture to the words of Jesus “To the victor” repeated in all the instructions to the 7 churches, we know for a fact that we are to keep fighting and running the race, keeping the faith till the end, we will receive the crown of righteousness not just because of our holiness but because of our faithful persistence in living a good life and loving Jesus.
+“To the victor, who keeps to my ways until the end,I will give authority over the nations. Rev 2:26
+We all are trying our best and working in the Lord’s vineyard enduring many sufferings but we need to ask ourselves this question everyday, “Have we lost our first love for Christ?” “Are we just going through the motions and have lost our desire to have an intermittent loving relationship with Christ?”
+“I know your works, your labor, and your endurance, and that you cannot tolerate the wicked; you have tested those who call themselves apostles but are not, and discovered that they are impostors. Moreover, you have endurance and have suffered for my name, and you have not grown weary.
+Yet I hold this against you: you have lost the love you had at first. Rev 2:2-4
+As time goes on in our spiritual lives we tend to become mediocre in our faith. Sunday Mass seems like an obligation and doing charity seems like a burden. We don’t seem to have any desire to evangelize and seem to be very fickle in our holiness. Let us read these words of Jesus and repent of any such laziness.
+“I know your works; I know that you are neither cold nor hot. I wish you were either cold or hot. So, because you are lukewarm, neither hot nor cold, I will spit you out of my mouth. Rev 3:15-16
+Reading this harsh warning may cause us to get afraid of Christ, but remember God only Chastises the ones He loves. Jesus always wants the best for us, he gives us many opportunities to repents and is always standing by the door waiting to come into our lives and redeem us.
+Those whom I love, I reprove and chastise. Be earnest, therefore, and repent. “Behold, I stand at the door and knock. If anyone hears my voice and opens the door, \[then\] I will enter his house and dine with him, and he with me. Rev 3:
+May the Holy Spirit lead us.
+
+### BIAY Day 359 By Cynthia Dsilva
+
+Revelation (Introduction)
+The Book of Revelation has always been a scary story for many people, the same feeling that Adam and Eve went through when they chose to see the Word of God through the eyes of Satan.\
+But at the beginning of the Bible, after the fall of Adam & Eve, God had promised to redeem us (Genesis 3:15).  Thereafter, throughout the Bible, God has been giving us hope for a glorious life with Him for eternity.  God would therefore NOT go back on His promise and drown our hope with a scary story at the end of the Bible because God is a loving Father who always keeps His promises.
+This Book is not a warning about future geopolitics or an instruction book for the end-times.\
+For the first century Christians, this book was about current and future events.\
+For us in the 21st century, this book is about past, present and future events.\
+This book shows us how God is worshipped in Heaven so that we understand why we must follow a liturgical service to worship God on earth.
+
+The Book of Revelation is a summary of the entire Bible. Therefore we will not be able to understand the Book of Revelation unless we understand the entire Bible (old and new Testaments).
+
+For the first century Jewish Christians, the Book of Revelation was a picture of the Temple in Heaven and the heavenly liturgy, which seemed to match with their earthly Temple and their earthly liturgy.
+Like Moses (Exodus 25:9), King David also received the plan of the Temple from God Himself.
+
+The Temple was to be built according to the Court/Temple of Heaven (Wisdom 9:8; Hebrews 8:5).
+Therefore the liturgy of the first Passover, which God gave to Moses, and the liturgy of the new Passover (the Mass), which Jesus gave to the Apostles, were meant to be replicas of the ongoing liturgy in Heaven.
+Whereas Israel worshipped God in imitation of the angels, John saw one common worship in the heavenly Temple shared by men and angels.
+Whereas only priests were allowed in the Holy place of Solomon's Temple, in Heaven there was a nation of priests (Revelation 5:10).
+The Jewish Christians could also see many things happening in Heaven exactly as they celebrated the new Covenant Passover (the Mass):
+
+The union of Heaven and earth, during Mass, is like the fruitful union of a man and his wife in love.  That is why the Church is called “the bride of Christ” and the book of Revelation unveils that bride.  The “apokalypsis” is therefore the communion of the Church and Christ, which is also referred to as “the marriage supper of the Lamb.”
+
+The same imagery is used in the Book of Revelation for the marriage supper of the Lamb (Revelation 19:7-9) because our physical marriages on earth reflect the spiritual marriage between Jesus and His bride (the Church).
+
+The best way to understand the Book of Revelation is to see it in the Liturgy of the new Passover / Mass, and the best way to understand the Liturgy of the new Passover / Mass is to see it in the Book of Revelation.  Both must go together; they are inseparable; they cannot be divorced.
+
+Worship, in Heaven includes :
+
+1. the Liturgy of the Word, and
+2. the Liturgy of the Eucharist / new Passover.
+
+The two halves of the Heavenly liturgy correspond with the two parts of the Liturgy of the new Passover / Mass on earth.
+
+In chapter 1, Jesus blesses the Lectors who read the three Readings (the Scriptures and Psalms) at the beginning of the Liturgical Service during Mass; Jesus also blesses those in the congregation who hear the Word of God attentively and apply it to their lives.
+
+Chapter 2 represents the Penitential Rite where Jesus reminds the congregations to repent for their sins.
+
+2 Timothy 3:14-15
+*But you, remain faithful to what you have learned and believed, because you know from whom you learned it, and that from infancy you have known the sacred scriptures, which are capable of giving you wisdom for salvation through faith in Christ Jesus.*
+
+Learning scripture must be started at a young age, preferably from childhood, as commanded by God, because our memory power is strongest than when we get older.  Timothy was able to learn the Scriptures during his childhood because his mother and grandmother were godly women.  Like them, if we help our children to be familiar with the Scriptures when they start learning to speak, it will help them to know how to face negative situations and fight evil as they grow up, just as Jesus did (Matthew 4:3-10), and thus remain close to God at all times.
+
+2 Timothy 3:16-17
+*All Scripture is inspired by God and is useful for teaching, for reproof/ refutation, for correction, and for training in righteousness, so that the one who belongs to God may be competent/proficient, equipped for every good work.*
+
+“Theopneustos” in Greek means Inspired or God-breathed.
+But although the scriptures are the Word of God, they bear the style of the human authors.
+This is a mystery similar to the incarnation.
+
+Just as the Word of God in flesh is both human and divine, so also the Word of God in scripture is both human and divine (God’s Word written by human hands) (Exodus 34:1 & 27-28).
+Just as the Word of God in flesh took on every nature of humans except sin, so also the inspired Word of God in scripture comes to us with all the limitations of human language, except errors.
+
+Scripture was not dictated by God. The Holy Spirit inspired the Evangelists to write the scriptures but allowed them to use their talents to write, so the accounts recorded by all four are not exactly the same word-to-word.  It is like the Holy Spirit taking a picture of the same object with four cameras of different brands.
+
+God is its principal author, with the writer as the human collaborator.
+Thus the Scriptures are the Word of God in human language.
+
+Paul tells Timothy to continue in what he has learned for two reasons:
+a) because he has been educated in the scriptures, and;
+b) because he knows from whom he has learned it (Paul himself).  This is a direct appeal to apostolic tradition, the oral teaching which the apostle Paul had given Timothy.
+
+If we don't understand the Bible then it just means we have to study it in more detail or do some research ourselves under the guidance of the right teachers.
+
+But although all scripture is inspired by God and is useful for teaching, for correction, for training in righteousness, etc., teaching the faith is not limited only to written scripture, because faith cannot be understood completely only from written tradition.  To understand faith completely we need the help of the written tradition as well as the traditions handed down by word of mouth, which we need to hold fast to, as Paul tells us (2 Thessalonians 2:15).
+
+2 Timothy 4:21
+*Eubulus sends greetings to you, as do Pudens and Linus and Claudia and all the brothers and sisters.*
+
+After the death of Peter, Linus was chosen to be the successor of Peter as the second Pope / Prime Minister of the holy Kingdom.  Linus was a Roman Christian.
+
+🔥🔥🔥🔥🔥🔥🔥
