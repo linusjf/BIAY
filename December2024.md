@@ -96,6 +96,7 @@
   * [December 25,2024](#december-252024)
     + [Heavenly Worship](#heavenly-worship)
     + [Day 360 Mass - heaven on earth as understood in the book of Revelations.](#day-360-mass---heaven-on-earth-as-understood-in-the-book-of-revelations)
+    + [BIAY Day 360 By Cynthia Dsilva](#biay-day-360-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -2104,3 +2105,105 @@ blessed,
 
 “Blessed are those who are called to the supper of the lamb”. Rev 19:9
 May the Holy Spirit lead us.
+
+### BIAY Day 360 By Cynthia Dsilva
+
+Revelation 4:1-2
+This was a shadow of the new Covenant Sunday worship (John saw the vision on a Sunday).
+After our sins are forgiven during the Penitential Rite of the Mass, when the Priest invites us to ‘Lift up our hearts’ and we agree by saying, “we lift them up to the Lord,” like John, our spirits are lifted up to Heaven to continue worshipping God with the angels and saints in Heaven, while our bodies are still on the earth.
+
+Jesus invites us up to Heaven every Sunday, not by dying but, in the spirit, to worship God.
+When we worship the Lord during Mass on Sundays, we are actually attending the Mass with Jesus in Heaven, not in body but, in spirit.
+
+Revelation 4:4
+The 24 Elders or Priests ("Presbyteroi" in Greek) in Heaven were represented by the 24 Priestly divisions who served in the Temple in any given year.\
+In Heaven, the 24 Elders/Priests are the Patriarchs of the 12 tribes and the 12 Apostles.
+
+Revelation 4:5
+This was represented by the Minorah in the Temple of the Old Covenant, the Minorah being a foreshadow of the Holy Spirit.
+The Seven flaming torches are the 7 Archangels who stand in front of the Throne of God and always serve Him (Revelation 8:2), as per Archangel Raphael (Tobit 12:15).
+
+Revelation 4:6-7
+The four living creatures before the Throne in Heaven were represented by the four Cherubims carved on the wall of the Temple.
+The four living creatures are the apex of the praise of God in Heaven;
+The four evangelists are the apex for proclaiming the Word made flesh on earth by giving us the accounts of the life, death and resurrection of Christ.
+
+This was the same vision which was shown to Moses (Numbers 2:1-34).  The 12 tribes of Israel were to be stationed around the four sides of the Temple, with 3 tribes in each group, so that when God looked down at them from heaven it looked like a Cross.  The priestly tribe (the Levites) were to be stationed at the center of the Temple.
+
+Revelation 4:8
+Jesus has made us worthy to receive Him in the company of angels and saints in God’s holy Temple, because we have been purified during the Penitential Rite of the Mass (Revelation chap. 2 & 3).  We therefore join the angels and saints in glorifying God with their unending hymn of praise, around God’s Altar, the hymn which was heard even by Isaiah after he was purified “Holy, holy, holy, Lord of hosts, Heaven and earth are full of Your glory…......” (Isaiah 6:3).
+At this point Heaven and earth become one and both worship God together.
+
+The battle between good and evil will not be over until the bride of Christ (the Church) will be handed over to God the Father and *all the angels and saints* will sing "holy, holy, holy,,......" in Heaven.
+
+Revelation 4:10
+Worship in heaven is physical as well as vocal. There's a lot of bowing down and kneeling, along with prayers, which are signs of humility and reverence.
+
+God has given us a flexible body so that we can use it to worship and glorify Him.
+We join our hands in prayer, we kneel to humble ourselves when praying, we genuflect in reverence, we stand to sing hymns and hear the Gospel, we sit to sing hymns and hear the Readings (other than the Gospel), we bow our heads or back in adoration or reverence.
+
+Revelation 5:1
+God had a message for His people.
+
+The scroll contained the promises of the New Covenant Law (the Gospel) which only the Lamb of God was worthy enough to open and read in heaven because He was the only sinless One who was worthy enough to be the Lamb for the New Covenant to save the world.
+
+The early Christians read the Word of God (Old Testament) from scrolls during the celebration of the new Passover (the Mass). They did not have the Old Testament combined in a book (the Bible) (Luke 4:17) and they did not even have the New Testament document because it was not documented till the end of the first century.   The books of the Bible (Old and New Testaments) were combined into one book much later (around the 4th century AD) by Saint Jerome.  Thereafter the Church has always read the Word of God (Old and New Testaments) from the Bible.
+
+Revelation 5:5-6
+Jesus is the only one who can proclaim the Word of God through our anointed priests and Deacons, during the the Mass.
+Jesus, the king of the universe, is compared to a lion, the king, to symbolize His victory (Genesis 49:9).
+
+Then I saw between the throne ……………. a lamb standing as if it had been slaughtered/slain.
+Jesus wasn't walking on four legs like the earthly lambs, and an earthly lamb cannot hold a scroll or anything else with its front paw.
+The Lamb was a representation of Jesus in His humanity.
+
+Christ has died, Christ has been buried, Christ has risen, Christ has ascended, Christ is enthroned as the Paschal Lamb, but He went to Heaven with His wounds still fresh (John 20:27), not with His wounds healed, because God's people have not stopped sinning.  He still looks like a slain Lamb because He continually offers His crucified Body and Blood (the Passover Lamb) to God the Father, during every celebration of the new Passover (the Mass), in atonement for our sins (Hebrews 7:25).
+During Mass, when the Priest lifts up the bread & wine together (the Body of Christ) to invite the congregation to the marriage feast of the Lamb, at this point the bread & wine is the resurrected Lamb of God, standing as if slain, with His fresh wounds.
+
+*Seven horns and seven eyes; these are the Seven spirits of God sent out into the whole world.*
+Christ has the fullness of power (horns) and knowledge (eyes) (Zechariah 4:10) and His Spirits have been sent out to all the Parishes of the Church all over the world, not only the 7 Parishes which He addressed in chapters 2 & 3.
+This is the daily scenario in Heaven and is the same scenario on earth when God's Kingdom comes down on earth during the Liturgical service (Mass) in Church, and Heaven and earth resound together in praising and worshipping God.
+
+*Then one of the elders said to me, “Do not weep.  The Lion of the tribe of Judah, has conquered." Then I saw a Lamb standing as if it had been slaughtered.*
+The “Lion” is a “Lamb” and it has conquered by being slaughtered.
+Jesus didn't conquer the world's greatest enemy (Satan) with worldly weapons and violence. Jesus conquered Satan by rejecting Satan's offers on how to save His Body from suffering, and chose to suffer by humbling Himself like a lamb.
+Satan comes to each of us too, in many different ways, with his juicy offers.
+But like Jesus, we too must conquer Satan by dying to the comfort and pleasures and ways of this world, so that we may rise with Jesus.
+
+Revelation 5:7
+During every Mass the Priest (the representative of Christ) unlocks the Bible to read the Word of God.
+
+Revelation 5:8
+These are the prayers/petitions of the saints/holy ones on earth, which are offered up to God through Jesus, every Sunday, after the Priest delivers the sermon/homily.  These also include our personal petitions.\
+These prayers are received by the 24 elders/priests (the Patriarchs of the 12 tribes and the 12 the Apostles) in Heaven (Psalm 141:1; Tobit 12:12).
+
+These prayers are sent up to God because we are part of the Communion of Saints in Heaven through baptism.  We encounter many obstacles in our daily lives which make it difficult for us to accomplish our mission on earth and remain holy, due to the damaged nature of our souls and because we are still in the flesh.
+These prayers include general needs of the Church community, the public authorities, the oppressed, etc., whatever could be a possible obstacle in maintaining the holiness of the Church.
+
+Do the Saints Pray for Us?
+We may infer from the fact that the saints are in heaven that they would pray for us. Being in heaven means being united with God, who is love (1 John 4:8-9, 16). When united with God, we will be transformed to be like him (Rom. 8:29; 1 Cor. 15:49-52; 2 Cor. 3:18; 2 Pet. 1:4; 1 John 3:2), for “nothing unclean shall enter” the heavenly city (Rev. 21:27).
+Being thus transformed by the love of God, the saints are filled with love and so care about others. It is natural when you care about someone to pray to God for that person. We can thus infer that, just as God loves us and provides for us, the saints love and pray for those on earth.
+
+Revelation 5:9-10
+Jesus is the new Israel and those who are baptized into His Body are priests in the kingdom of the new Israel, some common and some ordained.
+
+*You have made them to be a kingdom and priests to serve our God.*
+The duty of a priest is to serve God by offering sacrifices. While the ordained priests are permitted to offer the sacrifice of the Body and Blood of the divine Son of God, we, the common priests, can offer our bodies, in union with Christ, so that God can use us for the growth of His Kingdom.
+
+Revelation 5:11-14
+In Heaven the angels and saints enjoy worshipping God continuously (Revelation 4:8) because they are in supreme communion with God, but on earth God has commanded us to worship Him in His House (the Church) at least once a week because our sinful bodies make it difficult for us to enjoy spending even one hour with God, while the same bodies will not have any problem spending endless hours with worldly distractions and worldly activities.
+
+Then all Heaven and earth joins together with loud voices to sing with one accord the Great “Amen".  On earth we sing this Great “Amen" at the end of the Eucharistic liturgy.   Thereafter Jesus makes the atonement for our sins (Hebrews 7:25).  In Heaven there is no atonement for sins but the angels and saints rejoice while they sing along with us because we (the bride) have now been purified (covered with while robes) and made ready for the marriage supper of the Lamb (to receive Communion).
+
+When we give a positive response to the Word of God (Amen, thanks be to God, praise to you Lord Jesus Christ) we are swearing that we will live by it, just as the ancient Israelites did (Exodus 24:7).  Doing otherwise is disobedience and therefore sinful.
+
+Titus 1:5-9
+Paul was advising Titus to anoint more men to serve as bishops/overseers, priests/presbyters and deacons/helpers in the new Churches/Parishes.  Anointed priests and bishops would be the successors of the Apostles, ensuring that the Church's “dominion continued through all generations” (Philippians 1:1).
+
+Paul applied the teaching of Jesus (Luke 17: 1-6) to Titus, who was Paul's spiritual child and the Bishop of Crete. Paul had instructed Titus to appoint in every town, blameless men to serve the Lord as priests, but before judging their character, Titus, as the Bishop of the Church, had to ensure that he himself was blameless, clean of character, holy and spreading the message of Christ to all.
+
+*But why did Paul give all these instructions to Titus?*
+Paul gave all these instructions to Titus because Paul knew that the Church was not going to be free of the spirit of Judas.
+Paul also knew that it would be easy to find qualified men to serve as priests and bishops, but they would not be blameless men, they would be proud, arrogant, irritable, etc., and they would eventually be involved in corruption and scandals.   Therefore, Paul cautioned Titus that when he appointed bishops and priests, he must appoint men who would pursue holiness, men who would be righteous and holy spiritual fathers.
+
+🔥🔥🔥🔥🔥🔥🔥
