@@ -93,6 +93,9 @@
     + [John's Apocalypse](#johns-apocalypse)
     + [Day 359 Behold I stand at the door and knock.](#day-359-behold-i-stand-at-the-door-and-knock)
     + [BIAY Day 359 By Cynthia Dsilva](#biay-day-359-by-cynthia-dsilva)
+  * [December 25,2024](#december-252024)
+    + [Heavenly Worship](#heavenly-worship)
+    + [Day 360 Mass - heaven on earth as understood in the book of Revelations.](#day-360-mass---heaven-on-earth-as-understood-in-the-book-of-revelations)
 
 <!-- tocstop -->
 
@@ -2024,3 +2027,80 @@ But although all scripture is inspired by God and is useful for teaching, for co
 After the death of Peter, Linus was chosen to be the successor of Peter as the second Pope / Prime Minister of the holy Kingdom.  Linus was a Roman Christian.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## December 25,2024
+
+### Heavenly Worship
+
+[![Heavenly Worship](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day360.jpg)](https://youtu.be/rnn_VeSKdTQ "Heavenly Worship")
+
+### Day 360 Mass - heaven on earth as understood in the book of Revelations.
+
+As we read through the book of revelations we can feel lost and the book can seem very Sci Fi or apocalyptic. The verse that can put it into perspective is
+
+I was caught up in spirit on the Lord’s day and heard behind me a voice as loud as a trumpet. Rev 1:10
+
+It was the Lord’s day which is Sunday for the Christian as Jesus rose from the dead on Sunday. The early Christians would celebrate the Eucharist on Sunday, John was alone on the island of Patmos and Jesus wanted to reveal to Him what actually happens during Mass. The heavens are open and the church militant(us) is united to the Church glorified (Saints and Angels in heaven) in the worship of the Lamb of God. The book of revelations shows how the Eucharist is the wedding feast of the Lamb where heaven and earth unite.
+
+The Lord’s Supper, because of its connection with the supper which the Lord took with his
+disciples on the eve of his Passion and because it anticipates the wedding feast of the Lamb in
+the heavenly Jerusalem. CCC 1329
+
+The title the “wedding feast of the Lamb” is seen in the book of Revelation.
+
+“Then the angel said to me, “Write this: Blessed are those who have been called to the wedding
+feast of the Lamb.” And he said to me, “These words are true; they come from God.”” Rev 19:9
+
+The book of Revelation was written in a coded or concealed form such that the Roman Empire
+would not discover the actual context. However, a deeper reading can help us find clues that
+the book has a lot of references to the Eucharist.
+
+As already mentioned it was the Lord’s day that John was caught up in the spirit. Rev 1:10
+
+He sees an altar Rev 8:3 ;
+candles Rev 1:12 ;
+incense Rev 5:8 ;
+priests dressed in robes Rev 4:4 .
+And he sees bread or manna Rev 2:17
+and bowls or chalices of blood Rev 16 .
+He sees heavenly worshippers – angels and saints – crying, “Holy, Holy, Holy” Rev 4:8
+singing a hymn to the glory of God, the heavenly king Rev 15:3-4 and
+shouting “alleluia”; Rev 19:1,3,6
+making the sign of the cross on their foreheads Rev 14:1 .
+finally, the “wedding feast of the Lamb Rev 19:9 .
+
+The multiple use of the word “lamb of God” and more importantly Jesus’s words
+
+“Behold, I stand at the door and knock. If anyone hears my voice and opens the door, \[then\] I
+will enter his house and dine with him, and he with me.” Rev 3:20
+At the wedding feast of the Mass, Jesus comes into our hearts through the door, our mouth when
+we receive the most eloquent of all foods Jesus’s body and blood and He dines with us. Jesus is
+the Bridegroom and the church is the bride, the Eucharist in the intimate union of the
+Bridegroom and the bride, the church Militant, Suffering and Triumphant.
+
+1382 The Mass is at the same time, and inseparably, the sacrificial memorial in which the
+sacrifice of the cross is perpetuated and the sacred banquet of communion with the Lord’s
+body and blood. But the celebration of the Eucharistic sacrifice is wholly directed toward the
+intimate union of the faithful with Christ through communion. To receive communion is to
+receive Christ himself who has offered himself for us.
+
+At this sacred banquet we received Christ himself and are intimately united to Him and to the
+Church. The Eucharist forms sacred links uniting the faithful, we are one body in Christ.
+“The communion of the sacraments are sacred links uniting the faithful with one another and
+binding them to Jesus Christ, it is primarily the Eucharist that brings this communion about.”
+
+CCC 950
+The Early church not only proclaimed the Eucharist but also remembered Jesus in the daily
+breaking of the bread.
+“In the first community of Jerusalem, believerst ;devoted themselves to the apostles teaching
+and fellowship, to the breaking of bread, and the prayers. This sequence is characteristic of
+the Church’s prayer: founded on the apostolic faith; authenticated by charity; nourished in the
+Eucharist.” CCC 2624
+
+In conclusion let us not forget that we are “Blessed” to partake in this sacrament for it’s the most
+intimate union one can have with God on earth. Jesus is truly present in the Eucharist, body,
+blood, soul and divinity. This prayer from the Eucharistic liturgy reminds us that we are truly
+blessed,
+
+“Blessed are those who are called to the supper of the lamb”. Rev 19:9
+May the Holy Spirit lead us.
