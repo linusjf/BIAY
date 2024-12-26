@@ -97,6 +97,8 @@
     + [Heavenly Worship](#heavenly-worship)
     + [Day 360 Mass - heaven on earth as understood in the book of Revelations.](#day-360-mass---heaven-on-earth-as-understood-in-the-book-of-revelations)
     + [BIAY Day 360 By Cynthia Dsilva](#biay-day-360-by-cynthia-dsilva)
+  * [December 26,2024](#december-262024)
+    + [Judgment and Repentance](#judgment-and-repentance)
 
 <!-- tocstop -->
 
@@ -2207,3 +2209,9 @@ Paul gave all these instructions to Titus because Paul knew that the Church was 
 Paul also knew that it would be easy to find qualified men to serve as priests and bishops, but they would not be blameless men, they would be proud, arrogant, irritable, etc., and they would eventually be involved in corruption and scandals.   Therefore, Paul cautioned Titus that when he appointed bishops and priests, he must appoint men who would pursue holiness, men who would be righteous and holy spiritual fathers.
 
 🔥🔥🔥🔥🔥🔥🔥
+
+## December 26,2024
+
+### Judgment and Repentance
+
+[![Judgment and Repentance](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day361.jpg)](https://youtu.be/LCEln1heqP8 "Judgment and Repentance")
