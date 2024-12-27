@@ -99,6 +99,8 @@
     + [BIAY Day 360 By Cynthia Dsilva](#biay-day-360-by-cynthia-dsilva)
   * [December 26,2024](#december-262024)
     + [Judgment and Repentance](#judgment-and-repentance)
+  * [December 27,2024](#december-272024)
+    + [The Woman Clothed with the Sun](#the-woman-clothed-with-the-sun)
 
 <!-- tocstop -->
 
@@ -2215,3 +2217,9 @@ Paul also knew that it would be easy to find qualified men to serve as priests a
 ### Judgment and Repentance
 
 [![Judgment and Repentance](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day361.jpg)](https://youtu.be/LCEln1heqP8 "Judgment and Repentance")
+
+## December 27,2024
+
+### The Woman Clothed with the Sun
+
+[![The Woman Clothed with the Sun](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day362.jpg)](https://youtu.be/2l0Q9gjHrqk "The Woman Clothed with the Sun")
