@@ -104,6 +104,9 @@
     + [BIAY Day 362 By Cynthia Dsilva](#biay-day-362-by-cynthia-dsilva)
   * [December 28,2024](#december-282024)
     + [The New Covenant Priesthood](#the-new-covenant-priesthood)
+    + [BIAY Day 363 By Cynthia Dsilva](#biay-day-363-by-cynthia-dsilva)
+  * [December 29,2024](#december-292024)
+    + [Christ's Sacrifice Once for All](#christs-sacrifice-once-for-all)
 
 <!-- tocstop -->
 
@@ -2401,3 +2404,131 @@ The Resurrection of Jesus (the new Adam) on the first day of the week was the be
 ### The New Covenant Priesthood
 
 [![The New Covenant Priesthood](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day363.jpg)](https://youtu.be/oX1MJT0iXpc "The New Covenant Priesthood")
+
+### BIAY Day 363 By Cynthia Dsilva
+
+Revelation 15:2
+*And I saw......... those who had conquered the beast and its image and the number of its name.*
+
+Those who had conquered the beast were the martyrs.
+The martyrs are shown as victorious even though the beast succeeded in killing them on earth because the beast succeeded in destroying their bodies but not their souls.  The beast wanted them to deny Jesus / disobey God to save their bodies but they refused until their death.
+Spiritual victory is not the same as physical victory.
+
+Revelation 16:1-17
+The seven angels poured the wine of God’s fury as destructive libations on those who rejected the Blood of the Covenant (the Blood of Christ), as opposed to the atoning libations (the Blood of Christ) offered to God during Mass by the priests.
+
+In the New Covenant, as in the Old, God has given us a choice between eternal life and eternal death.  To reject the Blood of the new Covenant (the Blood of Christ) is to choose death (Hebrews 10:29).
+
+During every Mass, when we hear the Priest repeat the words of institution, “this is the Chalice of my Blood, the Blood of the new and everlasting Covenant” we must recall the judgement of the Apocalypse.\
+During every Mass, we stand before the judgement seat when we bind ourselves to the Covenant.
+During every Mass, we receive the Chalice either for our salvation or for our judgement (1 Corinthians 11:27).
+
+Revelation 16:14
+*These were demonic spirits who performed signs. They went out to the kings of the whole world to assemble them for the battle on the great day of God the almighty.*
+
+The evil spirits will go out into the world to prepare the kings for world war.  But simultaneously, there is also a spiritual war going on in the spiritual realm between the good spirits and the evil spirits (Revelation 12:7) which is reflected by war on the earth between humans.
+
+At the beginning of the Bible, after Adam and Eve chose to make a Covenant with Satan, Satan used one man (Cain) to kill his own brother, which was the result of pride.
+
+At the end if the Bible Satan has succeeded in stirring up the pride of billions of humans to kill each other.
+
+Instead of using money to feed the poor and needy, pride has led humans to use that same money to buy weapons to kill each other.
+When man has too many material conditions for happiness, he multiplies wars.
+
+Revelation 17:1 & 15
+*The great harlot who lives near the many waters.*
+The “great harlot” could have been pagan Rome, who led people astray into idolatry and immoral lifestyle, the population of Rome being a mixture of many nationalities (many waters).
+
+Revelation 17:2
+*The kings of the earth have committed fornication with her and the inhabitants of the earth became drunk on the wine of her harlotry.*
+The pagan kings of Israel (example: Herod), subject to pagan Rome, adopted the cult of the emperors and led the people of Israel astray into idolatry and immoral lifestyle.  Therefore Jerusalem and Judah were also referred to as a “harlot” (Ezekiel 16:2-63; Jeremiah 2:20; 3:3; Isaiah 1:21).
+
+Revelation 17:6
+*The woman was drunk on the blood of the holy ones and on the blood of the witnesses to Jesus.*
+Persecution of the Apostles and the faithful Christians by the Romans.
+
+Revelation 17:9-10
+*The seven heads represent seven hills upon which the woman is seated. They also represent seven kings. Five have already fallen, one still lives, and the last has not yet come, and when he comes he must remain only a short while.*
+Rome is only one of the cities in the world which sits on seven hills but so does Athens, Jerusalem, San Francisco and Cincinnati.
+
+Rome is built on seven hills. During the time of John, the currency coins used by pagan Rome were embossed with a lady sitting on seven hills, so the first century Jewish Christians knew exactly who John was referring to.
+
+According to the Jewish historian Josephus, the five kings who had fallen were the deceased emperors of the Caesarean dynasty of Rome (Julius Caesar, Augustus, Tiberius I, Caligula and Claudius).  Emperor Nero Caesar, the sixth, was the one who was ruling (AD 54 to 68).   The next emperor, who was not yet crowned, would be Galba, the seventh one, who would last for only one year (AD 68 to 69).
+
+Hebrews 5:1-4
+This law applies to all priests of the old as well as the new Covenants.
+Much emphasis is put on the High Priest because the letters to the Hebrews were written when the High Priest of the old Covenant was still functioning in the Jerusalem Temple even after the old priesthood was handed over to Jesus and the new priesthood had started functioning in the Church.
+The High Priest of the old Covenant was therefore, at that point, a religious danger to the Jewish Christians who were confused between the two priesthoods. Due to this confusion the Jewish Christians continued following the Mosaic law faithfully and offering animal sacrifices while they also attended the liturgical services in the Church and offered the sacrifice of the Lamb of God.
+
+Thus, they were taking part in the sacrificial meals of the Temple as well as of the Church.
+
+A Priest does not take on his priestly role by choice, but only when called by God (John 15:16).  Although all Christian men are called to be common priests, God calls certain men from among them for His special divine mission.  However, our first universal calling happens when we are called by God to the grace of faith to receive the sacrament of Baptism.  The calling for Priesthood is the second calling of selected men who must receive another sacrament, the sacrament of Holy Orders.
+
+Just as Aaron, in the old Covenant, did not take the honor upon himself when he was appointed by God to be the earthly High Priest, similarly, Christ neither appointed Himself nor did He exalt Himself when He was appointed by God to be the heavenly High Priest, because that was a calling from God, not the choice of Jesus.\
+The author of Hebrews was explaining to the people how it was possible for Jesus to be designated as a heavenly High Priest even though He did not meet any of the criteria of an earthly High Priest (Hebrews 4:14-16).
+
+Every High Priest has the principal function of acting as a sacrificial mediator between God and His people.   The role of the High Priest is:
+a)  to act on behalf of God’s people,
+b)  to speak to God on behalf of God’s people,
+c)  to plead for forgiveness from God on behalf of God’s people, and.\
+d)  to offer sacrifices on behalf of God’s people in atonement for their sins, which is meant to reconcile God’s people to God.
+The earthly High Priest was able to understand / sympathize with the people because he himself was subject to weakness of the soul (a sinner) like God’s people.  Therefore, the High Priest was above the people in his role as mediator, but he was also part of the same people as a sinner.
+
+In the old Covenant, the ordained priest offered the sacrifice of an earthly lamb on behalf of the consecrated common priests (the congregation) who took part in the worship in union with the ordained priest and thereafter they shared in the sacrificial meal (the earthly lamb) for their physical nourishment.
+In the new Covenant, the ordained priest offers the sacrifice of the heavenly Lamb of God (Jesus) on behalf of the baptismal common priests (the congregation) who take part in the worship in union with the ordained priest and thereafter they share in the heavenly sacrificial meal (the Bread of eternal life / Communion) for their spiritual nourishment.
+
+God wanted Israel to be a nation of common priests (Exodus 19:6) but this didn’t happen in the new Covenant because majority of Israel rejected Jesus.
+
+By virtue of their baptism, Christians have a share in Christ’s common priesthood
+This is commonly referred to as “the common priesthood of all the faithful.”
+However, certain members of the faithful are ordained to a greater participation in Christ’s priesthood to serve as ministerial priests / by the Sacrament of Holy Orders. This is known as the ministerial priesthood.
+Christ, the source of the common and ministerial priesthoods, is our High Priest
+
+The Church thus understands there to be a threefold structure of the priesthood:
+
+1. the common priesthood of all Christians (1 Peter 2:9);
+2. the ministerial priesthood of the ordained (Romans 15:16; Acts 14:23; 1 Tim. 5:17; Titus 1:5; James 5:14); and
+3. the high priesthood of Christ (Hebrews 3:1, 4:14–15, 5:5, 6:20, and 9:11).
+   It was the same pattern in the Old Covenant.
+   There was a common priesthood of the Israelites made up of the head of every household, a ministerial priesthood from the sons of Aaron (Exod. 28:1), with Aaron as the high priest (Ezra 7:5).
+
+The ordained ministry or the ministerial priesthood is at the service of the baptismal priesthood.  Christ the Lord, High Priest who was taken from among men, (Heb. 5:1-5) made the new people (the Christians) "a kingdom of common priests to God the Father" (Rev. 6:1; 5:9-10).
+
+Hebrews 5:5-6
+*Christ was appointed by the One who said to him, “You are my Son, today I have begotten you”; as he says also in another place, “You are a priest forever, according to the order of Melchizedek.”*
+
+To be God's son is to be a Priest according to the order of Melchizedek. That is why only men are called to be the anointed/ordained priests. And that is why Jesus chose only men to be His Apostles, His future priests, even though He had many female disciples.
+
+To be a Priest according to the order of Melchizedek means to have a clean priesthood where there is no bloodshed, and to offer bread and wine to God in thanksgiving.
+It is the same in the New Covenant.
+
+In between, the Levitical priesthood was a priesthood where the offerings involved a lot of bloodshed (of animals) because of the sin of the Golden Calf.
+But Melchizedek’s offering was an incomplete offering.
+Jesus became a Priest according to the order of Melchizedek, in the Upper Room, when He made a complete offering of bread and wine in thanksgiving as well as in atonement for the sins of God’s people.
+
+Hebrews 7:23-24
+*The former priests were many in number, because they were prevented by death from continuing in office; but Jesus holds his priesthood permanently, because he continues forever.*
+
+How does the priesthood of Jesus remain forever ?
+
+When the New Covenant priests repeat the words of consecration, Jesus takes the gifts/offerings (bread and wine) from the earthly priests, transforms them into His Body and Blood and offers them to God the Father in the Holy of Holies (Holy Sanctuary), in atonement for the sins of the Priest and his congregation (Hebrews 7:25).  Thereafter God the Father blesses the gifts/offerings and returns them to the Priest as the resurrected Body of Christ (the new Passover Lamb) which the people must consume as their sacrificial meal (Communion).  Thus, with His holy and acceptable offering Jesus, the High Priest, is able to purify the worshipers and bring them closer to God.
+
+And as long as there are priests on earth, Jesus will be performing His priestly duty by continually offering Himself to the Father, to purify God’s people and bring them closer to God.  Therefore the celebration of the Eucharist (Mass) must go on until the end of time (Exodus 12:14, 17 & 24).
+
+Hebrews 7:25
+*Consequently he is able for all time to save those who approach God through him, since he always lives to make intercession for them.*
+Jesus intercedes for us continuously by offering the sacramental sacrifice in Heaven whenever it is offered on the earth, the same sacrifice which He offered in the Upper Room.
+
+When does Jesus make this intercession for us?
+Jesus intercedes for us during the Mass and even when we generally pray to God through Jesus, outside the Mass.
+
+Hebrews 8:12
+God will not remember our sins which have been forgiven by His priests, but the sins which are not confessed and those which are not forgiven ((John 20:23)), till we die, will be remembered on Judgment Day.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## December 29,2024
+
+### Christ's Sacrifice Once for All
+
+[![Christ's Sacrifice Once for All](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day364.jpg)](https://youtu.be/Uj16LVInOE4 "Christ's Sacrifice Once for All")
