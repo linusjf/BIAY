@@ -99,6 +99,7 @@
     + [BIAY Day 360 By Cynthia Dsilva](#biay-day-360-by-cynthia-dsilva)
   * [December 26,2024](#december-262024)
     + [Judgment and Repentance](#judgment-and-repentance)
+    + [Day 361: A second chance](#day-361-a-second-chance)
   * [December 27,2024](#december-272024)
     + [The Woman Clothed with the Sun](#the-woman-clothed-with-the-sun)
     + [BIAY Day 362 By Cynthia Dsilva](#biay-day-362-by-cynthia-dsilva)
@@ -107,6 +108,9 @@
     + [BIAY Day 363 By Cynthia Dsilva](#biay-day-363-by-cynthia-dsilva)
   * [December 29,2024](#december-292024)
     + [Christ's Sacrifice Once for All](#christs-sacrifice-once-for-all)
+    + [BIAY Day 364 By Cynthia Dsilva](#biay-day-364-by-cynthia-dsilva)
+  * [December 30,2024](#december-302024)
+    + [The Beginning and the End](#the-beginning-and-the-end)
 
 <!-- tocstop -->
 
@@ -2224,6 +2228,30 @@ Paul also knew that it would be easy to find qualified men to serve as priests a
 
 [![Judgment and Repentance](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day361.jpg)](https://youtu.be/LCEln1heqP8 "Judgment and Repentance")
 
+### Day 361: A second chance
+
+We listened to the letter of St Paul to Philemon today and it’s a very short book it has just one chapter. Most of the chapter is written about Onesimus, St Paul is asking Philemon to give Onesimus a second chance in life.
+Philemon was a wealthy Chritian and a just man. Onesimus was his slave, remember slavery wasn’t forced but mutually accepted back in the day just like our modern day job contract. Onesimus was probably a useless slave and possibly did something wrong to Philemon or did not fulfill his duties. It’s possible that Philemon sent him to jail or the Onesimus ran away and got into trouble, for our context it really does not matter.
+Onesimus encountered Paul in the prison and received the gospel, he then became very helpful to Paul. In the letter to Philemon we read that Paul wanted to keep Onesimus with him as he was a great help in Paul’s old age, however Paul wanted to send him back to Philemon so Onesimus can fulfil his duty and be justified fully. Let us read the section of this letter as it’s beautifully written.
+
+For I have experienced much joy and encouragement\* from your love, because the hearts of the holy ones have been refreshed by you, brother.
+Therefore, although I have the full right\* in Christ to order you to do what is proper,
+I rather urge you out of love, being as I am, Paul, an old man,\* and now also a prisoner for Christ Jesus. I urge you on behalf of my child Onesimus, whose father I have become in my imprisonment, who was once useless to you but is now useful\* to \[both\] you and me.
+I am sending him, that is, my own heart, back to you.
+I should have liked to retain him for myself, so that he might serve\* me on your behalf in my imprisonment for the gospel,
+but I did not want to do anything without your consent, so that the good you do might not be forced but voluntary.
+Perhaps this is why he was away from you for a while, that you might have him back forever,
+no longer as a slave but more than a slave, a brother, beloved especially to me, but even more so to you, as a man\* and in the Lord.
+So if you regard me as a partner, welcome him as you would me.
+And if he has done you any injustice or owes you anything, charge it to me.
+I, Paul, write this in my own hand: I will pay. May I not tell you that you owe me your very self.
+Yes, brother, may I profit from you in the Lord. Refresh my heart in Christ.
+With trust in your compliance I write to you, knowing that you will do even more than I say.
+At the same time prepare a guest room for me, for I hope to be granted to you through your prayers.   Philemon 1: 7-22
+I wish and hope that everyone who needs a second chance in life finds a St Paul to lead and guide them. Also we should never write off anyone, but always know that Jesus can change their lives in ways we least expect it. Even if they are in jail like Onesimus there is still a chance that they can convert their lives, the gospel is not bound. Also we should pray for those involved in prison ministry, that they may have the patience and strength to minister to the inmates. Remember Jesus’ words in Mat 25:36 "I was in prison, and you came to me". Giving someone a second chance is really hard especially if they hurt us, we cannot rely on our own strength here but only on God’s grace. Forgiving close family members like a spouse, parent or child is extremely difficult but pray and give them a second chance not just once but 70 times 7.
+
+May the Holy Spirit lead us
+
 ## December 27,2024
 
 ### The Woman Clothed with the Sun
@@ -2532,3 +2560,135 @@ God will not remember our sins which have been forgiven by His priests, but the 
 ### Christ's Sacrifice Once for All
 
 [![Christ's Sacrifice Once for All](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day364.jpg)](https://youtu.be/Uj16LVInOE4 "Christ's Sacrifice Once for All")
+
+### BIAY Day 364 By Cynthia Dsilva
+
+Revelation 18:4
+*Then I heard another voice from heaven say, “Depart from her, my people, so as not to take part in her sins and receive a share in her plagues.”*
+
+This is a command for God’s people to separate themselves from the sinners, and not for evacuation of the city.
+God wanted the faithful Christians to leave Rome for their safety and also so that they do not fall into sin by following the pagan worship and lifestyle.  Because of the severe persecution of the Christians during this time, the Christians fled from Rome, settled in other countries around Rome and started evangelizing the people there. Thus Christianity spread to the whole of Europe.
+
+God allowed the persecution to move the Christians from their comfort zones and do their duty of evangelizing the world, which would not have happened if they continued to live comfortably in Rome.
+
+This can happen to anyone of us if God wants us to go on a mission to places we would never have thought of.
+
+When the Christians moved out, Rome was then left with only the wicked ones who brought destruction on themselves.
+
+Revelation 18:8
+*Therefore, her plagues will come in one day, pestilence, grief, and famine; she will be consumed by fire.  For mighty is the Lord God who judges her.*
+
+The Babylon referred to in this chapter could be Jerusalem (as some scholars believe), because Rome had completely destroyed Jerusalem by burning the city, in 70 AD, and according to the book of Ezekiel, the curse of the Covenant was to come upon Jerusalem.  We see the curse fulfilled in this book with famine, pestilence, strife (Revelation 6:2-8) and the seven angelic trumpets.\
+These calamities, which took place during the destruction of the Temple, were recorded by Josephus (the Jewish historian).\
+During this time not a single Christian perished because they had fled to the mountains across Jordan to a place called Pella, as commanded by Jesus (Mathew 24:15-16).
+
+After the destruction of the Temple, a few houses and the Upper Room had, however, survived the destruction, and around 130 AD, as reported by St. Epiphanius, the Christians who returned to Jerusalem later, continued celebrating the new Passover / Eucharist in the Upper Room.
+Why did God preserve the Upper Room ?
+According to Tradition, this was the place where Jesus had instituted the Eucharist, and the spot where the Holy Spirit had descended on the Apostles, Mary and the other disciples, on Pentecost Sunday.  It was the place where the first Christians were nourished during the spiritual famine, and where they were sealed by the Spirit for safety in the forthcoming destruction.  The Upper Room is situated on Mount Zion, in Jerusalem, which was the capital city of the earthly Davidic kingdom.
+
+Revelation 19:1, 3, 4, 6.
+Hallel-u-yah means "Praise the Lord."
+This frequent exclamation of praise in the Hebrew Psalms was important in Jewish liturgy and has been adopted by the Church as well.
+
+Revelation 19:7-9
+*Let us rejoice and be glad and give him glory, for the wedding day of the Lamb has come, his bride has made herself ready. She was allowed to wear a bright, clean linen garment.”  (The linen represents the righteous deeds of the holy ones.)  Then the angel said to me, “Write this: Blessed are those who have been called to the marriage feast of the Lamb.” And he said to me, “These words are true; they come from God.”*
+During the liturgical service of the new Passover / Mass, through the power of the Holy Spirit, atonement has been made by Jesus (Hebrews 7:25), on behalf of His priests, for the forgiven sins of the bride of Christ (the Priest and the congregation) and thus she has purified herself and made herself ready for the marriage feast of the Lamb.  Her good works go along with her.
+
+The spotless bride (the community of saints) is, therefore, now being invited to take part in the marriage feast of the Lamb, to unite with her Groom (Jesus) by receiving the Body of Christ (John 6:54) since she is already in a state of grace (1 Corinthians 11:27-29).\
+At this point the priest raises the living Body of Christ and officially invites the purified congregation to share in the heavenly meal, by saying:
+"Behold the Lamb of God, behold Him who takes away the sins of the world (John 1:29), Blessed are those who have been called to the supper of the Lamb (Revelation 19:9)."
+This is the climax of the worship.
+
+The words of invitation (Revelation 19:9) come from God through His anointed priests.
+Our earthly marriages reflect the spiritual marriage between Jesus and His bride.  We must, therefore, always respect the sanctity of marriage (Hebrews 13:4).
+
+The nuptial union takes place when we receive the Body of Christ (our heavenly Groom) on our tongue and therefore we surrender and subject ourselves to Him (Ephesians 5:22-24).  The bride (the community of saints) must, therefore, always go forward to the Altar, with humility, to receive her groom (Jesus).
+
+When Jesus comes at the end of time, the saints of the Church will be going marching with Him to Heaven, in the same manner, to receive Him in person and take part in the heavenly wedding feast in Heaven.
+
+Thus, the Bible begins in Genesis with a marriage between Adam (the son of God) and his bride (Eve), and ends in Revelation with a marriage between Jesus (the Son of God) and His bride (the new Eve / Mary and the saints of the Church).
+
+Revelation 19:15
+*Out of his mouth came a sharp sword to strike the nations.*
+Jesus will conquer the nations by preaching the Word of God.  It is a heavenly weapon, not an earthly one.  Therefore, the sword is not in His hand but in His mouth.
+
+Revelation 20:1-4
+*Then I saw an angel coming down from heaven, holding in his hand the key to the bottomless pit and a great chain.  He seized the dragon, that ancient serpent, who is the Devil and Satan, and bound him for a thousand years, and threw him into the pit, and locked and sealed it over him, so that he would deceive the nations no more, until the thousand years were ended.*
+The binding of Satan’s army started when Jesus, during His Ministry, started releasing the people of the bigger demons which no one could bind (Matthew 12:29; Mark 3:27).\
+By His crucifixion and death, Jesus finally destroyed the power of Satan over humanity (locked Satan inside the pit).  The saving power of Jesus, however, applies to us only when we are baptized and, thereafter, Jesus protects us from Satan when we receive the sacraments (1 John 5:18; Mark 3:27; John 12:31-32).
+That is why, whenever we release Satan from the lockup with our mortal sins, we need the sacraments to release our souls from his clutches.
+
+On the other hand, when Christians live in total obedience to God they contribute to the sanctification of the world and the glorification of God (Matthew 5:16).
+
+Hebrews 9:11-12\
+In Christ’s fulfillment of the Old Covenant sacrifices, Jesus’s sacrifice didn’t begin and end on Calvary, nor did it end with his glorious Resurrection, which is why He told Mary Magdalene not to cling to Him because He had not yet ascended to his Father in heaven (John 20:17), to complete the sacrificial ritual.  There was something more for Jesus to do to complete His one sacrifice.
+
+Unlike the earthly high priests, Jesus ascended to a Heavenly Sanctuary, not made by hands, and brought His own sinless blood to God to obtain eternal redemption once for all (Hebrews 9:11-12), to appear in the presence of God and reconcile the people to God, and thereafter celebrate the Day of Atonement of the new Covenant with the angels and saints in the true Holy of Holies, thereby terminating the Day of Atonement of the Old Covenant.  Thus the one-time sacrifice of Jesus, which started in the Upper Room, was completed only in the Heavenly Sanctuary after His Ascension.
+
+Hebrews 9:22
+*According to the law almost everything is purified by blood, and without the shedding of blood there is no forgiveness.*
+Without the shedding of blood there is no forgiveness of sins because sin is in our blood.
+The duty of a priest is therefore to reconcile sinners to God by pouring out the divine blood (the consecrated wine) which was given to us to make atonement for our sins (Luke 22:19-20; 1 Corinthians 11:25).
+When we break our Covenant with God, it is not enough to say “sorry” and close the chapter.  We must offer holy blood to God to repair the damage and the only blood acceptable to God is the Blood of Christ.
+
+If sin is debt then the Blood of Christ is credit.
+Jesus paid a debt He did not owe, because we owed a debt we could not pay.
+This verse is written in the present tense because it is valid until the end of time.
+
+Hebrews 10:9-10
+*He abolishes the first in order to establish the second.  And it is by God’s will that we have been sanctified through the offering of the body of Jesus Christ once for all.*
+
+In the old Covenant, the earthly lambs had to be slaughtered and offered daily or monthly or yearly because, although those lambs were without physical blemish, they died after being slaughtered.  Therefore, the priests and their congregation could not receive divine life after eating the sacrificial meals.
+
+But that was just a shadow of the new Covenant.
+
+In the new Covenant, the heavenly Lamb of God (Jesus) was slaughtered only once but this Lamb still lives and will live on forever even after being slaughtered because He was without spiritual blemish (sin). Therefore, the priests and their congregations can receive divine life after offering His body and blood and eating the sacrificial meal (the Body of Christ / Communion).
+
+*And it is by God’s will that we have been sanctified through the offering of the body of Jesus Christ once for all.*
+The sacrifice of Jesus is like comprehensive insurance for our souls.  Jesus has paid the advance price with His Blood therefore we don’t have to pay the price with our blood.  So now whenever we become sick (with sins) we can go to our spiritual doctor (the priest) and tell him our symptoms (confession) and he will advise some lifestyle changes (penance).  Thereafter, he will prepare the medicine (atonement with the Blood of Christ) so that our souls may be healed (purified).
+
+Proverbs 31:28a
+*Her children rise up and call her blessed.*
+The godly woman described here is a mature mother of older children. “Her children rise up and call her blessed”.  They recognize what a great job she has done.
+
+*For what do they bless her?*
+
+*The children bless their mother for raising godly children in an ungodly world.*
+The true charm of this woman is her religious spirit and fear of God.
+Proverbs was written during a different time in history and in a different land, yet we face similar challenges with marriage and family life.
+During a much earlier period of history, Noah faced these challenges of an ungodly culture (Genesis 6:5, 11). God was ready to destroy everything, but Noah found favor with God. He was a righteous man, blameless in his generation (Genesis 6:8, 9). God had a plan to save him and his entire family. Noah’s wife believed God’s Word through her husband; she trusted his leadership. Together Noah and she had raised sons who also believed God’s Word through their father and helped him build the Ark. In that godless culture they chose wives who followed their lead, believing God’s Word through Noah. There was no spiritual leader to ask for advise, and there was no Bible to refer to.
+Building the Ark was no simple task; it took decades. They had to gather the animals and supplies manually.  People may have definitely mocked Noah and his family for believing and obeying God's Word.
+The same is true even today, and like Noah, we may also be mocked for trying to raise godly children in an ungodly world.
+We need to follow Noah’s example.
+Husbands need to lead their families;
+Wives need to trust the Lord to work through the spiritual leadership of their husbands;
+Parents need to teach and help their children to pursue holiness, irrespective of their age, including choosing godly spouses for them;
+And our families need to remain in the Ark of the Church (the barque of Peter), so that we are preserved from the floodwaters of wickedness that surround us.
+Finally, we thank God for the salvation he has graciously provided, praying that others will open their hearts to the same grace.
+
+*They bless their mother for their good family name.*
+She contributes to a legacy:
+"The memory of the righteous is a blessing, but the name of the wicked will rot" (Proverbs 10:7).
+When a woman marries, she takes her husband’s family name as an expression of unity. She then contributes to the positive reputation of that name. The couple then gives their family name to their children and expects them to also contribute to the honor of the family name.
+“A good name is to be chosen rather than great riches, and favor is better than silver or gold” (Proverbs 22:1).
+
+*They bless their mother for her obedience of faith.*
+As parents, our obedience or disobedience has a generational impact (Exodus20:5–6).
+Likewise, our marriage is an ongoing source of strength for our children as they move from childhood to adulthood. Christian husbands and wives are “joint heirs of the grace of life” (1 Peter 3:7). How we conduct ourselves in the vocation of marriage authenticates what we believe, especially in our expanding family. Imagine the gratitude of our adult children as they enter this vocation and discover its richness but also its challenges. How grateful they will be for our faithfulness!
+
+*They bless their mother for her prayers for them.*
+We pray for our adult children to be close to us emotionally and spiritually even when they are not close to us geographically. Time and space are our boundaries, not God’s. When older children live elsewhere, we can feel scattered. We gather them in our prayers, offering our Masses and rosaries for them and uniting our fasting and little mortifications with our petitions.
+We imitate Jesus by interceding for our children, just as he lives to intercede for us (Hebrews 7:25).
+
+We pray for our children’s safety from physical and spiritual harm, just as Job did. He rose early, every day, to pray for his adult children, that they might not sin grievously against the Lord (Job 1:5). His prayers formed a hedge of protection that only God could allow Satan to breach (Job 1:10).
+
+We pray for a godly spouse from a godly family for each child called to marriage. It is not enough to raise a godly child; whom they marry is also critical. We also pray for the whole family into which our child will marry.
+The parents who formed the spouses of our children will be ongoing influences. We pray that they will strengthen the couple and support them as they become parents themselves.
+
+🔥🔥🔥🔥🔥🔥🔥
+
+## December 30,2024
+
+### The Beginning and the End
+
+[![The Beginning and the End](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day365.jpg)](https://youtu.be/4B60Ji4y6hg "The Beginning and the End")
