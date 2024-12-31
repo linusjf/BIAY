@@ -103,7 +103,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 - [January 2024](https://github.com/linusjf/BIAY/blob/main/January2024.md)
 
-<-- tocstop -->
+<!-- tocstop -->
 
 ## February 2024
 
@@ -111,7 +111,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 - [February 2024](https://github.com/linusjf/BIAY/blob/main/February2024.md)
 
-<-- tocstop -->
+<!-- tocstop -->
 
 ## March 2024
 
@@ -119,7 +119,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 - [March 2024](https://github.com/linusjf/BIAY/blob/main/March2024.md)
 
-<-- tocstop -->
+<!-- tocstop -->
 
 ## April 2024
 
@@ -127,7 +127,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 - [April 2024](https://github.com/linusjf/BIAY/blob/main/April2024.md)
 
-<-- tocstop -->
+<!-- tocstop -->
 
 ## May 2024
 
@@ -135,7 +135,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 - [May 2024](https://github.com/linusjf/BIAY/blob/main/May2024.md)
 
-<-- tocstop -->
+<!-- tocstop -->
 
 ## June 2024
 
@@ -143,7 +143,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 - [June 2024](https://github.com/linusjf/BIAY/blob/main/June2024.md)
 
-<-- tocstop -->
+<!-- tocstop -->
 
 ## July 2024
 
@@ -151,7 +151,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 - [July 2024](https://github.com/linusjf/BIAY/blob/main/July2024.md)
 
-<-- tocstop -->
+<!-- tocstop -->
 
 ## August 2024
 
@@ -159,7 +159,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 - [August 2024](https://github.com/linusjf/BIAY/blob/main/August2024.md)
 
-<-- tocstop -->
+<!-- tocstop -->
 
 ## September 2024
 
@@ -167,7 +167,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 - [September 2024](https://github.com/linusjf/BIAY/blob/main/September2024.md)
 
-<-- tocstop -->
+<!-- tocstop -->
 
 ## October 2024
 
@@ -175,7 +175,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 - [October 2024](https://github.com/linusjf/BIAY/blob/main/October2024.md)
 
-<-- tocstop -->
+<!-- tocstop -->
 
 ## November 2024
 
@@ -183,7 +183,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 - [November 2024](https://github.com/linusjf/BIAY/blob/main/November2024.md)
 
-<-- tocstop -->
+<!-- tocstop -->
 
 ## December 2024
 
@@ -191,4 +191,4 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 - [December 2024](https://github.com/linusjf/BIAY/blob/main/December2024.md)
 
-<-- tocstop -->
+<!-- tocstop -->
