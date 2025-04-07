@@ -16,29 +16,17 @@ documentation for details.
    :caption: Contents:
 
    redme.md
-   January2023.md
    JanIndex.md
-   February2023.md
    FebIndex.md
-   March2023.md
    MarIndex.md
-   April2023.md
    AprIndex.md
-   May2023.md
    MayIndex.md
-   June2023.md
    JunIndex.md
-   July2023.md
    JulIndex.md
-   August2023.md
    AugIndex.md
-   September2023.md
    SepIndex.md
-   October2023.md
    OctIndex.md
-   November2023.md
    NovIndex.md
-   December2023.md
    DecIndex.md
    HOWTO.md
 
