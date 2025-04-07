@@ -33,62 +33,62 @@ documentation for details.
 .. include:: redme.md
    :parser: myst_parser.sphinx_
 
-.. include:: January2023.md
+.. include:: January2024.md
    :parser: myst_parser.sphinx_
 .. include:: JanIndex.md
    :parser: myst_parser.sphinx_
 
-.. include:: February2023.md
+.. include:: February2024.md
    :parser: myst_parser.sphinx_
 .. include:: FebIndex.md
    :parser: myst_parser.sphinx_
 
-.. include:: March2023.md
+.. include:: March2024.md
    :parser: myst_parser.sphinx_
 .. include:: MarIndex.md
    :parser: myst_parser.sphinx_
 
-.. include:: April2023.md
+.. include:: April2024.md
    :parser: myst_parser.sphinx_
 .. include:: AprIndex.md
    :parser: myst_parser.sphinx_
 
-.. include:: May2023.md
+.. include:: May2024.md
    :parser: myst_parser.sphinx_
 .. include:: MayIndex.md
    :parser: myst_parser.sphinx_
 
-.. include:: June2023.md
+.. include:: June2024.md
    :parser: myst_parser.sphinx_
 .. include:: JunIndex.md
    :parser: myst_parser.sphinx_
 
-.. include:: July2023.md
+.. include:: July2024.md
    :parser: myst_parser.sphinx_
 .. include:: JulIndex.md
    :parser: myst_parser.sphinx_
 
-.. include:: August2023.md
+.. include:: August2024.md
    :parser: myst_parser.sphinx_
 .. include:: AugIndex.md
    :parser: myst_parser.sphinx_
 
-.. include:: September2023.md
+.. include:: September2024.md
    :parser: myst_parser.sphinx_
 .. include:: SepIndex.md
    :parser: myst_parser.sphinx_
 
-.. include:: October2023.md
+.. include:: October2024.md
    :parser: myst_parser.sphinx_
 .. include:: OctIndex.md
    :parser: myst_parser.sphinx_
 
-.. include:: November2023.md
+.. include:: November2024.md
    :parser: myst_parser.sphinx_
 .. include:: NovIndex.md
    :parser: myst_parser.sphinx_
 
-.. include:: December2023.md
+.. include:: December2024.md
    :parser: myst_parser.sphinx_
 .. include:: DecIndex.md
    :parser: myst_parser.sphinx_
