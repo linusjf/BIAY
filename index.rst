@@ -16,18 +16,18 @@ documentation for details.
    :caption: Contents:
 
    redme.md
-   JanIndex.md
-   FebIndex.md
-   MarIndex.md
-   AprIndex.md
-   MayIndex.md
-   JunIndex.md
-   JulIndex.md
-   AugIndex.md
-   SepIndex.md
-   OctIndex.md
-   NovIndex.md
-   DecIndex.md
+   Janyary2024.md
+   February2024.md
+   March2024.md
+   April2024.md
+   May2024.md
+   June2024.md
+   July2024.md
+   August2024.md
+   September2024.md
+   October2024.md
+   November2024.md
+   December2024.md
    HOWTO.md
 
 .. include:: redme.md
@@ -35,62 +35,38 @@ documentation for details.
 
 .. include:: January2024.md
    :parser: myst_parser.sphinx_
-.. include:: JanIndex.md
-   :parser: myst_parser.sphinx_
 
 .. include:: February2024.md
-   :parser: myst_parser.sphinx_
-.. include:: FebIndex.md
    :parser: myst_parser.sphinx_
 
 .. include:: March2024.md
    :parser: myst_parser.sphinx_
-.. include:: MarIndex.md
-   :parser: myst_parser.sphinx_
 
 .. include:: April2024.md
-   :parser: myst_parser.sphinx_
-.. include:: AprIndex.md
    :parser: myst_parser.sphinx_
 
 .. include:: May2024.md
    :parser: myst_parser.sphinx_
-.. include:: MayIndex.md
-   :parser: myst_parser.sphinx_
 
 .. include:: June2024.md
-   :parser: myst_parser.sphinx_
-.. include:: JunIndex.md
    :parser: myst_parser.sphinx_
 
 .. include:: July2024.md
    :parser: myst_parser.sphinx_
-.. include:: JulIndex.md
-   :parser: myst_parser.sphinx_
 
 .. include:: August2024.md
-   :parser: myst_parser.sphinx_
-.. include:: AugIndex.md
    :parser: myst_parser.sphinx_
 
 .. include:: September2024.md
    :parser: myst_parser.sphinx_
-.. include:: SepIndex.md
-   :parser: myst_parser.sphinx_
 
 .. include:: October2024.md
-   :parser: myst_parser.sphinx_
-.. include:: OctIndex.md
    :parser: myst_parser.sphinx_
 
 .. include:: November2024.md
    :parser: myst_parser.sphinx_
-.. include:: NovIndex.md
-   :parser: myst_parser.sphinx_
 
 .. include:: December2024.md
-   :parser: myst_parser.sphinx_
-.. include:: DecIndex.md
    :parser: myst_parser.sphinx_
 
 .. include:: HOWTO.md
