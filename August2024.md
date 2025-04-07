@@ -1,125 +1,125 @@
 <!-- toc -->
 
 - [August 2024](#august-2024)
-  * [August 01,2024](#august-012024)
-    + [The Hidden Glory of God](#the-hidden-glory-of-god)
-    + [Day #214 Can a woman forget her nursing child?](#day-%23214-can-a-woman-forget-her-nursing-child)
-    + [Good, Good Father](#good-good-father)
-    + [BIAY Day 214 By Cynthia Dsilva](#biay-day-214-by-cynthia-dsilva)
-  * [August 02,2024](#august-022024)
-    + [False Prophets](#false-prophets)
-    + [Day #215 How beautiful are the feet of the messenger who announces peace](#day-%23215-how-beautiful-are-the-feet-of-the-messenger-who-announces-peace)
-  * [August 03,2024](#august-032024)
-    + [The Suffering Servant](#the-suffering-servant)
-    + [Day #216 By his bruises we are healed](#day-%23216-by-his-bruises-we-are-healed)
-    + [BIAY Day 216 By Cynthia Dsilva](#biay-day-216-by-cynthia-dsilva)
-  * [August 04,2024](#august-042024)
-    + [The Everlasting Covenant](#the-everlasting-covenant)
-    + [Day #217 For my house shall be called a house of prayer for all peoples](#day-%23217-for-my-house-shall-be-called-a-house-of-prayer-for-all-peoples)
-    + [BIAY Day 217 By Cynthia Dsilva](#biay-day-217-by-cynthia-dsilva)
-  * [August 05,2024](#august-052024)
-    + [Each Will Be Judged](#each-will-be-judged)
-    + [Day #218 True fasting](#day-%23218-true-fasting)
-    + [BIAY Day 218 By Cynthia Dsilva](#biay-day-218-by-cynthia-dsilva)
-  * [August 06,2024](#august-062024)
-    + [Separation from God](#separation-from-god)
-    + [Day #219 Growing little by little makes one stronger](#day-%23219-growing-little-by-little-makes-one-stronger)
-    + [BIAY Day 219 By Cynthia Dsilva](#biay-day-219-by-cynthia-dsilva)
-  * [August 07,2024](#august-072024)
-    + [Prophecy Fulfilled](#prophecy-fulfilled)
-    + [Day #220 The oil of gladness instead of mourning](#day-%23220-the-oil-of-gladness-instead-of-mourning)
-    + [BIAY Day 220 By Cynthia Dsilva](#biay-day-220-by-cynthia-dsilva)
-  * [August 08,2024](#august-082024)
-    + [Walking with Wise Men](#walking-with-wise-men)
-    + [Day #221 There is none to stand in the breach before God](#day-%23221-there-is-none-to-stand-in-the-breach-before-god)
-  * [August 09,2024](#august-092024)
-    + [Idolatry and Adultery](#idolatry-and-adultery)
-    + [Day #222 Indifferent toward God](#day-%23222-indifferent-toward-god)
-  * [August 10,2024](#august-102024)
-    + [Responding Well](#responding-well)
-    + [Day #223 The New Covenant](#day-%23223-the-new-covenant)
-    + [BIAY Day 223 By Cynthia Dsilva](#biay-day-223-by-cynthia-dsilva)
-  * [August 11,2024](#august-112024)
-    + [The Weeping Prophet](#the-weeping-prophet)
-    + [Day #224 Jeremiah’s call is our call](#day-%23224-jeremiahs-call-is-our-call)
-    + [BIAY Day 224 By Cynthia Dsilva](#biay-day-224-by-cynthia-dsilva)
-  * [August 12,2024](#august-122024)
-    + [Our Will vs. God's Will](#our-will-vs-gods-will)
-    + [Day #225 Cracked cisterns instead of fountains of living water](#day-%23225-cracked-cisterns-instead-of-fountains-of-living-water)
-    + [BIAY Day 225 By Cynthia Dsilva](#biay-day-225-by-cynthia-dsilva)
-    + [DAY 225 By Sheila](#day-225-by-sheila)
-  * [August 13,2024](#august-132024)
-    + [Unfaithful Israel](#unfaithful-israel)
-    + [Day #226 True freedom is found in a Christ-centered life.](#day-%23226-true-freedom-is-found-in-a-christ-centered-life)
-    + [Day #227 Circumcise yourselves to the Lord and remove the foreskin of your hearts.](#day-%23227-circumcise-yourselves-to-the-lord-and-remove-the-foreskin-of-your-hearts)
-    + [BIAY Day 226 By Cynthia Dsilva](#biay-day-226-by-cynthia-dsilva)
-  * [August 14,2024](#august-142024)
-    + [The Towering Cedar](#the-towering-cedar)
-    + [Day #227 Circumcise yourselves to the Lord and remove the foreskin of your hearts.](#day-%23227-circumcise-yourselves-to-the-lord-and-remove-the-foreskin-of-your-hearts-1)
-  * [August 15,2024](#august-152024)
-    + [The Watchman's Duty](#the-watchmans-duty)
-    + [Day #228 A Sentinel just cannot keep quiet when he sees the sword coming](#day-%23228-a-sentinel-just-cannot-keep-quiet-when-he-sees-the-sword-coming)
-  * [August 16,2024](#august-162024)
-    + [Shepherds of Israel](#shepherds-of-israel)
-    + [Day #229 The Lord will be our Shepherd](#day-%23229-the-lord-will-be-our-shepherd)
-    + [BIAY Day 229 By Cynthia Dsilva](#biay-day-229-by-cynthia-dsilva)
-  * [August 17,2024](#august-172024)
-    + [A New Heart](#a-new-heart)
-    + [Day #230 I will remove from you your heart of stone and give you a heart of flesh.](#day-%23230-i-will-remove-from-you-your-heart-of-stone-and-give-you-a-heart-of-flesh)
-    + [BIAY Day 230 By Cynthia Dsilva](#biay-day-230-by-cynthia-dsilva)
-    + [Day#230 By Michael Eltham](#day%23230-by-michael-eltham)
-  * [August 18,2024](#august-182024)
-    + [The Valley of Dry Bones](#the-valley-of-dry-bones)
-    + [BIAY Day 231 By Cynthia Dsilva](#biay-day-231-by-cynthia-dsilva)
-    + [Day#231 By Michael Eltham](#day%23231-by-michael-eltham)
-  * [August 19,2024](#august-192024)
-    + [Glory in Knowing God](#glory-in-knowing-god)
-    + [BIAY Day 232 By Cynthia Dsilva](#biay-day-232-by-cynthia-dsilva)
-    + [Day#232 By Michael Eltham](#day%23232-by-michael-eltham)
-  * [August 20,2024](#august-202024)
-    + [Correct me, O Lord](#correct-me-o-lord)
-    + [Day #233 By Michael Eltham](#day-%23233-by-michael-eltham)
-  * [August 21,2024](#august-212024)
-    + [Jeremiah Complains](#jeremiah-complains)
-    + [Day #234 By Michael Eltham](#day-%23234-by-michael-eltham)
-    + [BIAY Day 234 By Cynthia Dsilva](#biay-day-234-by-cynthia-dsilva)
-  * [August 22,2024](#august-222024)
-    + [Lying Prophets](#lying-prophets)
-    + [BIAY Day 235 By Cynthia Dsilva](#biay-day-235-by-cynthia-dsilva)
-  * [August 23,2024](#august-232024)
-    + [Rich in Love](#rich-in-love)
-    + [BIAY Day 236 By Cynthia Dsilva](#biay-day-236-by-cynthia-dsilva)
-    + [Day #236 By Michael Eltham](#day-%23236-by-michael-eltham)
-  * [August 24,2024](#august-242024)
-    + [Water from the Temple](#water-from-the-temple)
-    + [Day #237 By Michael Eltham](#day-%23237-by-michael-eltham)
-    + [BIAY Day 237 By Cynthia Dsilva](#biay-day-237-by-cynthia-dsilva)
-  * [August 25,2024](#august-252024)
-    + [Fall of Jerusalem](#fall-of-jerusalem)
-    + [Day #238 By Michael Eltham](#day-%23238-by-michael-eltham)
-    + [BIAY Day 238 By Cynthia Dsilva](#biay-day-238-by-cynthia-dsilva)
-  * [August 26,2024](#august-262024)
-    + [Hananiah, Mishael, and Azariah](#hananiah-mishael-and-azariah)
-    + [Day #239 When you walk through fire you shall not be burned](#day-%23239-when-you-walk-through-fire-you-shall-not-be-burned)
-    + [BIAY Day 239 By Cynthia Dsilva](#biay-day-239-by-cynthia-dsilva)
-  * [August 27,2024](#august-272024)
-    + [Remaining Humble](#remaining-humble)
-    + [Day #240 Commit your work to the Lord, and your plans will be established.](#day-%23240-commit-your-work-to-the-lord-and-your-plans-will-be-established)
-    + [BIAY Day 240 By Cynthia Dsilva](#biay-day-240-by-cynthia-dsilva)
-  * [August 28,2024](#august-282024)
-    + [Daniel and the Den of Lions](#daniel-and-the-den-of-lions)
-    + [Day #241 God will save us from all the conspiracy plotted against us.](#day-%23241-god-will-save-us-from-all-the-conspiracy-plotted-against-us)
-  * [August 29,2024](#august-292024)
-    + [King Nebuchadnezzar's Role](#king-nebuchadnezzars-role)
-    + [Day #242 God is in control of the nations.](#day-%23242-god-is-in-control-of-the-nations)
-    + [BIAY Day 242 By Cynthia Dsilva](#biay-day-242-by-cynthia-dsilva)
-  * [August 30,2024](#august-302024)
-    + [The Lord's Plans](#the-lords-plans)
-    + [Day #243 God’s plan for us is for our welfare not for evil.](#day-%23243-gods-plan-for-us-is-for-our-welfare-not-for-evil)
-    + [BIAY Day 243 By Cynthia Dsilva](#biay-day-243-by-cynthia-dsilva)
-  * [August 31,2024](#august-312024)
-    + [Susanna's Righteousness](#susannas-righteousness)
-    + [Day #244 Abusers prey on the innocent and don’t hesitate to misuse authority for their own gain](#day-%23244-abusers-prey-on-the-innocent-and-dont-hesitate-to-misuse-authority-for-their-own-gain)
+  - [August 01,2024](#august-012024)
+    - [The Hidden Glory of God](#the-hidden-glory-of-god)
+    - [Day #214 Can a woman forget her nursing child?](#day-%23214-can-a-woman-forget-her-nursing-child)
+    - [Good, Good Father](#good-good-father)
+    - [BIAY Day 214 By Cynthia Dsilva](#biay-day-214-by-cynthia-dsilva)
+  - [August 02,2024](#august-022024)
+    - [False Prophets](#false-prophets)
+    - [Day #215 How beautiful are the feet of the messenger who announces peace](#day-%23215-how-beautiful-are-the-feet-of-the-messenger-who-announces-peace)
+  - [August 03,2024](#august-032024)
+    - [The Suffering Servant](#the-suffering-servant)
+    - [Day #216 By his bruises we are healed](#day-%23216-by-his-bruises-we-are-healed)
+    - [BIAY Day 216 By Cynthia Dsilva](#biay-day-216-by-cynthia-dsilva)
+  - [August 04,2024](#august-042024)
+    - [The Everlasting Covenant](#the-everlasting-covenant)
+    - [Day #217 For my house shall be called a house of prayer for all peoples](#day-%23217-for-my-house-shall-be-called-a-house-of-prayer-for-all-peoples)
+    - [BIAY Day 217 By Cynthia Dsilva](#biay-day-217-by-cynthia-dsilva)
+  - [August 05,2024](#august-052024)
+    - [Each Will Be Judged](#each-will-be-judged)
+    - [Day #218 True fasting](#day-%23218-true-fasting)
+    - [BIAY Day 218 By Cynthia Dsilva](#biay-day-218-by-cynthia-dsilva)
+  - [August 06,2024](#august-062024)
+    - [Separation from God](#separation-from-god)
+    - [Day #219 Growing little by little makes one stronger](#day-%23219-growing-little-by-little-makes-one-stronger)
+    - [BIAY Day 219 By Cynthia Dsilva](#biay-day-219-by-cynthia-dsilva)
+  - [August 07,2024](#august-072024)
+    - [Prophecy Fulfilled](#prophecy-fulfilled)
+    - [Day #220 The oil of gladness instead of mourning](#day-%23220-the-oil-of-gladness-instead-of-mourning)
+    - [BIAY Day 220 By Cynthia Dsilva](#biay-day-220-by-cynthia-dsilva)
+  - [August 08,2024](#august-082024)
+    - [Walking with Wise Men](#walking-with-wise-men)
+    - [Day #221 There is none to stand in the breach before God](#day-%23221-there-is-none-to-stand-in-the-breach-before-god)
+  - [August 09,2024](#august-092024)
+    - [Idolatry and Adultery](#idolatry-and-adultery)
+    - [Day #222 Indifferent toward God](#day-%23222-indifferent-toward-god)
+  - [August 10,2024](#august-102024)
+    - [Responding Well](#responding-well)
+    - [Day #223 The New Covenant](#day-%23223-the-new-covenant)
+    - [BIAY Day 223 By Cynthia Dsilva](#biay-day-223-by-cynthia-dsilva)
+  - [August 11,2024](#august-112024)
+    - [The Weeping Prophet](#the-weeping-prophet)
+    - [Day #224 Jeremiah’s call is our call](#day-%23224-jeremiahs-call-is-our-call)
+    - [BIAY Day 224 By Cynthia Dsilva](#biay-day-224-by-cynthia-dsilva)
+  - [August 12,2024](#august-122024)
+    - [Our Will vs. God's Will](#our-will-vs-gods-will)
+    - [Day #225 Cracked cisterns instead of fountains of living water](#day-%23225-cracked-cisterns-instead-of-fountains-of-living-water)
+    - [BIAY Day 225 By Cynthia Dsilva](#biay-day-225-by-cynthia-dsilva)
+    - [DAY 225 By Sheila](#day-225-by-sheila)
+  - [August 13,2024](#august-132024)
+    - [Unfaithful Israel](#unfaithful-israel)
+    - [Day #226 True freedom is found in a Christ-centered life.](#day-%23226-true-freedom-is-found-in-a-christ-centered-life)
+    - [Day #227 Circumcise yourselves to the Lord and remove the foreskin of your hearts.](#day-%23227-circumcise-yourselves-to-the-lord-and-remove-the-foreskin-of-your-hearts)
+    - [BIAY Day 226 By Cynthia Dsilva](#biay-day-226-by-cynthia-dsilva)
+  - [August 14,2024](#august-142024)
+    - [The Towering Cedar](#the-towering-cedar)
+    - [Day #227 Circumcise yourselves to the Lord and remove the foreskin of your hearts.](#day-%23227-circumcise-yourselves-to-the-lord-and-remove-the-foreskin-of-your-hearts-1)
+  - [August 15,2024](#august-152024)
+    - [The Watchman's Duty](#the-watchmans-duty)
+    - [Day #228 A Sentinel just cannot keep quiet when he sees the sword coming](#day-%23228-a-sentinel-just-cannot-keep-quiet-when-he-sees-the-sword-coming)
+  - [August 16,2024](#august-162024)
+    - [Shepherds of Israel](#shepherds-of-israel)
+    - [Day #229 The Lord will be our Shepherd](#day-%23229-the-lord-will-be-our-shepherd)
+    - [BIAY Day 229 By Cynthia Dsilva](#biay-day-229-by-cynthia-dsilva)
+  - [August 17,2024](#august-172024)
+    - [A New Heart](#a-new-heart)
+    - [Day #230 I will remove from you your heart of stone and give you a heart of flesh.](#day-%23230-i-will-remove-from-you-your-heart-of-stone-and-give-you-a-heart-of-flesh)
+    - [BIAY Day 230 By Cynthia Dsilva](#biay-day-230-by-cynthia-dsilva)
+    - [Day#230 By Michael Eltham](#day%23230-by-michael-eltham)
+  - [August 18,2024](#august-182024)
+    - [The Valley of Dry Bones](#the-valley-of-dry-bones)
+    - [BIAY Day 231 By Cynthia Dsilva](#biay-day-231-by-cynthia-dsilva)
+    - [Day#231 By Michael Eltham](#day%23231-by-michael-eltham)
+  - [August 19,2024](#august-192024)
+    - [Glory in Knowing God](#glory-in-knowing-god)
+    - [BIAY Day 232 By Cynthia Dsilva](#biay-day-232-by-cynthia-dsilva)
+    - [Day#232 By Michael Eltham](#day%23232-by-michael-eltham)
+  - [August 20,2024](#august-202024)
+    - [Correct me, O Lord](#correct-me-o-lord)
+    - [Day #233 By Michael Eltham](#day-%23233-by-michael-eltham)
+  - [August 21,2024](#august-212024)
+    - [Jeremiah Complains](#jeremiah-complains)
+    - [Day #234 By Michael Eltham](#day-%23234-by-michael-eltham)
+    - [BIAY Day 234 By Cynthia Dsilva](#biay-day-234-by-cynthia-dsilva)
+  - [August 22,2024](#august-222024)
+    - [Lying Prophets](#lying-prophets)
+    - [BIAY Day 235 By Cynthia Dsilva](#biay-day-235-by-cynthia-dsilva)
+  - [August 23,2024](#august-232024)
+    - [Rich in Love](#rich-in-love)
+    - [BIAY Day 236 By Cynthia Dsilva](#biay-day-236-by-cynthia-dsilva)
+    - [Day #236 By Michael Eltham](#day-%23236-by-michael-eltham)
+  - [August 24,2024](#august-242024)
+    - [Water from the Temple](#water-from-the-temple)
+    - [Day #237 By Michael Eltham](#day-%23237-by-michael-eltham)
+    - [BIAY Day 237 By Cynthia Dsilva](#biay-day-237-by-cynthia-dsilva)
+  - [August 25,2024](#august-252024)
+    - [Fall of Jerusalem](#fall-of-jerusalem)
+    - [Day #238 By Michael Eltham](#day-%23238-by-michael-eltham)
+    - [BIAY Day 238 By Cynthia Dsilva](#biay-day-238-by-cynthia-dsilva)
+  - [August 26,2024](#august-262024)
+    - [Hananiah, Mishael, and Azariah](#hananiah-mishael-and-azariah)
+    - [Day #239 When you walk through fire you shall not be burned](#day-%23239-when-you-walk-through-fire-you-shall-not-be-burned)
+    - [BIAY Day 239 By Cynthia Dsilva](#biay-day-239-by-cynthia-dsilva)
+  - [August 27,2024](#august-272024)
+    - [Remaining Humble](#remaining-humble)
+    - [Day #240 Commit your work to the Lord, and your plans will be established.](#day-%23240-commit-your-work-to-the-lord-and-your-plans-will-be-established)
+    - [BIAY Day 240 By Cynthia Dsilva](#biay-day-240-by-cynthia-dsilva)
+  - [August 28,2024](#august-282024)
+    - [Daniel and the Den of Lions](#daniel-and-the-den-of-lions)
+    - [Day #241 God will save us from all the conspiracy plotted against us.](#day-%23241-god-will-save-us-from-all-the-conspiracy-plotted-against-us)
+  - [August 29,2024](#august-292024)
+    - [King Nebuchadnezzar's Role](#king-nebuchadnezzars-role)
+    - [Day #242 God is in control of the nations.](#day-%23242-god-is-in-control-of-the-nations)
+    - [BIAY Day 242 By Cynthia Dsilva](#biay-day-242-by-cynthia-dsilva)
+  - [August 30,2024](#august-302024)
+    - [The Lord's Plans](#the-lords-plans)
+    - [Day #243 God’s plan for us is for our welfare not for evil.](#day-%23243-gods-plan-for-us-is-for-our-welfare-not-for-evil)
+    - [BIAY Day 243 By Cynthia Dsilva](#biay-day-243-by-cynthia-dsilva)
+  - [August 31,2024](#august-312024)
+    - [Susanna's Righteousness](#susannas-righteousness)
+    - [Day #244 Abusers prey on the innocent and don’t hesitate to misuse authority for their own gain](#day-%23244-abusers-prey-on-the-innocent-and-dont-hesitate-to-misuse-authority-for-their-own-gain)
 
 <!-- tocstop -->
 
@@ -548,7 +548,7 @@ PROVERBS speaks of the right way that leads to success and happiness and obedien
 
 [![Unfaithful Israel](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day226.jpg)](https://youtu.be/8j4wGdi7jWE "Unfaithful Israel")
 
-### Day #226 True freedom is found in a Christ-centered life.
+### Day #226 True freedom is found in a Christ-centered life
 
 This proverb is so relevant to our times where everyone just wants the freedom to do as they please. We are a generation that doesn’t like restraints, borders, or limitations. We fight for rights and demand that everyone is given an opportunity to do as they please with their bodies/lives. We don’t like moderate living or many rules but are rebellious and careless.
 The wise are cautious and turn away from evil, but the fool throws off restraint and is careless. Prov 14:16
@@ -561,7 +561,7 @@ Our Freedom should lead us to a holy life, a Christ-Centered life, not a Live wh
 Let us find true freedom in Christ, the freedom to love our neighbor as we love ourselves.
 May the Holy Spirit lead us. 🙏
 
-### Day #227 Circumcise yourselves to the Lord and remove the foreskin of your hearts.
+### Day #227 Circumcise yourselves to the Lord and remove the foreskin of your hearts
 
 Sometimes our faith life can get limited to the outward following of rituals instead of heart-filled worship. We can be going through the motions in our spiritual life and not even know it. We may be praying but our heart is far from the Lord. The Jewish people have lost the true essence of the covenant they had with the Lord. They needed a wake-up call, a great awakening. The Lord is trying to get His people back, prophet after prophet is calling out to the people to repent. Prophet Jeremiah has been preaching repentance for years now, he cries out.
 Circumcise yourselves to the Lord, remove the foreskin of your hearts Jer 4:4
@@ -601,7 +601,7 @@ Jeremiah blends fatherly love and marital love as a tangible expression of the C
 
 [![The Towering Cedar](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day227.jpg)](https://youtu.be/dhyy3gqdQk8 "The Towering Cedar")
 
-### Day #227 Circumcise yourselves to the Lord and remove the foreskin of your hearts.
+### Day #227 Circumcise yourselves to the Lord and remove the foreskin of your hearts
 
 Sometimes our faith life can get limited to the outward following of rituals instead of heart-filled worship. We can be going through the motions in our spiritual life and not even know it. We may be praying but our heart is far from the Lord. The Jewish people have lost the true essence of the covenant they had with the Lord. They needed a wake-up call, a great awakening. The Lord is trying to get His people back, prophet after prophet is calling out to the people to repent. Prophet Jeremiah has been preaching repentance for years now, he cries out.
 Circumcise yourselves to the Lord,
@@ -678,7 +678,7 @@ As commanded by God, through Moses, all Jewish men had to celebrate Passover and
 
 [![A New Heart](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day230.jpg)](https://youtu.be/fggc0kDh21M "A New Heart")
 
-### Day #230 I will remove from you your heart of stone and give you a heart of flesh.
+### Day #230 I will remove from you your heart of stone and give you a heart of flesh
 
 The Love of the Lord is so great that even though the people of Israel left for idols and fake gods, God never forgot them. God promises to deliver Israel from exile and bring them back to their own land.
 “‘For I will take you out of the nations; I will gather you from all the countries and bring you back into your own land. 25 I will sprinkle clean water on you, and you will be clean; I will cleanse you from all your impurities and from all your idols. 26 I will give you a new heart and put a new spirit in you; I will remove from you your heart of stone and give you a heart of flesh. 27 And I will put my Spirit in you and move you to follow my decrees and be careful to keep my laws. 28 Then you will live in the land I gave your ancestors; you will be my people, and I will be your God. 29 I will save you from all your uncleanness. Eze 36:24-29
@@ -1192,7 +1192,7 @@ God does hear the prayers of the righteous ones but the answers may not always b
 
 [![Remaining Humble](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day240.jpg)](https://youtu.be/bPhv87fcq1I "Remaining Humble")
 
-### Day #240 Commit your work to the Lord, and your plans will be established.
+### Day #240 Commit your work to the Lord, and your plans will be established
 
 We often want to serve the Lord and are willing to serve His people. But find it hard to decide what to do. There are so many good things to do, give to the poor, spend time with the lonely, preach God’s word, sing songs of praise, take care of the sick, visit the prisoners, and the list goes on.
 There are unlimited things that we can do, but we find it hard to decide. The best way to do it is to commit our ways to the Lord and be led by the Spirit. We should do everything to glorify the Lord, we should always seek His plans and that is when our work will be fruitful.
@@ -1221,7 +1221,7 @@ In the new Covenant, in fulfillment of this prophecy (v.4-5), Jesus, the descend
 
 [![Daniel and the Den of Lions](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day241.jpg)](https://youtu.be/cOI53sGZx6A "Daniel and the Den of Lions")
 
-### Day #241 God will save us from all the conspiracy plotted against us.
+### Day #241 God will save us from all the conspiracy plotted against us
 
 People will go to any extent to get power and authority, we see this very relevant in today’s politics, in office structures, and even in our Christian circles. There is a lot of backbiting, character bashing, plots, schemes, and negative grouping that happens when someone is doing well. People try their very best to bring down another person, we act like crabs in a bucket – trying to pull the other one down.
 We see a similar situation here against Daniel. Daniel found favor with the King.
@@ -1244,7 +1244,7 @@ May the Holy Spirit lead us. 🙏
 
 [![King Nebuchadnezzar's Role](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day242.jpg)](https://youtu.be/Mnfevb5Ih7Q "King Nebuchadnezzar's Role")
 
-### Day #242 God is in control of the nations.
+### Day #242 God is in control of the nations
 
 We can sometimes be fearful when we look at the world news, powerful nations in conflict with each other, the threat of nuclear weapons, and nations threatening each other with missile testing. This could be overwhelming and cause a lot of fear. When we read today’s readings of Daniel’s visions – we have consolation that God knows what is happening and knows the future.
 In the third year of the reign of King Belshazzar a vision appeared to me, Daniel, after the one that had appeared to me at first. 2 In the vision I was looking and saw myself in Susa the capital, in the province of Elam, and I was by the river Ulai.3 I looked up and saw a ram standing beside the river. It had two horns. Both horns were long, but one was longer than the other, and the longer one came up second. 4 I saw the ram charging westward and northward and southward. All beasts were powerless to withstand it, and no one could rescue from its power; it did as it pleased and became strong.
@@ -1291,7 +1291,7 @@ Like Daniel, we too must make it a regular practice to pray for all sinners that
 
 [![The Lord's Plans](https://raw.githubusercontent.com/linusjf/BIAY/main/August/jpgs/Day243.jpg)](https://youtu.be/VQfD3oPeRX4 "The Lord's Plans")
 
-### Day #243 God’s plan for us is for our welfare not for evil.
+### Day #243 God’s plan for us is for our welfare not for evil
 
 We have read a lot about the false prophets, and how to speak on their own, they do not seek the Lord’s will. They only say words of comfort and prosperity, instead of speaking a message of repentance (the people were in a state of sin and needed to repent). Prophet Jeremiah was walking around with a yoke on his neck, as a visible icon that would remind the people that they are under the yoke of sin and are slaves because of their rebellion. Prophet Jeremiah heard from the Lord that Israel will be in exile for 70 years and after that, they will be restored back to Israel.
 However, prophet Hanani′ah speaks a false message that the yoke will be broken in 2 years. Prophet Hanani′ah took the wooden yoke off Jeremiah and broke it, and Jeremiah went his way.

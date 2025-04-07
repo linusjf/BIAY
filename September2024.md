@@ -1,113 +1,113 @@
 <!-- toc -->
 
 - [September 2024](#september-2024)
-  * [September 01,2024](#september-012024)
-    + [The Faithfulness of Daniel](#the-faithfulness-of-daniel)
-    + [Day #245 Man Made gods](#day-%23245-man-made-gods)
-    + [BIAY Day 245 By Cynthia Dsilva](#biay-day-245-by-cynthia-dsilva)
-  * [September 02,2024](#september-022024)
-    + [Rejoice in Doing Good](#rejoice-in-doing-good)
-    + [Day #246 God does not resentfully help us but rejoices in doing good to us.](#day-%23246-god-does-not-resentfully-help-us-but-rejoices-in-doing-good-to-us)
-    + [BIAY Day 246 By Cynthia Dsilva](#biay-day-246-by-cynthia-dsilva)
-  * [September 03,2024](#september-032024)
-    + [True Repentance](#true-repentance)
-    + [DAY #247 TRUE REPENTANCE BRINGS CHANGE](#day-%23247-true-repentance-brings-change)
-  * [September 04,2024](#september-042024)
-    + [Cut to the Heart](#cut-to-the-heart)
-    + [Day #248 Does suffering make you bitter or better?](#day-%23248-does-suffering-make-you-bitter-or-better)
-  * [September 05,2024](#september-052024)
-    + [Prayer of Judith](#prayer-of-judith)
-    + [Day #249 Setting a deadline for our petitions is like putting God to the test.](#day-%23249-setting-a-deadline-for-our-petitions-is-like-putting-god-to-the-test)
-    + [BIAY Day 249 By Cynthia Dsilva](#biay-day-249-by-cynthia-dsilva)
-  * [September 06,2024](#september-062024)
-    + [Final Wave of Exile](#final-wave-of-exile)
-    + [Day #250 Choosing God’s will or the easy way out?](#day-%23250-choosing-gods-will-or-the-easy-way-out)
-  * [September 07,2024](#september-072024)
-    + [Judith and Holofernes](#judith-and-holofernes)
-    + [Day #251 Drunkenness can cause you to let your guard down.](#day-%23251-drunkenness-can-cause-you-to-let-your-guard-down)
-  * [September 08,2024](#september-082024)
-    + [Queen of Heaven](#queen-of-heaven)
-    + [Day #252 The Queen of Heaven](#day-%23252-the-queen-of-heaven)
-    + [BIAY Day 252 By Cynthia Dsilva](#biay-day-252-by-cynthia-dsilva)
-  * [September 09,2024](#september-092024)
-    + [Lamentations of Jeremiah](#lamentations-of-jeremiah)
-    + [Day #253 Let our lamentations be prayers to Christ.](#day-%23253-let-our-lamentations-be-prayers-to-christ)
-  * [September 10,2024](#september-102024)
-    + [Judgment of Nations](#judgment-of-nations)
-    + [Day #254 A fool takes no pleasure in understanding, but only in expressing personal opinion.](#day-%23254-a-fool-takes-no-pleasure-in-understanding-but-only-in-expressing-personal-opinion)
-  * [September 11,2024](#september-112024)
-    + [God is Good](#god-is-good)
-  * [September 12,2024](#september-122024)
-    + [Hard Seasons](#hard-seasons)
-    + [Day 256 The Lord is a strong tower](#day-256-the-lord-is-a-strong-tower)
-  * [September 13,2024](#september-132024)
-    + [Choose to Love](#choose-to-love)
-    + [Day 257 We should try to love our extended family](#day-257-we-should-try-to-love-our-extended-family)
-  * [September 14,2024](#september-142024)
-    + [The Kingdom is Here](#the-kingdom-is-here)
-    + [Day 258 St Joseph our model](#day-258-st-joseph-our-model)
-    + [BIAY Day 258 By Cynthia Dsilva](#biay-day-258-by-cynthia-dsilva)
-  * [September 15,2024](#september-152024)
-    + [The Sermon on the Mount](#the-sermon-on-the-mount)
-    + [Day 259 Do not be anxious, isn’t life more than food and clothes](#day-259-do-not-be-anxious-isnt-life-more-than-food-and-clothes)
-    + [DAY 259 By Sheila](#day-259-by-sheila)
-    + [BIAY Day 259 By Cynthia Dsilva](#biay-day-259-by-cynthia-dsilva)
-  * [September 16,2024](#september-162024)
-    + [Carrying the Cross](#carrying-the-cross)
-    + [Day 260 Faith, Healing, and carrying our cross](#day-260-faith-healing-and-carrying-our-cross)
-    + [BIAY Day 260 By Cynthia Dsilva](#biay-day-260-by-cynthia-dsilva)
-    + [DAY 260. By Sheila](#day-260-by-sheila)
-  * [September 17,2024](#september-172024)
-    + [Ornate Souls](#ornate-souls)
-    + [Day 261 Is religion boring?](#day-261-is-religion-boring)
-    + [BIAY Day 261 By Cynthia Dsilva](#biay-day-261-by-cynthia-dsilva)
-  * [September 18,2024](#september-182024)
-    + [Miracle Worker](#miracle-worker)
-    + [Day #262 Authority – Keys to the Kingdom](#day-%23262-authority-%E2%80%93-keys-to-the-kingdom)
-    + [BIAY Day 262 By Cynthia Dsilva](#biay-day-262-by-cynthia-dsilva)
-  * [September 19,2024](#september-192024)
-    + [The Father's Generosity](#the-fathers-generosity)
-    + [Day #263 Forgiveness is a good idea until someone hurts us](#day-%23263-forgiveness-is-a-good-idea-until-someone-hurts-us)
-  * [September 20,2024](#september-202024)
-    + [Preaching Without Practice](#preaching-without-practice)
-    + [DAY #264 THE NECESSITY FOR WATCHFULNESS](#day-%23264-the-necessity-for-watchfulness)
-    + [BIAY Day 264 By Cynthia Dsilva](#biay-day-264-by-cynthia-dsilva)
-  * [September 21,2024](#september-212024)
-    + [Sins of Omission](#sins-of-omission)
-    + [DAY #265 FAITH & WORKS](#day-%23265-faith--works)
-    + [BIAY Day 265 By Cynthia Dsilva](#biay-day-265-by-cynthia-dsilva)
-  * [September 22,2024](#september-222024)
-    + [Son of the Father](#son-of-the-father)
-    + [Messianic Checkpoint: Gospel of Matthew](#messianic-checkpoint-gospel-of-matthew)
-    + [Day #266 I am with you always until the end of the age](#day-%23266-i-am-with-you-always-until-the-end-of-the-age)
-    + [BIAY Day 266 By Cynthia Dsilva](#biay-day-266-by-cynthia-dsilva)
-  * [September 23,2024](#september-232024)
-    + [Indifference and Apathy](#indifference-and-apathy)
-    + [Day 267 The return from exile](#day-267-the-return-from-exile)
-  * [September 24,2024](#september-242024)
-    + [Rebuilding the Temple](#rebuilding-the-temple)
-    + [Day 268 Sloth](#day-268-sloth)
-    + [BIAY Day 268 By Cynthia Dsilva](#biay-day-268-by-cynthia-dsilva)
-  * [September 25,2024](#september-252024)
-    + [The Day of Small Things](#the-day-of-small-things)
-    + [Day 269 Your words and actions only expose what’s in your heart.](#day-269-your-words-and-actions-only-expose-whats-in-your-heart)
-  * [September 26,2024](#september-262024)
-    + [God's Favor with Ezra](#gods-favor-with-ezra)
-    + [Day #270 Two ways to trust in the Lord.](#day-%23270-two-ways-to-trust-in-the-lord)
-  * [September 27,2024](#september-272024)
-    + [Israel's Foreign Wives](#israels-foreign-wives)
-    + [Day #271 Is your marriage making you holier?](#day-%23271-is-your-marriage-making-you-holier)
-    + [BIAY Day 271 By Cynthia Dsilva](#biay-day-271-by-cynthia-dsilva)
-  * [September 28,2024](#september-282024)
-    + [The Call of Nehemiah](#the-call-of-nehemiah)
-    + [Day #272 Grace not Vengeance.](#day-%23272-grace-not-vengeance)
-  * [September 29,2024](#september-292024)
-    + [The Lord's Work](#the-lords-work)
-    + [Day #273 Who is my neighbor?](#day-%23273-who-is-my-neighbor)
-    + [BIAY Day 273 By Cynthia Dsilva](#biay-day-273-by-cynthia-dsilva)
-  * [September 30,2024](#september-302024)
-    + [Perseverance in Opposition](#perseverance-in-opposition)
-    + [Day#274 Perseverance in opposition](#day%23274-perseverance-in-opposition)
+  - [September 01,2024](#september-012024)
+    - [The Faithfulness of Daniel](#the-faithfulness-of-daniel)
+    - [Day #245 Man Made gods](#day-%23245-man-made-gods)
+    - [BIAY Day 245 By Cynthia Dsilva](#biay-day-245-by-cynthia-dsilva)
+  - [September 02,2024](#september-022024)
+    - [Rejoice in Doing Good](#rejoice-in-doing-good)
+    - [Day #246 God does not resentfully help us but rejoices in doing good to us.](#day-%23246-god-does-not-resentfully-help-us-but-rejoices-in-doing-good-to-us)
+    - [BIAY Day 246 By Cynthia Dsilva](#biay-day-246-by-cynthia-dsilva)
+  - [September 03,2024](#september-032024)
+    - [True Repentance](#true-repentance)
+    - [DAY #247 TRUE REPENTANCE BRINGS CHANGE](#day-%23247-true-repentance-brings-change)
+  - [September 04,2024](#september-042024)
+    - [Cut to the Heart](#cut-to-the-heart)
+    - [Day #248 Does suffering make you bitter or better?](#day-%23248-does-suffering-make-you-bitter-or-better)
+  - [September 05,2024](#september-052024)
+    - [Prayer of Judith](#prayer-of-judith)
+    - [Day #249 Setting a deadline for our petitions is like putting God to the test.](#day-%23249-setting-a-deadline-for-our-petitions-is-like-putting-god-to-the-test)
+    - [BIAY Day 249 By Cynthia Dsilva](#biay-day-249-by-cynthia-dsilva)
+  - [September 06,2024](#september-062024)
+    - [Final Wave of Exile](#final-wave-of-exile)
+    - [Day #250 Choosing God’s will or the easy way out?](#day-%23250-choosing-gods-will-or-the-easy-way-out)
+  - [September 07,2024](#september-072024)
+    - [Judith and Holofernes](#judith-and-holofernes)
+    - [Day #251 Drunkenness can cause you to let your guard down.](#day-%23251-drunkenness-can-cause-you-to-let-your-guard-down)
+  - [September 08,2024](#september-082024)
+    - [Queen of Heaven](#queen-of-heaven)
+    - [Day #252 The Queen of Heaven](#day-%23252-the-queen-of-heaven)
+    - [BIAY Day 252 By Cynthia Dsilva](#biay-day-252-by-cynthia-dsilva)
+  - [September 09,2024](#september-092024)
+    - [Lamentations of Jeremiah](#lamentations-of-jeremiah)
+    - [Day #253 Let our lamentations be prayers to Christ.](#day-%23253-let-our-lamentations-be-prayers-to-christ)
+  - [September 10,2024](#september-102024)
+    - [Judgment of Nations](#judgment-of-nations)
+    - [Day #254 A fool takes no pleasure in understanding, but only in expressing personal opinion.](#day-%23254-a-fool-takes-no-pleasure-in-understanding-but-only-in-expressing-personal-opinion)
+  - [September 11,2024](#september-112024)
+    - [God is Good](#god-is-good)
+  - [September 12,2024](#september-122024)
+    - [Hard Seasons](#hard-seasons)
+    - [Day 256 The Lord is a strong tower](#day-256-the-lord-is-a-strong-tower)
+  - [September 13,2024](#september-132024)
+    - [Choose to Love](#choose-to-love)
+    - [Day 257 We should try to love our extended family](#day-257-we-should-try-to-love-our-extended-family)
+  - [September 14,2024](#september-142024)
+    - [The Kingdom is Here](#the-kingdom-is-here)
+    - [Day 258 St Joseph our model](#day-258-st-joseph-our-model)
+    - [BIAY Day 258 By Cynthia Dsilva](#biay-day-258-by-cynthia-dsilva)
+  - [September 15,2024](#september-152024)
+    - [The Sermon on the Mount](#the-sermon-on-the-mount)
+    - [Day 259 Do not be anxious, isn’t life more than food and clothes](#day-259-do-not-be-anxious-isnt-life-more-than-food-and-clothes)
+    - [DAY 259 By Sheila](#day-259-by-sheila)
+    - [BIAY Day 259 By Cynthia Dsilva](#biay-day-259-by-cynthia-dsilva)
+  - [September 16,2024](#september-162024)
+    - [Carrying the Cross](#carrying-the-cross)
+    - [Day 260 Faith, Healing, and carrying our cross](#day-260-faith-healing-and-carrying-our-cross)
+    - [BIAY Day 260 By Cynthia Dsilva](#biay-day-260-by-cynthia-dsilva)
+    - [DAY 260. By Sheila](#day-260-by-sheila)
+  - [September 17,2024](#september-172024)
+    - [Ornate Souls](#ornate-souls)
+    - [Day 261 Is religion boring?](#day-261-is-religion-boring)
+    - [BIAY Day 261 By Cynthia Dsilva](#biay-day-261-by-cynthia-dsilva)
+  - [September 18,2024](#september-182024)
+    - [Miracle Worker](#miracle-worker)
+    - [Day #262 Authority – Keys to the Kingdom](#day-%23262-authority-%E2%80%93-keys-to-the-kingdom)
+    - [BIAY Day 262 By Cynthia Dsilva](#biay-day-262-by-cynthia-dsilva)
+  - [September 19,2024](#september-192024)
+    - [The Father's Generosity](#the-fathers-generosity)
+    - [Day #263 Forgiveness is a good idea until someone hurts us](#day-%23263-forgiveness-is-a-good-idea-until-someone-hurts-us)
+  - [September 20,2024](#september-202024)
+    - [Preaching Without Practice](#preaching-without-practice)
+    - [DAY #264 THE NECESSITY FOR WATCHFULNESS](#day-%23264-the-necessity-for-watchfulness)
+    - [BIAY Day 264 By Cynthia Dsilva](#biay-day-264-by-cynthia-dsilva)
+  - [September 21,2024](#september-212024)
+    - [Sins of Omission](#sins-of-omission)
+    - [DAY #265 FAITH & WORKS](#day-%23265-faith--works)
+    - [BIAY Day 265 By Cynthia Dsilva](#biay-day-265-by-cynthia-dsilva)
+  - [September 22,2024](#september-222024)
+    - [Son of the Father](#son-of-the-father)
+    - [Messianic Checkpoint: Gospel of Matthew](#messianic-checkpoint-gospel-of-matthew)
+    - [Day #266 I am with you always until the end of the age](#day-%23266-i-am-with-you-always-until-the-end-of-the-age)
+    - [BIAY Day 266 By Cynthia Dsilva](#biay-day-266-by-cynthia-dsilva)
+  - [September 23,2024](#september-232024)
+    - [Indifference and Apathy](#indifference-and-apathy)
+    - [Day 267 The return from exile](#day-267-the-return-from-exile)
+  - [September 24,2024](#september-242024)
+    - [Rebuilding the Temple](#rebuilding-the-temple)
+    - [Day 268 Sloth](#day-268-sloth)
+    - [BIAY Day 268 By Cynthia Dsilva](#biay-day-268-by-cynthia-dsilva)
+  - [September 25,2024](#september-252024)
+    - [The Day of Small Things](#the-day-of-small-things)
+    - [Day 269 Your words and actions only expose what’s in your heart.](#day-269-your-words-and-actions-only-expose-whats-in-your-heart)
+  - [September 26,2024](#september-262024)
+    - [God's Favor with Ezra](#gods-favor-with-ezra)
+    - [Day #270 Two ways to trust in the Lord.](#day-%23270-two-ways-to-trust-in-the-lord)
+  - [September 27,2024](#september-272024)
+    - [Israel's Foreign Wives](#israels-foreign-wives)
+    - [Day #271 Is your marriage making you holier?](#day-%23271-is-your-marriage-making-you-holier)
+    - [BIAY Day 271 By Cynthia Dsilva](#biay-day-271-by-cynthia-dsilva)
+  - [September 28,2024](#september-282024)
+    - [The Call of Nehemiah](#the-call-of-nehemiah)
+    - [Day #272 Grace not Vengeance.](#day-%23272-grace-not-vengeance)
+  - [September 29,2024](#september-292024)
+    - [The Lord's Work](#the-lords-work)
+    - [Day #273 Who is my neighbor?](#day-%23273-who-is-my-neighbor)
+    - [BIAY Day 273 By Cynthia Dsilva](#biay-day-273-by-cynthia-dsilva)
+  - [September 30,2024](#september-302024)
+    - [Perseverance in Opposition](#perseverance-in-opposition)
+    - [Day#274 Perseverance in opposition](#day%23274-perseverance-in-opposition)
 
 <!-- tocstop -->
 
@@ -174,7 +174,7 @@ God will not remember our sins which have been forgiven by His priests, but the 
 
 [![Rejoice in Doing Good](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day246.jpg)](https://youtu.be/Mwmk2EmKf8M "Rejoice in Doing Good")
 
-### Day #246 God does not resentfully help us but rejoices in doing good to us.
+### Day #246 God does not resentfully help us but rejoices in doing good to us
 
 When we commit sin our natural tendency is to stop praying or to run away from God. One tries to avoid a God encounter because we have hurt our all-loving God. We feel that God is upset with us and is very angry with us, we try to associate the experience that we had as children. Children tend to avoid their parents when they have made a mistake, knowing that they will be punished for the wrongs. This has been written so deep into us that we try to run away from God when we sin, we try to hide like Adam and Eve. We try to cover up our shame and hide our mistakes from God, but God knows it all. God knows us better than we know ourselves, we may run but can never escape God.
 On the contrary, we should run to God, because He is a loving, merciful, and forgiving God. When Adam and eve committed sin, they were hiding but God came in search of them. Jesus the good shepherd leaves the 99 and goes in search of the Lost sheep. When Peter denied Jesus 3 times, Jesus did not rebuke him but offered him another chance, he entrusted him with being the shepherd of the flock again. Our God is different from anything we have ever experienced, God wants to forgive us and give us another chance. God does not do this out of reluctance but rejoices to do us good.
@@ -262,7 +262,7 @@ May the Holy Spirit lead us 🙏
 
 [![Prayer of Judith](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day249.jpg)](https://youtu.be/f27psD92Kv8 "Prayer of Judith")
 
-### Day #249 Setting a deadline for our petitions is like putting God to the test.
+### Day #249 Setting a deadline for our petitions is like putting God to the test
 
 Who said beauty, wisdom, and goodness cannot be found together in a woman, we have a heroine from the Old Testament “Judith” who has all these qualities.
 
@@ -320,7 +320,7 @@ Let’s look at a couple of examples.
 
 [![Judith and Holofernes](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day251.jpg)](https://youtu.be/vPnfDIwTaZY "Judith and Holofernes")
 
-### Day #251 Drunkenness can cause you to let your guard down.
+### Day #251 Drunkenness can cause you to let your guard down
 
 It’s worth reading the whole episode on how Judith kills Holofernes.
 Judith Attends Holofernes’ Banquet
@@ -412,7 +412,7 @@ We attribute our success to our benefactors on earth and we forget that it is Go
 
 [![Lamentations of Jeremiah](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day253.jpg)](https://youtu.be/SDKW8fEUP44 "Lamentations of Jeremiah")
 
-### Day #253 Let our lamentations be prayers to Christ.
+### Day #253 Let our lamentations be prayers to Christ
 
 As we read the book of lamentations, we can only imagine the suffering that Baruch experienced. It is not just statements of the bad situations but it’s more like prayers rising up to God.
 
@@ -440,7 +440,7 @@ May the Holy Spirit lead us. 🙏
 
 [![Judgment of Nations](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day254.jpg)](https://youtu.be/AHlUaRhb2Mc "Judgment of Nations")
 
-### Day #254 A fool takes no pleasure in understanding, but only in expressing personal opinion.
+### Day #254 A fool takes no pleasure in understanding, but only in expressing personal opinion
 
 Have you ever met those kinds of people, who want their voices heard? They don’t respect the conversation or the person but would cut you off and say only what they want. These are the people who have an opinion and don’t want to change it at any cost. Having an argument with such people is meaningless for they don’t want to understand or listen – they just want to voice their opinions. They will even twist the truth to win an argument. I’m sure you have a list of people who fall under this category, and if you find yourself on the list don’t worry the Holy Spirit will help you.
 Here is some practical advice from the book of James.
@@ -1901,7 +1901,7 @@ As long as we obey God’s commandments He will always send His angels to suppor
 
 [![The Day of Small Things](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day269.jpg)](https://youtu.be/8vlMnuM1frc "The Day of Small Things")
 
-### Day 269 Your words and actions only expose what’s in your heart.
+### Day 269 Your words and actions only expose what’s in your heart
 
 Even children make themselves known by their acts, by whether what they do is pure and right. Prov 20:11
 
@@ -1924,7 +1924,7 @@ May the Holy Spirit lead us. 🙏
 
 [![God's Favor with Ezra](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day270.jpg)](https://youtu.be/Wq96tM44tAo "God's Favor with Ezra")
 
-### Day #270 Two ways to trust in the Lord.
+### Day #270 Two ways to trust in the Lord
 
 We see two different approaches that Nehemiah and Ezra take to prayer and trusting in God. Both of them had a similar situation – they needed to journey and in the days of Kings – one would need a small band of armed soldiers to safely travel. The two took two different approaches – Ezra was ashamed to ask the King for protection because he said that the Lord God will protect him.
 
@@ -1988,7 +1988,7 @@ It was an image of Jesus whose power comes, not from this world but, from the Fa
 
 [![The Call of Nehemiah](https://raw.githubusercontent.com/linusjf/BIAY/main/September/jpgs/Day272.jpg)](https://youtu.be/zbvENgoZvbw "The Call of Nehemiah")
 
-### Day #272 Grace not Vengeance.
+### Day #272 Grace not Vengeance
 
 When someone does something to us, the first thing that we want to do is get back at them, hurt them back or do something even eviler. An eye for an eye and tooth for a tooth makes the whole world blind. The wisdom of the proverbs calls for us to refrain from retaliating and becoming like the person who did evil in the first place.
 

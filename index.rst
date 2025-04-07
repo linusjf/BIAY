@@ -16,7 +16,7 @@ documentation for details.
    :caption: Contents:
 
    redme.md
-   Janyary2024.md
+   January2024.md
    February2024.md
    March2024.md
    April2024.md
