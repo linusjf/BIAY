@@ -37,5 +37,5 @@ formats:
 # See https://docs.readthedocs.io/en/stable/guides/reproducible-builds.html
 python:
   install:
+    # Install our python package before building the docs
     - requirements: requirements.txt
-  # Install our python package before building the docs
