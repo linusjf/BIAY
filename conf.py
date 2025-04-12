@@ -27,6 +27,14 @@ suppress_warnings = ['toc.not_included','myst.xref_missing','image/svg+xml']
 
 html_theme = 'alabaster'
 
+# -- Options for linkcheck
+linkcheck_timeout = 5  # seconds
+linkcheck_ignore = [
+    r'http://localhost:\d+/',  # Ignore local dev servers
+    r'https://example\.com/redirect',  # Ignore known redirect
+]
+linkcheck_ignore_redirects = True
+
 # -- Options for PDF output
 latex_engine = 'lualatex'
 
@@ -39,11 +47,3 @@ latex_elements = {
 \setmainfont{Symbola}
 ''',
  }
-
-# -- Ootions for linkcheck
-linkcheck_timeout = 5  # seconds
-linkcheck_ignore = [
-    r'http://localhost:\d+/',  # Ignore local dev servers
-    r'https://example\.com/redirect',  # Ignore known redirect
-]
-linkcheck_ignore_redirects = True

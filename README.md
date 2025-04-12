@@ -20,7 +20,7 @@
 
 <!-- vim-markdown-toc GFM -->
 
-* [Bible In A Year](#bible-in-a-year)
+- [Bible In A Year](#bible-in-a-year)
   - [Intro](#intro)
   - [Helpful tips](#helpful-tips)
   - [Get started](#get-started)

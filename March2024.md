@@ -1,107 +1,107 @@
 <!-- toc -->
 
 - [March 2024](#march-2024)
-  * [March 01,2024](#march-012024)
-    + [Complaining in the Desert](#complaining-in-the-desert)
-    + [Day 61: “Complaint of rebellion”](#day-61-complaint-of-rebellion)
-  * [March 02,2024](#march-022024)
-    + [Spies Sent to Canaan](#spies-sent-to-canaan)
-    + [Day 62: “Family Feud”](#day-62-family-feud)
-    + [Day 62 Anonymous](#day-62-anonymous)
-  * [March 03,2024](#march-032024)
-    + [Israel's Rebellion](#israels-rebellion)
-    + [Day 63: “Slow to anger and abounding in mercy”](#day-63-slow-to-anger-and-abounding-in-mercy)
-    + [Day 63 Maryanne C.M.](#day-63-maryanne-cm)
-  * [March 04,2024](#march-042024)
-    + [Consequences of Sin](#consequences-of-sin)
-  * [March 05,2024](#march-052024)
-    + [Revolt Against Moses](#revolt-against-moses)
-    + [Day 65 “Why are there no women priests in the Catholic Church”](#day-65-why-are-there-no-women-priests-in-the-catholic-church)
-  * [March 06,2024](#march-062024)
-    + [Forbidden Forms of Worship](#forbidden-forms-of-worship)
-    + [Day 66: Forbidden forms of worship – Magic, horoscopes, fortune-telling](#day-66-forbidden-forms-of-worship-%E2%80%93-magic-horoscopes-fortune-telling)
-  * [March 07,2024](#march-072024)
-    + [God's Justice and Refuge](#gods-justice-and-refuge)
-    + [Day 67 Anonymous](#day-67-anonymous)
-    + [Reflection - Cathy Aggarao](#reflection---cathy-aggarao)
-  * [March 08,2024](#march-082024)
-    + [The Waters of Meribah](#the-waters-of-meribah)
-  * [March 09,2024](#march-092024)
-    + [The Bronze Serpent](#the-bronze-serpent)
-    + [Day 69 Why do Catholic churches have a Crucifix and holy statues](#day-69-why-do-catholic-churches-have-a-crucifix-and-holy-statues)
-  * [March 10,2024](#march-102024)
-    + [The Offense of Balaam](#the-offense-of-balaam)
-    + [Day 70 “God’s perfect will and permissive will”, “Talking donkey and angels - what? ”](#day-70-gods-perfect-will-and-permissive-will-talking-donkey-and-angels---what-)
-  * [March 11,2024](#march-112024)
-    + [The Source of the Law](#the-source-of-the-law)
-    + [Day 71 “If the Lord opens a door no one can close it”](#day-71-if-the-lord-opens-a-door-no-one-can-close-it)
-    + [Day 71 - Jenita](#day-71---jenita)
-  * [March 12,2024](#march-122024)
-    + [The Plains of Moab](#the-plains-of-moab)
-    + [Day 72 “Rid yourself, family, and society of sin”](#day-72-rid-yourself-family-and-society-of-sin)
-  * [March 13,2024](#march-132024)
-    + [Inheritance of Land](#inheritance-of-land)
-    + [Day 73 “Catholic guilt”](#day-73-catholic-guilt)
-    + [Day 73 - Jenita](#day-73---jenita)
-  * [March 14,2024](#march-142024)
-    + [Joshua Appointed](#joshua-appointed)
-    + [Day 74 “Men and women are equal – both created in God’s image”](#day-74-men-and-women-are-equal-%E2%80%93-both-created-in-gods-image)
-  * [March 15,2024](#march-152024)
-    + [The Keeping of Vows](#the-keeping-of-vows)
-    + [Day 75 “Find your rest in the Lord”](#day-75-find-your-rest-in-the-lord)
-  * [March 16,2024](#march-162024)
-    + [War Against Midian](#war-against-midian)
-    + [Day 76 “The freedom to choose – Choose life”](#day-76-the-freedom-to-choose-%E2%80%93-choose-life)
-  * [March 17,2024](#march-172024)
-    + [God is Faithful](#god-is-faithful)
-    + [Day 77 “Be strong and of good courage – the Lord goes with you, He will not fail you or forsake you”](#day-77-be-strong-and-of-good-courage-%E2%80%93-the-lord-goes-with-you-he-will-not-fail-you-or-forsake-you)
-  * [March 18,2024](#march-182024)
-    + [The Song of Moses](#the-song-of-moses)
-    + [Day 78 “Listen to the right music – it impacts us” “The one who sings prays twice"](#day-78-listen-to-the-right-music-%E2%80%93-it-impacts-us-the-one-who-sings-prays-twice)
-  * [March 19,2024](#march-192024)
-    + [Psalms of Ascent](#psalms-of-ascent)
-    + [Day 79: “Moses’ great example to "Bless those who curse you"”](#day-79-moses-great-example-to-bless-those-who-curse-you)
-  * [March 20,2024](#march-202024)
-    + [Cities of Refuge](#cities-of-refuge)
-    + [Day 80 “God is watching over us – 24X7”](#day-80-god-is-watching-over-us-%E2%80%93-24x7)
-    + [Day 80 Maryanne C.M.](#day-80-maryanne-cm)
-  * [March 21,2024](#march-212024)
-    + [Israel Crosses the Jordan](#israel-crosses-the-jordan)
-    + [Day 81 “Stack up stones of good memories, remember what the Lord has done”](#day-81-stack-up-stones-of-good-memories-remember-what-the-lord-has-done)
-    + [Day 81 Maryanne C.M.](#day-81-maryanne-cm)
-    + [Day 81 - Jenita](#day-81----jenita)
-    + [Day 81 - Gabriella](#day-81---gabriella)
-  * [March 22,2024](#march-222024)
-    + [The Valley of Achor](#the-valley-of-achor)
-    + [Day 82 Holding on to sin](#day-82-holding-on-to-sin)
-  * [March 23,2024](#march-232024)
-    + [The Gibeonite Trickery](#the-gibeonite-trickery)
-    + [Day 83 Strategy and deception](#day-83-strategy-and-deception)
-  * [March 24,2024](#march-242024)
-    + [The Sun Stands Still](#the-sun-stands-still)
-    + [Day 84 Nature obeys God](#day-84-nature-obeys-god)
-  * [March 25,2024](#march-252024)
-    + [Fighting for Each Other](#fighting-for-each-other)
-    + [Day 85: Equality](#day-85-equality)
-  * [March 26,2024](#march-262024)
-    + [The Real Presence of God](#the-real-presence-of-god)
-    + [Day 86 Hidden treasures in Challenges](#day-86-hidden-treasures-in-challenges)
-  * [March 27,2024](#march-272024)
-    + [God Keeps His Promises](#god-keeps-his-promises)
-    + [Day 87 The City of Refuge, the slap that was heard around the world and Ukraine - Michael Eltham](#day-87-the-city-of-refuge-the-slap-that-was-heard-around-the-world-and-ukraine---michael-eltham)
-    + [DAY 87](#day-87)
-  * [March 28,2024](#march-282024)
-    + [Joshua's Last Words to Israel](#joshuas-last-words-to-israel)
-    + [Day 88 “As for me and my house, we will serve the Lord”](#day-88-as-for-me-and-my-house-we-will-serve-the-lord)
-  * [March 29,2024](#march-292024)
-    + [Israel's Cycle of Disobedience](#israels-cycle-of-disobedience)
-    + [Day 89 Israel’s cycle of Disobedience](#day-89-israels-cycle-of-disobedience)
-  * [March 30,2024](#march-302024)
-    + [Ruth and Boaz](#ruth-and-boaz)
-    + [Day 90 *Kindness - Boaz and Ruth - Women-O-Women*](#day-90-kindness---boaz-and-ruth---women-o-women)
-  * [March 31,2024](#march-312024)
-    + [Gideon's Story](#gideons-story)
-    + [Day 91 Losing track of our goal.](#day-91-losing-track-of-our-goal)
+  - [March 01,2024](#march-012024)
+    - [Complaining in the Desert](#complaining-in-the-desert)
+    - [Day 61: “Complaint of rebellion”](#day-61-complaint-of-rebellion)
+  - [March 02,2024](#march-022024)
+    - [Spies Sent to Canaan](#spies-sent-to-canaan)
+    - [Day 62: “Family Feud”](#day-62-family-feud)
+    - [Day 62 Anonymous](#day-62-anonymous)
+  - [March 03,2024](#march-032024)
+    - [Israel's Rebellion](#israels-rebellion)
+    - [Day 63: “Slow to anger and abounding in mercy”](#day-63-slow-to-anger-and-abounding-in-mercy)
+    - [Day 63 Maryanne C.M.](#day-63-maryanne-cm)
+  - [March 04,2024](#march-042024)
+    - [Consequences of Sin](#consequences-of-sin)
+  - [March 05,2024](#march-052024)
+    - [Revolt Against Moses](#revolt-against-moses)
+    - [Day 65 “Why are there no women priests in the Catholic Church”](#day-65-why-are-there-no-women-priests-in-the-catholic-church)
+  - [March 06,2024](#march-062024)
+    - [Forbidden Forms of Worship](#forbidden-forms-of-worship)
+    - [Day 66: Forbidden forms of worship – Magic, horoscopes, fortune-telling](#day-66-forbidden-forms-of-worship-%E2%80%93-magic-horoscopes-fortune-telling)
+  - [March 07,2024](#march-072024)
+    - [God's Justice and Refuge](#gods-justice-and-refuge)
+    - [Day 67 Anonymous](#day-67-anonymous)
+    - [Reflection - Cathy Aggarao](#reflection---cathy-aggarao)
+  - [March 08,2024](#march-082024)
+    - [The Waters of Meribah](#the-waters-of-meribah)
+  - [March 09,2024](#march-092024)
+    - [The Bronze Serpent](#the-bronze-serpent)
+    - [Day 69 Why do Catholic churches have a Crucifix and holy statues](#day-69-why-do-catholic-churches-have-a-crucifix-and-holy-statues)
+  - [March 10,2024](#march-102024)
+    - [The Offense of Balaam](#the-offense-of-balaam)
+    - [Day 70 “God’s perfect will and permissive will”, “Talking donkey and angels - what? ”](#day-70-gods-perfect-will-and-permissive-will-talking-donkey-and-angels---what-)
+  - [March 11,2024](#march-112024)
+    - [The Source of the Law](#the-source-of-the-law)
+    - [Day 71 “If the Lord opens a door no one can close it”](#day-71-if-the-lord-opens-a-door-no-one-can-close-it)
+    - [Day 71 - Jenita](#day-71---jenita)
+  - [March 12,2024](#march-122024)
+    - [The Plains of Moab](#the-plains-of-moab)
+    - [Day 72 “Rid yourself, family, and society of sin”](#day-72-rid-yourself-family-and-society-of-sin)
+  - [March 13,2024](#march-132024)
+    - [Inheritance of Land](#inheritance-of-land)
+    - [Day 73 “Catholic guilt”](#day-73-catholic-guilt)
+    - [Day 73 - Jenita](#day-73---jenita)
+  - [March 14,2024](#march-142024)
+    - [Joshua Appointed](#joshua-appointed)
+    - [Day 74 “Men and women are equal – both created in God’s image”](#day-74-men-and-women-are-equal-%E2%80%93-both-created-in-gods-image)
+  - [March 15,2024](#march-152024)
+    - [The Keeping of Vows](#the-keeping-of-vows)
+    - [Day 75 “Find your rest in the Lord”](#day-75-find-your-rest-in-the-lord)
+  - [March 16,2024](#march-162024)
+    - [War Against Midian](#war-against-midian)
+    - [Day 76 “The freedom to choose – Choose life”](#day-76-the-freedom-to-choose-%E2%80%93-choose-life)
+  - [March 17,2024](#march-172024)
+    - [God is Faithful](#god-is-faithful)
+    - [Day 77 “Be strong and of good courage – the Lord goes with you, He will not fail you or forsake you”](#day-77-be-strong-and-of-good-courage-%E2%80%93-the-lord-goes-with-you-he-will-not-fail-you-or-forsake-you)
+  - [March 18,2024](#march-182024)
+    - [The Song of Moses](#the-song-of-moses)
+    - [Day 78 “Listen to the right music – it impacts us” “The one who sings prays twice"](#day-78-listen-to-the-right-music-%E2%80%93-it-impacts-us-the-one-who-sings-prays-twice)
+  - [March 19,2024](#march-192024)
+    - [Psalms of Ascent](#psalms-of-ascent)
+    - [Day 79: “Moses’ great example to "Bless those who curse you"”](#day-79-moses-great-example-to-bless-those-who-curse-you)
+  - [March 20,2024](#march-202024)
+    - [Cities of Refuge](#cities-of-refuge)
+    - [Day 80 “God is watching over us – 24X7”](#day-80-god-is-watching-over-us-%E2%80%93-24x7)
+    - [Day 80 Maryanne C.M.](#day-80-maryanne-cm)
+  - [March 21,2024](#march-212024)
+    - [Israel Crosses the Jordan](#israel-crosses-the-jordan)
+    - [Day 81 “Stack up stones of good memories, remember what the Lord has done”](#day-81-stack-up-stones-of-good-memories-remember-what-the-lord-has-done)
+    - [Day 81 Maryanne C.M.](#day-81-maryanne-cm)
+    - [Day 81 - Jenita](#day-81----jenita)
+    - [Day 81 - Gabriella](#day-81---gabriella)
+  - [March 22,2024](#march-222024)
+    - [The Valley of Achor](#the-valley-of-achor)
+    - [Day 82 Holding on to sin](#day-82-holding-on-to-sin)
+  - [March 23,2024](#march-232024)
+    - [The Gibeonite Trickery](#the-gibeonite-trickery)
+    - [Day 83 Strategy and deception](#day-83-strategy-and-deception)
+  - [March 24,2024](#march-242024)
+    - [The Sun Stands Still](#the-sun-stands-still)
+    - [Day 84 Nature obeys God](#day-84-nature-obeys-god)
+  - [March 25,2024](#march-252024)
+    - [Fighting for Each Other](#fighting-for-each-other)
+    - [Day 85: Equality](#day-85-equality)
+  - [March 26,2024](#march-262024)
+    - [The Real Presence of God](#the-real-presence-of-god)
+    - [Day 86 Hidden treasures in Challenges](#day-86-hidden-treasures-in-challenges)
+  - [March 27,2024](#march-272024)
+    - [God Keeps His Promises](#god-keeps-his-promises)
+    - [Day 87 The City of Refuge, the slap that was heard around the world and Ukraine - Michael Eltham](#day-87-the-city-of-refuge-the-slap-that-was-heard-around-the-world-and-ukraine---michael-eltham)
+    - [DAY 87](#day-87)
+  - [March 28,2024](#march-282024)
+    - [Joshua's Last Words to Israel](#joshuas-last-words-to-israel)
+    - [Day 88 “As for me and my house, we will serve the Lord”](#day-88-as-for-me-and-my-house-we-will-serve-the-lord)
+  - [March 29,2024](#march-292024)
+    - [Israel's Cycle of Disobedience](#israels-cycle-of-disobedience)
+    - [Day 89 Israel’s cycle of Disobedience](#day-89-israels-cycle-of-disobedience)
+  - [March 30,2024](#march-302024)
+    - [Ruth and Boaz](#ruth-and-boaz)
+    - [Day 90 *Kindness - Boaz and Ruth - Women-O-Women*](#day-90-kindness---boaz-and-ruth---women-o-women)
+  - [March 31,2024](#march-312024)
+    - [Gideon's Story](#gideons-story)
+    - [Day 91 Losing track of our goal.](#day-91-losing-track-of-our-goal)
 
 <!-- tocstop -->
 
@@ -187,7 +187,7 @@ We have to listen to the Lord and wait on Him, not take things into our own hand
 
 May the Holy Spirit Lead us 🙏
 
-### Day 63 Maryanne C.M.
+### Day 63 Maryanne C.M
 
 +God Hears every murmur against him, n there is a consequence for the same. Let us not murmur even in our hearts.
 +The spies took 40 days and for each day they hd to spend a year in wilderness. Hence the 40years in wanderings.
@@ -715,7 +715,7 @@ Congratulations on completing two books Numbers and Deuteronomy. 80 days of read
 
 May the Holy Spirit lead us. 🙏
 
-### Day 80 Maryanne C.M.
+### Day 80 Maryanne C.M
 
 - A Milestone Day for us who have reached the end of the First Five Books of the Bible for the First time. Praise God. 🙏
 - God's Provision for justice is seen in the Cities of Refuge.
@@ -746,7 +746,7 @@ We need to memorize the word of God as well, as the Lord commanded to write them
 
 May the Holy Spirit lead us. 🙏
 
-### Day 81 Maryanne C.M.
+### Day 81 Maryanne C.M
 
 - A new Beginning,  A New Leader, Another Crossing over the River. Praise God.
 - Joshua 1:9 is a Command not an option: " I hereby command you:Be strong and courageous, do not be frightened or dismayed, for the LORD your God is with you wherever you go."
@@ -771,7 +771,7 @@ What a mighty God we serve
 
 Commenting on *Jenita’s* note above, I totally agree with her heartfelt reflection.
 
-_We only need to pick up stones of his wonderful deeds for us as a remembrance of his faithfulness, so that when we are in testing times we may look at these rocks (miracles) and know that we are not alone and that there is hope._
+*We only need to pick up stones of his wonderful deeds for us as a remembrance of his faithfulness, so that when we are in testing times we may look at these rocks (miracles) and know that we are not alone and that there is hope.*
 
 These words reminded me of our Lord’s
 🌹Blessed Mother, Our Lady Undoer of Knots Novena, meditation part for day 4 as it reads:
@@ -1015,7 +1015,7 @@ May the Holy Spirit lead us 🙏
 
 [![Gideon's Story](https://raw.githubusercontent.com/linusjf/BIAY/main/March/jpgs/Day091.jpg)](https://youtu.be/RSnBpMdFtj4 "Gideon's Story")
 
-### Day 91 Losing track of our goal.
+### Day 91 Losing track of our goal
 
 We read the story of Gideon, the story has a lot of heroic movements and signs and wonders.
 

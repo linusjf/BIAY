@@ -1,110 +1,110 @@
 <!-- toc -->
 
 - [October 2024](#october-2024)
-  * [October 01,2024](#october-012024)
-    + [Esther Becomes Queen](#esther-becomes-queen)
-    + [BIAY Day 275 By Cynthia Dsilva](#biay-day-275-by-cynthia-dsilva)
-    + [Day #275 We live in a broken world](#day-%23275-we-live-in-a-broken-world)
-  * [October 02,2024](#october-022024)
-    + [Haman's Plan](#hamans-plan)
-    + [Day #276 Take a stance for what is right.](#day-%23276-take-a-stance-for-what-is-right)
-    + [BIAY Day 276 By Cynthia Dsilva](#biay-day-276-by-cynthia-dsilva)
-  * [October 03,2024](#october-032024)
-    + [Such a Time as This](#such-a-time-as-this)
-    + [Day #277 Pray hard in times of trouble.](#day-%23277-pray-hard-in-times-of-trouble)
-    + [BIAY Day 277 By Cynthia Dsilva](#biay-day-277-by-cynthia-dsilva)
-  * [October 04,2024](#october-042024)
-    + [Power in Weakness](#power-in-weakness)
-    + [Day #278 When we are weak He is strong.](#day-%23278-when-we-are-weak-he-is-strong)
-    + [BIAY Day 278 By Cynthia Dsilva](#biay-day-278-by-cynthia-dsilva)
-  * [October 05,2024](#october-052024)
-    + [Blessings and Burdens](#blessings-and-burdens)
-    + [Day #279 Live life in moderation.](#day-%23279-live-life-in-moderation)
-  * [October 06,2024](#october-062024)
-    + [The People of the Covenant](#the-people-of-the-covenant)
-    + [Day #280 Days of Remembrance](#day-%23280-days-of-remembrance)
-  * [October 07,2024](#october-072024)
-    + [Good and Evil](#good-and-evil)
-    + [Day #281 Does God really love us?](#day-%23281-does-god-really-love-us)
-    + [BIAY Day 281 By Cynthia Dsilva](#biay-day-281-by-cynthia-dsilva)
-  * [October 08,2024](#october-082024)
-    + [Antiochus Desecrates the Temple](#antiochus-desecrates-the-temple)
-    + [Day 282 Patient Endurance](#day-282-patient-endurance)
-  * [October 09,2024](#october-092024)
-    + [Mattathias Attacks](#mattathias-attacks)
-    + [Day #283 Zeal and righteous anger](#day-%23283-zeal-and-righteous-anger)
-  * [BIAY Day 283 By Cynthia Dsilva](#biay-day-283-by-cynthia-dsilva)
-  * [October 10,2024](#october-102024)
-    + [Near Occasion of Sin](#near-occasion-of-sin)
-    + [Day 284 Guard yourself against lust and avoid the near occasion of Sin.](#day-284-guard-yourself-against-lust-and-avoid-the-near-occasion-of-sin)
-  * [October 11,2024](#october-112024)
-    + [Story of Hanukkah](#story-of-hanukkah)
-    + [Day 285 Do not be boastful.](#day-285-do-not-be-boastful)
-  * [October 12,2024](#october-122024)
-    + [The Battle to Choose God](#the-battle-to-choose-god)
-    + [Day 286 Self-care is choosing Life.](#day-286-self-care-is-choosing-life)
-  * [October 13,2024](#october-132024)
-    + [Eleazar's Sacrifice](#eleazars-sacrifice)
-    + [287 Loved one’s not choosing Christ.](#287-loved-ones-not-choosing-christ)
-  * [October 14,2024](#october-142024)
-    + [Battling Against Gossip](#battling-against-gossip)
-    + [Day 288 Let anything you hear die with you; never fear, it will not make you burst](#day-288-let-anything-you-hear-die-with-you-never-fear-it-will-not-make-you-burst)
-  * [October 15,2024](#october-152024)
-    + [Wise Influences](#wise-influences)
-    + [Day 289 No one sees me sin.](#day-289-no-one-sees-me-sin)
-  * [October 16,2024](#october-162024)
-    + [Judas Maccabeus Dies](#judas-maccabeus-dies)
-    + [Day 290 Good things in life](#day-290-good-things-in-life)
-  * [October 17,2024](#october-172024)
-    + [The Rise of King Alexander](#the-rise-of-king-alexander)
-    + [Day 291 A good wife is a generous gift.](#day-291-a-good-wife-is-a-generous-gift)
-  * [October 18,2024](#october-182024)
-    + [The Power of Words](#the-power-of-words)
-    + [Day 292 Diffuse a quarrel with a good word](#day-292-diffuse-a-quarrel-with-a-good-word)
-  * [October 19,2024](#october-192024)
-    + [Discipline Grounded in Love](#discipline-grounded-in-love)
-    + [Day 293 We all need discipline](#day-293-we-all-need-discipline)
-  * [October 20,2024](#october-202024)
-    + [Judea Gains Independence](#judea-gains-independence)
-    + [Day 294 Etiquette shows the Character of a Christian](#day-294-etiquette-shows-the-character-of-a-christian)
-  * [October 21,2024](#october-212024)
-    + [Israel's Expectations](#israels-expectations)
-    + [Day 295 God does not accept bribes](#day-295-god-does-not-accept-bribes)
-  * [October 22,2024](#october-222024)
-    + [Know Your Heart](#know-your-heart)
-    + [Day 296 Gluttony.](#day-296-gluttony)
-  * [October 23,2024](#october-232024)
-    + [Using Good Things for Evil](#using-good-things-for-evil)
-    + [Day 297 Physicians and Medicine are a blessing from God.](#day-297-physicians-and-medicine-are-a-blessing-from-god)
-  * [October 24,2024](#october-242024)
-    + [The Gift of Life](#the-gift-of-life)
-    + [Day 298 Do not fear death](#day-298-do-not-fear-death)
-  * [October 25,2024](#october-252024)
-    + [Jeremiah Hides the Ark](#jeremiah-hides-the-ark)
-    + [Day 299 The hiding and finding of the Ark of the Covenant](#day-299-the-hiding-and-finding-of-the-ark-of-the-covenant)
-  * [October 26,2024](#october-262024)
-    + [Conversion of Heart](#conversion-of-heart)
-    + [Day 300 The sovereign power of God](#day-300-the-sovereign-power-of-god)
-  * [October 27,2024](#october-272024)
-    + [Rising Again](#rising-again)
-    + [Day 301 Sports More Important than Church](#day-301-sports-more-important-than-church)
-    + [BIAY Day 301 By Cynthia Dsilva](#biay-day-301-by-cynthia-dsilva)
-    + [DAY 301 By Sheila](#day-301-by-sheila)
-  * [October 28,2024](#october-282024)
-    + [The Pursuit of Wisdom](#the-pursuit-of-wisdom)
-    + [Day 302 Don’t rejoice when your enemies fall.](#day-302-dont-rejoice-when-your-enemies-fall)
-  * [October 29,2024](#october-292024)
-    + [Eleazar's Martyrdom](#eleazars-martyrdom)
-    + [Day 303 Be a good example to the world.](#day-303-be-a-good-example-to-the-world)
-    + [BIAY Day 303 By Cynthia Dsilva](#biay-day-303-by-cynthia-dsilva)
-  * [October 30,2024](#october-302024)
-    + [Life Beyond Death](#life-beyond-death)
-    + [Day 304 A strong family ready to give it all up for the Lord.](#day-304-a-strong-family-ready-to-give-it-all-up-for-the-lord)
-    + [BIAY Day 304 By Cynthia Dsilva](#biay-day-304-by-cynthia-dsilva)
-    + [DAY 304 By Sheila](#day-304-by-sheila)
-  * [October 31,2024](#october-312024)
-    + [The Defender](#the-defender)
-    + [Day 305 The desire for Wisdom leads to a kingdom.](#day-305-the-desire-for-wisdom-leads-to-a-kingdom)
+  - [October 01,2024](#october-012024)
+    - [Esther Becomes Queen](#esther-becomes-queen)
+    - [BIAY Day 275 By Cynthia Dsilva](#biay-day-275-by-cynthia-dsilva)
+    - [Day #275 We live in a broken world](#day-%23275-we-live-in-a-broken-world)
+  - [October 02,2024](#october-022024)
+    - [Haman's Plan](#hamans-plan)
+    - [Day #276 Take a stance for what is right.](#day-%23276-take-a-stance-for-what-is-right)
+    - [BIAY Day 276 By Cynthia Dsilva](#biay-day-276-by-cynthia-dsilva)
+  - [October 03,2024](#october-032024)
+    - [Such a Time as This](#such-a-time-as-this)
+    - [Day #277 Pray hard in times of trouble.](#day-%23277-pray-hard-in-times-of-trouble)
+    - [BIAY Day 277 By Cynthia Dsilva](#biay-day-277-by-cynthia-dsilva)
+  - [October 04,2024](#october-042024)
+    - [Power in Weakness](#power-in-weakness)
+    - [Day #278 When we are weak He is strong.](#day-%23278-when-we-are-weak-he-is-strong)
+    - [BIAY Day 278 By Cynthia Dsilva](#biay-day-278-by-cynthia-dsilva)
+  - [October 05,2024](#october-052024)
+    - [Blessings and Burdens](#blessings-and-burdens)
+    - [Day #279 Live life in moderation.](#day-%23279-live-life-in-moderation)
+  - [October 06,2024](#october-062024)
+    - [The People of the Covenant](#the-people-of-the-covenant)
+    - [Day #280 Days of Remembrance](#day-%23280-days-of-remembrance)
+  - [October 07,2024](#october-072024)
+    - [Good and Evil](#good-and-evil)
+    - [Day #281 Does God really love us?](#day-%23281-does-god-really-love-us)
+    - [BIAY Day 281 By Cynthia Dsilva](#biay-day-281-by-cynthia-dsilva)
+  - [October 08,2024](#october-082024)
+    - [Antiochus Desecrates the Temple](#antiochus-desecrates-the-temple)
+    - [Day 282 Patient Endurance](#day-282-patient-endurance)
+  - [October 09,2024](#october-092024)
+    - [Mattathias Attacks](#mattathias-attacks)
+    - [Day #283 Zeal and righteous anger](#day-%23283-zeal-and-righteous-anger)
+  - [BIAY Day 283 By Cynthia Dsilva](#biay-day-283-by-cynthia-dsilva)
+  - [October 10,2024](#october-102024)
+    - [Near Occasion of Sin](#near-occasion-of-sin)
+    - [Day 284 Guard yourself against lust and avoid the near occasion of Sin.](#day-284-guard-yourself-against-lust-and-avoid-the-near-occasion-of-sin)
+  - [October 11,2024](#october-112024)
+    - [Story of Hanukkah](#story-of-hanukkah)
+    - [Day 285 Do not be boastful.](#day-285-do-not-be-boastful)
+  - [October 12,2024](#october-122024)
+    - [The Battle to Choose God](#the-battle-to-choose-god)
+    - [Day 286 Self-care is choosing Life.](#day-286-self-care-is-choosing-life)
+  - [October 13,2024](#october-132024)
+    - [Eleazar's Sacrifice](#eleazars-sacrifice)
+    - [287 Loved one’s not choosing Christ.](#287-loved-ones-not-choosing-christ)
+  - [October 14,2024](#october-142024)
+    - [Battling Against Gossip](#battling-against-gossip)
+    - [Day 288 Let anything you hear die with you; never fear, it will not make you burst](#day-288-let-anything-you-hear-die-with-you-never-fear-it-will-not-make-you-burst)
+  - [October 15,2024](#october-152024)
+    - [Wise Influences](#wise-influences)
+    - [Day 289 No one sees me sin.](#day-289-no-one-sees-me-sin)
+  - [October 16,2024](#october-162024)
+    - [Judas Maccabeus Dies](#judas-maccabeus-dies)
+    - [Day 290 Good things in life](#day-290-good-things-in-life)
+  - [October 17,2024](#october-172024)
+    - [The Rise of King Alexander](#the-rise-of-king-alexander)
+    - [Day 291 A good wife is a generous gift.](#day-291-a-good-wife-is-a-generous-gift)
+  - [October 18,2024](#october-182024)
+    - [The Power of Words](#the-power-of-words)
+    - [Day 292 Diffuse a quarrel with a good word](#day-292-diffuse-a-quarrel-with-a-good-word)
+  - [October 19,2024](#october-192024)
+    - [Discipline Grounded in Love](#discipline-grounded-in-love)
+    - [Day 293 We all need discipline](#day-293-we-all-need-discipline)
+  - [October 20,2024](#october-202024)
+    - [Judea Gains Independence](#judea-gains-independence)
+    - [Day 294 Etiquette shows the Character of a Christian](#day-294-etiquette-shows-the-character-of-a-christian)
+  - [October 21,2024](#october-212024)
+    - [Israel's Expectations](#israels-expectations)
+    - [Day 295 God does not accept bribes](#day-295-god-does-not-accept-bribes)
+  - [October 22,2024](#october-222024)
+    - [Know Your Heart](#know-your-heart)
+    - [Day 296 Gluttony.](#day-296-gluttony)
+  - [October 23,2024](#october-232024)
+    - [Using Good Things for Evil](#using-good-things-for-evil)
+    - [Day 297 Physicians and Medicine are a blessing from God.](#day-297-physicians-and-medicine-are-a-blessing-from-god)
+  - [October 24,2024](#october-242024)
+    - [The Gift of Life](#the-gift-of-life)
+    - [Day 298 Do not fear death](#day-298-do-not-fear-death)
+  - [October 25,2024](#october-252024)
+    - [Jeremiah Hides the Ark](#jeremiah-hides-the-ark)
+    - [Day 299 The hiding and finding of the Ark of the Covenant](#day-299-the-hiding-and-finding-of-the-ark-of-the-covenant)
+  - [October 26,2024](#october-262024)
+    - [Conversion of Heart](#conversion-of-heart)
+    - [Day 300 The sovereign power of God](#day-300-the-sovereign-power-of-god)
+  - [October 27,2024](#october-272024)
+    - [Rising Again](#rising-again)
+    - [Day 301 Sports More Important than Church](#day-301-sports-more-important-than-church)
+    - [BIAY Day 301 By Cynthia Dsilva](#biay-day-301-by-cynthia-dsilva)
+    - [DAY 301 By Sheila](#day-301-by-sheila)
+  - [October 28,2024](#october-282024)
+    - [The Pursuit of Wisdom](#the-pursuit-of-wisdom)
+    - [Day 302 Don’t rejoice when your enemies fall.](#day-302-dont-rejoice-when-your-enemies-fall)
+  - [October 29,2024](#october-292024)
+    - [Eleazar's Martyrdom](#eleazars-martyrdom)
+    - [Day 303 Be a good example to the world.](#day-303-be-a-good-example-to-the-world)
+    - [BIAY Day 303 By Cynthia Dsilva](#biay-day-303-by-cynthia-dsilva)
+  - [October 30,2024](#october-302024)
+    - [Life Beyond Death](#life-beyond-death)
+    - [Day 304 A strong family ready to give it all up for the Lord.](#day-304-a-strong-family-ready-to-give-it-all-up-for-the-lord)
+    - [BIAY Day 304 By Cynthia Dsilva](#biay-day-304-by-cynthia-dsilva)
+    - [DAY 304 By Sheila](#day-304-by-sheila)
+  - [October 31,2024](#october-312024)
+    - [The Defender](#the-defender)
+    - [Day 305 The desire for Wisdom leads to a kingdom.](#day-305-the-desire-for-wisdom-leads-to-a-kingdom)
 
 <!-- tocstop -->
 
@@ -158,7 +158,7 @@ May the Holy Spirit lead us. 🙏
 
 [![Haman's Plan](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day276.jpg)](https://youtu.be/94bkfSB7XCM "Haman's Plan")
 
-### Day #276 Take a stance for what is right.
+### Day #276 Take a stance for what is right
 
 Ester 3:1-2 “Mordecai Refuses To Honor Haman. Sometime later, King Ahasuerus honored Haman, son of Hammedatha, the Agagite, giving him a higher rank and seating him above all his royal nobles. All the royal officials who were at the king’s gate would kneel down and render homage to Haman, for that is what the king had ordered to be done toward him. But Mordecai refused to kneel and bow down to him.”
 Mordecai’s refusal to kneel did not sit well with Haman. Haman came up with a plan to wipe out the Jews. Based on Haman’s advice King Ahasuerus send out a decree to kill all those who did not abide by the kingdom ordinances, specifically the Jews. King Ahasuerus wants to have peace and tranquility in the kingdom at any cost.
@@ -226,7 +226,7 @@ But 2500 years later, in today’s world we are blessed to have so many ways to 
 
 [![Such a Time as This](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day277.jpg)](https://youtu.be/z3UE1ws8JtU "Such a Time as This")
 
-### Day #277 Pray hard in times of trouble.
+### Day #277 Pray hard in times of trouble
 
 The Jews face being wiped out and there seems to be no way out as King Ahasuerus already passed the ordinance to kill anyone who does not comply. Mordecai is such a good example of not backing off when the enemy threatens. He and the other Jews resort to mourning and prayer.
 
@@ -281,7 +281,7 @@ When God is for us, no one can be against us (Romans 8:31), and no weapon fashio
 
 [![Power in Weakness](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day278.jpg)](https://youtu.be/Z-VCoqUsnS0 "Power in Weakness")
 
-### Day #278 When we are weak He is strong.
+### Day #278 When we are weak He is strong
 
 After praying for 3 days, Queen Esther surrendered everything to God and went to meet the king adorned in splendor.
 
@@ -337,7 +337,7 @@ If we are faced with a difficult decision to choose between benefits or safety o
 
 [![Blessings and Burdens](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day279.jpg)](https://youtu.be/opplObEb-fE "Blessings and Burdens")
 
-### Day #279 Live life in moderation.
+### Day #279 Live life in moderation
 
 We live in a consumeristic and materialistic world today, where everyone is in a race to get the best. Most of the conversations revolve around the best cars, gadgets, makeup, and house. People boast about the holidays they took or how much they spent on destination weddings. This generation wants the most extravagant experiences, the most lavish travel, comfort and luxuries are all we seek after. We want to satisfy all the senses and are focused on this world more than eternal life.
 
@@ -514,7 +514,7 @@ A flowing river is a symbol of God’s flowing grace.  When we don't confess our
 
 [![Near Occasion of Sin](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day284.jpg)](https://youtu.be/34gZvSG-cTk "Near Occasion of Sin")
 
-### Day 284 Guard yourself against lust and avoid the near occasion of Sin.
+### Day 284 Guard yourself against lust and avoid the near occasion of Sin
 
 Sirach has some good advice for anyone struggling with the sin of lust. It seems to be addressing a man but as we know most of the Bible is written with a masculine perspective but that was just how things were written back then. This advice is relevant for both genders, especially in our modern-day lifestyle. And Sirach was a book written by a father to his son, giving him a lot of advice about living a virtuous life.
 
@@ -560,7 +560,7 @@ May the Holy Spirit lead us. 🙏
 
 [![Story of Hanukkah](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day285.jpg)](https://youtu.be/JZCJsc-Lt-E "Story of Hanukkah")
 
-### Day 285 Do not be boastful.
+### Day 285 Do not be boastful
 
 We can sometime become boastful about the stuff we have or our accomplishments. Almost every commercial is encouraging us to buy a better car, house or appliances. In order to keep up with the world we are trying to get slimmer, prettier, better hair or skin.
 You must have heard the term “keeping up with the Joneses” – loosely put - people are doing something in order to show that they have as much money as other people, rather than because they really want to do it. Many have gone to their ruin because of keeping up with others. Instead we should just live by our means and not compare with our neighbor.
@@ -588,7 +588,7 @@ May the Holy Spirit lead us. 🙏
 
 [![The Battle to Choose God](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day286.jpg)](https://youtu.be/0OxsyVxbCEM "The Battle to Choose God")
 
-### Day 286 Self-care is choosing Life.
+### Day 286 Self-care is choosing Life
 
 In the race of life, some people end up sacrificing a lot of their lives in the pursuit of making it big in life. Some have a good intention to make life easy for their kids and end up depriving themselves of a good life.
 Whoever accumulates by depriving himself, accumulates for others; and others will live in luxury on his goods.
@@ -611,7 +611,7 @@ May the Holy Spirit lead us. 🙏
 
 [![Eleazar's Sacrifice](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day287.jpg)](https://youtu.be/SmO0KJZi4R8 "Eleazar's Sacrifice")
 
-### 287 Loved one’s not choosing Christ.
+### 287 Loved one’s not choosing Christ
 
 The number one concern parents have is their children are not prayerful and are not living a holy life. It can be frustrating to see your kids go astray and make wrong choices in life. Sometimes parents feel as though it would have been better if this prodigal child had never been born in the first place.
 
@@ -671,7 +671,7 @@ If we approach them directly there can be 3 positive outcomes
 
 [![Wise Influences](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day289.jpg)](https://youtu.be/JKU7vewbmgU "Wise Influences")
 
-### Day 289 No one sees me sin.
+### Day 289 No one sees me sin
 
 When someone wants to commit sin they usually want to cover it up, no one wants the world to know that they are evil. We can try to hide from the world but the Lord’s eyes are a thousand times brighter than the sun.
 
@@ -745,7 +745,7 @@ May the Holy Spirit lead us. 🙏
 
 [![The Rise of King Alexander](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day291.jpg)](https://youtu.be/-jqm5Q6JG1Q "The Rise of King Alexander")
 
-### Day 291 A good wife is a generous gift.
+### Day 291 A good wife is a generous gift
 
 Joke alert: God told all bachelors “There are many good potential wives in every corner of the earth and then God made the world round” hahahahaha. Hope this poor joke made you smile.
 Imagine someone browsing matrimonial and dating sites that have tons of profiles, one can get frustrated trying to find a good match, it may seem as though there are no more good people left in the world. Although I cannot find you a partner, I would recommend praying that God will bring the right person into your life. The partner you pick will influence your future, your spiritual life, the care of your parents and most importantly the upbringing of children. Try to find a holy, modest, loving and caring person and then you will have a good life.
@@ -961,7 +961,7 @@ May the Holy Spirit lead us. 🙏
 
 [![Know Your Heart](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day296.jpg)](https://youtu.be/5fM5mVvMFgA "Know Your Heart")
 
-### Day 296 Gluttony.
+### Day 296 Gluttony
 
 My son, while you are well, govern your appetite,
 and see that you do not allow it what is bad for you.
@@ -1016,7 +1016,7 @@ May the Holy Spirit lead us. 🙏
 
 [![Using Good Things for Evil](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day297.jpg)](https://youtu.be/Lj37u2V0vdE "Using Good Things for Evil")
 
-### Day 297 Physicians and Medicine are a blessing from God.
+### Day 297 Physicians and Medicine are a blessing from God
 
 When it comes to doctors and medicine we find people on both sides of the spectrum, some trust only in God and don’t care for medical treatment, and some only trust in the doctors and medicine without relying on God. When it comes to medical care there are no two ways about it, medical care is from God. The doctor is an instrument of God and healing is only from God, the doctor gives medicine but healing is brought about only by God. There should not be any conflict because it is God who ultimately heals us.
 
@@ -1204,7 +1204,7 @@ At times, we also do not understand what Jesus is saying to us and it's implicat
 
 [![The Pursuit of Wisdom](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day302.jpg)](https://youtu.be/b8Em54ORKIE "The Pursuit of Wisdom")
 
-### Day 302 Don’t rejoice when your enemies fall.
+### Day 302 Don’t rejoice when your enemies fall
 
 This world is filled with many people who are let’s `not that good`, trying to use the least offensive word here. In our daily lives, we rub up against such people and we can get angry. Anger itself is not a sin as long as we channel it correctly. If we allow anger to rule our actions then we can possibly sin.
 
@@ -1230,7 +1230,7 @@ May the Holy Spirit lead us. 🙏
 
 [![Eleazar's Martyrdom](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day303.jpg)](https://youtu.be/OFK9e6V0kHw "Eleazar's Martyrdom")
 
-### Day 303 Be a good example to the world.
+### Day 303 Be a good example to the world
 
 We read about the Martyrdom of Eleazar who was a devout Jew an old man who has been practicing his faith all his life.
 
@@ -1299,7 +1299,7 @@ Envy was, and is, Lucifer's motive that causes him to entice humans to follow hi
 
 [![Life Beyond Death](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day304.jpg)](https://youtu.be/QtSYb7-m3xw "Life Beyond Death")
 
-### Day 304 A strong family ready to give it all up for the Lord.
+### Day 304 A strong family ready to give it all up for the Lord
 
 Like Eleazer, there were many others who were ready to lay down their life for the law. We read about this mother with 7 sons who did not fear the torture nor did they give into the bribes of the King, they laid it all down for the Lord. They choose to sacrifice their earthly lives in order to gain entry into the heavenly life where there is no suffering or pain.
 
@@ -1362,7 +1362,7 @@ We stake our lives on the Resurrection. We believe God The Father has raised Jes
 
 [![The Defender](https://raw.githubusercontent.com/linusjf/BIAY/main/October/jpgs/Day305.jpg)](https://youtu.be/XBqIac7NoSk "The Defender")
 
-### Day 305 The desire for Wisdom leads to a kingdom.
+### Day 305 The desire for Wisdom leads to a kingdom
 
 If you are able to keep up with the `Bible in a year` program for so long, I’m sure your heart is set on wisdom. I’m sure you seek to know God more and understand His word. Our desire is to know God and love Him.
 

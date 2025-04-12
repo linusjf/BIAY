@@ -1,120 +1,120 @@
 <!-- toc -->
 
 - [November 2024](#november-2024)
-  * [November 01,2024](#november-012024)
-    + [Wisdom is Beautiful](#wisdom-is-beautiful)
-    + [Day 306 Wisdom defined](#day-306-wisdom-defined)
-  * [November 02,2024](#november-022024)
-    + [Courage in Battle](#courage-in-battle)
-    + [Day 307 Wisdom Preserves Her Followers](#day-307-wisdom-preserves-her-followers)
-  * [November 03,2024](#november-032024)
-    + [Little by Little](#little-by-little)
-    + [Day 308 Fight for the right fiercely, God’s horseman is ahead of us](#day-308-fight-for-the-right-fiercely-gods-horseman-is-ahead-of-us)
-    + [BIAY Day 308 By Cynthia Dsilva](#biay-day-308-by-cynthia-dsilva)
-  * [November 04,2024](#november-042024)
-    + [Praying for the Dead](#praying-for-the-dead)
-    + [Day 309 Praying for the dead](#day-309-praying-for-the-dead)
-  * [November 05,2024](#november-052024)
-    + [Rivals for the Heart](#rivals-for-the-heart)
-    + [Day 310 Patient Perseverance](#day-310-patient-perseverance)
-  * [November 06,2024](#november-062024)
-    + [God Fights for You](#god-fights-for-you)
-    + [Day 311 Helping a troubled heart.](#day-311-helping-a-troubled-heart)
-  * [November 07,2024](#november-072024)
-    + [Conclusion to the Old Testament](#conclusion-to-the-old-testament)
-    + [Day 312 Rely fully on God](#day-312-rely-fully-on-god)
-  * [November 08,2024](#november-082024)
-    + [The Ark of the New Covenant](#the-ark-of-the-new-covenant)
-    + [Day 313 A sword will pierce your own soul](#day-313-a-sword-will-pierce-your-own-soul)
-    + [BIAY Day 313 By Cynthia Dsilva](#biay-day-313-by-cynthia-dsilva)
-    + [DAY 313 By Sheila](#day-313-by-sheila)
-  * [November 09,2024](#november-092024)
-    + [My Beloved Son](#my-beloved-son)
-    + [Day 314 Overcome temptations with prayer and fasting.](#day-314-overcome-temptations-with-prayer-and-fasting)
-    + [BIAY Day 314 By Cynthia Dsilva](#biay-day-314-by-cynthia-dsilva)
-  * [November 10,2024](#november-102024)
-    + [The Virtue of Mercy](#the-virtue-of-mercy)
-    + [Day 315 Faith and Love](#day-315-faith-and-love)
-  * [November 11,2024](#november-112024)
-    + [Absolute Surrender](#absolute-surrender)
-    + [Day 316 Deny yourself and come follow me.](#day-316-deny-yourself-and-come-follow-me)
-  * [November 12,2024](#november-122024)
-    + [Persistence in Prayer](#persistence-in-prayer)
-    + [Day 317 Do not be anxious about tomorrow.](#day-317-do-not-be-anxious-about-tomorrow)
-    + [DAY 317 By Sheila](#day-317-by-sheila)
-    + [BIAY Day 317 By Cynthia Dsilva](#biay-day-317-by-cynthia-dsilva)
-  * [November 13,2024](#november-132024)
-    + [The Narrow Gate, Lost Sheep, and Prodigal Son](#the-narrow-gate-lost-sheep-and-prodigal-son)
-    + [Day 318 The real Prodigal son](#day-318-the-real-prodigal-son)
-    + [DAY 318 By Sheila](#day-318-by-sheila)
-    + [BIAY Day 318 By Cynthia Dsilva](#biay-day-318-by-cynthia-dsilva)
-  * [November 14,2024](#november-142024)
-    + [Come, Follow Me](#come-follow-me)
-    + [DAY 319 By Sheila](#day-319-by-sheila)
+  - [November 01,2024](#november-012024)
+    - [Wisdom is Beautiful](#wisdom-is-beautiful)
+    - [Day 306 Wisdom defined](#day-306-wisdom-defined)
+  - [November 02,2024](#november-022024)
+    - [Courage in Battle](#courage-in-battle)
+    - [Day 307 Wisdom Preserves Her Followers](#day-307-wisdom-preserves-her-followers)
+  - [November 03,2024](#november-032024)
+    - [Little by Little](#little-by-little)
+    - [Day 308 Fight for the right fiercely, God’s horseman is ahead of us](#day-308-fight-for-the-right-fiercely-gods-horseman-is-ahead-of-us)
+    - [BIAY Day 308 By Cynthia Dsilva](#biay-day-308-by-cynthia-dsilva)
+  - [November 04,2024](#november-042024)
+    - [Praying for the Dead](#praying-for-the-dead)
+    - [Day 309 Praying for the dead](#day-309-praying-for-the-dead)
+  - [November 05,2024](#november-052024)
+    - [Rivals for the Heart](#rivals-for-the-heart)
+    - [Day 310 Patient Perseverance](#day-310-patient-perseverance)
+  - [November 06,2024](#november-062024)
+    - [God Fights for You](#god-fights-for-you)
+    - [Day 311 Helping a troubled heart.](#day-311-helping-a-troubled-heart)
+  - [November 07,2024](#november-072024)
+    - [Conclusion to the Old Testament](#conclusion-to-the-old-testament)
+    - [Day 312 Rely fully on God](#day-312-rely-fully-on-god)
+  - [November 08,2024](#november-082024)
+    - [The Ark of the New Covenant](#the-ark-of-the-new-covenant)
+    - [Day 313 A sword will pierce your own soul](#day-313-a-sword-will-pierce-your-own-soul)
+    - [BIAY Day 313 By Cynthia Dsilva](#biay-day-313-by-cynthia-dsilva)
+    - [DAY 313 By Sheila](#day-313-by-sheila)
+  - [November 09,2024](#november-092024)
+    - [My Beloved Son](#my-beloved-son)
+    - [Day 314 Overcome temptations with prayer and fasting.](#day-314-overcome-temptations-with-prayer-and-fasting)
+    - [BIAY Day 314 By Cynthia Dsilva](#biay-day-314-by-cynthia-dsilva)
+  - [November 10,2024](#november-102024)
+    - [The Virtue of Mercy](#the-virtue-of-mercy)
+    - [Day 315 Faith and Love](#day-315-faith-and-love)
+  - [November 11,2024](#november-112024)
+    - [Absolute Surrender](#absolute-surrender)
+    - [Day 316 Deny yourself and come follow me.](#day-316-deny-yourself-and-come-follow-me)
+  - [November 12,2024](#november-122024)
+    - [Persistence in Prayer](#persistence-in-prayer)
+    - [Day 317 Do not be anxious about tomorrow.](#day-317-do-not-be-anxious-about-tomorrow)
+    - [DAY 317 By Sheila](#day-317-by-sheila)
+    - [BIAY Day 317 By Cynthia Dsilva](#biay-day-317-by-cynthia-dsilva)
+  - [November 13,2024](#november-132024)
+    - [The Narrow Gate, Lost Sheep, and Prodigal Son](#the-narrow-gate-lost-sheep-and-prodigal-son)
+    - [Day 318 The real Prodigal son](#day-318-the-real-prodigal-son)
+    - [DAY 318 By Sheila](#day-318-by-sheila)
+    - [BIAY Day 318 By Cynthia Dsilva](#biay-day-318-by-cynthia-dsilva)
+  - [November 14,2024](#november-142024)
+    - [Come, Follow Me](#come-follow-me)
+    - [DAY 319 By Sheila](#day-319-by-sheila)
       - [Day 319 Religion is not just a bunch of rules](#day-319-religion-is-not-just-a-bunch-of-rules)
-    + [BIAY Day 319 By Cynthia Dsilva](#biay-day-319-by-cynthia-dsilva)
-  * [November 15,2024](#november-152024)
-    + [Peter's Denial Foretold](#peters-denial-foretold)
-    + [DAY 320 By Sheila](#day-320-by-sheila)
-    + [BIAY Day 320 By Cynthia Dsilva](#biay-day-320-by-cynthia-dsilva)
-    + [Day 320 Peter’s denial](#day-320-peters-denial)
-  * [November 16,2024](#november-162024)
-    + [Jesus' Prayer in the Garden](#jesus-prayer-in-the-garden)
-    + [Day 321 Where not our heart burning when He spoke to us](#day-321-where-not-our-heart-burning-when-he-spoke-to-us)
-    + [BIAY Day 321 By Cynthia Dsilva](#biay-day-321-by-cynthia-dsilva)
-  * [November 17,2024](#november-172024)
-    + [The Ascension](#the-ascension)
-    + [Day 322 Restore God’s Kingdom on earth](#day-322-restore-gods-kingdom-on-earth)
-    + [BIAY Day 322 By Cynthia Dsilva](#biay-day-322-by-cynthia-dsilva)
-  * [November 18,2024](#november-182024)
-    + [Pentecost](#pentecost)
-    + [Day 323 The Baptism in the Spirit](#day-323-the-baptism-in-the-spirit)
-    + [BIAY Day 323 By Cynthia Dsilva](#biay-day-323-by-cynthia-dsilva)
-  * [November 19,2024](#november-192024)
-    + [The Name of Jesus](#the-name-of-jesus)
-    + [Day 324 Saved by grace](#day-324-saved-by-grace)
-    + [BIAY Day 324 By Cynthia Dsilva](#biay-day-324-by-cynthia-dsilva)
-  * [November 20,2024](#november-202024)
-    + [Boldness in Faith](#boldness-in-faith)
-    + [Day 325 Boldness to proclaim](#day-325-boldness-to-proclaim)
-  * [November 21,2024](#november-212024)
-    + [Life in the Spirit](#life-in-the-spirit)
-    + [Day 326 Life in the Spirit](#day-326-life-in-the-spirit)
-    + [BIAY Day 326 By Cynthia Dsilva](#biay-day-326-by-cynthia-dsilva)
-  * [November 22,2024](#november-222024)
-    + [Origin of the Diaconate](#origin-of-the-diaconate)
-    + [Day 327 The role of a Deacon in the Catholic Church.](#day-327-the-role-of-a-deacon-in-the-catholic-church)
-    + [BIAY Day 327 By Cynthia Dsilva](#biay-day-327-by-cynthia-dsilva)
-  * [November 23,2024](#november-232024)
-    + [Stephen is Martyred](#stephen-is-martyred)
-    + [Day 328 Do not conform yourselves to this age](#day-328-do-not-conform-yourselves-to-this-age)
-    + [BIAY Day 328 By Cynthia Dsilva](#biay-day-328-by-cynthia-dsilva)
-  * [November 24,2024](#november-242024)
-    + [The Ethiopian Eunuch](#the-ethiopian-eunuch)
-    + [Day 329 Gifts of the Spirit are not on sale](#day-329-gifts-of-the-spirit-are-not-on-sale)
-    + [BIAY Day 329 By Cynthia Dsilva](#biay-day-329-by-cynthia-dsilva)
-  * [November 25,2024](#november-252024)
-    + [Saul's Conversion](#sauls-conversion)
-    + [Day 330 The worst sinners make the best saints.](#day-330-the-worst-sinners-make-the-best-saints)
-  * [November 26,2024](#november-262024)
-    + [Peter Preaches to the Gentiles](#peter-preaches-to-the-gentiles)
-    + [Day 331 Proclaiming God’s Word is accompanied by signs and wonders.](#day-331-proclaiming-gods-word-is-accompanied-by-signs-and-wonders)
-    + [BIAY Day 331 By Cynthia Dsilva](#biay-day-331-by-cynthia-dsilva)
-  * [November 27,2024](#november-272024)
-    + [Barnabas and Paul's Mission](#barnabas-and-pauls-mission)
-    + [Day 332 Do you not know – you are the temple of God.](#day-332-do-you-not-know-%E2%80%93-you-are-the-temple-of-god)
-    + [BIAY Day 332 By Cynthia Dsilva](#biay-day-332-by-cynthia-dsilva)
-  * [November 28,2024](#november-282024)
-    + [Peter Is Rescued from Prison](#peter-is-rescued-from-prison)
-    + [Day 333 The resurrection of the body](#day-333-the-resurrection-of-the-body)
-    + [BIAY Day 333 By Cynthia Dsilva](#biay-day-333-by-cynthia-dsilva)
-  * [November 29,2024](#november-292024)
-    + [The Meaning of Fasting](#the-meaning-of-fasting)
-    + [BIAY Day 334 By Cynthia Dsilva](#biay-day-334-by-cynthia-dsilva)
-    + [Day 334 Celibacy makes for dedicated service to the Lord.](#day-334-celibacy-makes-for-dedicated-service-to-the-lord)
-  * [November 30,2024](#november-302024)
-    + [Run the Race](#run-the-race)
-    + [Day 335 Strive for salvation.](#day-335-strive-for-salvation)
+    - [BIAY Day 319 By Cynthia Dsilva](#biay-day-319-by-cynthia-dsilva)
+  - [November 15,2024](#november-152024)
+    - [Peter's Denial Foretold](#peters-denial-foretold)
+    - [DAY 320 By Sheila](#day-320-by-sheila)
+    - [BIAY Day 320 By Cynthia Dsilva](#biay-day-320-by-cynthia-dsilva)
+    - [Day 320 Peter’s denial](#day-320-peters-denial)
+  - [November 16,2024](#november-162024)
+    - [Jesus' Prayer in the Garden](#jesus-prayer-in-the-garden)
+    - [Day 321 Where not our heart burning when He spoke to us](#day-321-where-not-our-heart-burning-when-he-spoke-to-us)
+    - [BIAY Day 321 By Cynthia Dsilva](#biay-day-321-by-cynthia-dsilva)
+  - [November 17,2024](#november-172024)
+    - [The Ascension](#the-ascension)
+    - [Day 322 Restore God’s Kingdom on earth](#day-322-restore-gods-kingdom-on-earth)
+    - [BIAY Day 322 By Cynthia Dsilva](#biay-day-322-by-cynthia-dsilva)
+  - [November 18,2024](#november-182024)
+    - [Pentecost](#pentecost)
+    - [Day 323 The Baptism in the Spirit](#day-323-the-baptism-in-the-spirit)
+    - [BIAY Day 323 By Cynthia Dsilva](#biay-day-323-by-cynthia-dsilva)
+  - [November 19,2024](#november-192024)
+    - [The Name of Jesus](#the-name-of-jesus)
+    - [Day 324 Saved by grace](#day-324-saved-by-grace)
+    - [BIAY Day 324 By Cynthia Dsilva](#biay-day-324-by-cynthia-dsilva)
+  - [November 20,2024](#november-202024)
+    - [Boldness in Faith](#boldness-in-faith)
+    - [Day 325 Boldness to proclaim](#day-325-boldness-to-proclaim)
+  - [November 21,2024](#november-212024)
+    - [Life in the Spirit](#life-in-the-spirit)
+    - [Day 326 Life in the Spirit](#day-326-life-in-the-spirit)
+    - [BIAY Day 326 By Cynthia Dsilva](#biay-day-326-by-cynthia-dsilva)
+  - [November 22,2024](#november-222024)
+    - [Origin of the Diaconate](#origin-of-the-diaconate)
+    - [Day 327 The role of a Deacon in the Catholic Church.](#day-327-the-role-of-a-deacon-in-the-catholic-church)
+    - [BIAY Day 327 By Cynthia Dsilva](#biay-day-327-by-cynthia-dsilva)
+  - [November 23,2024](#november-232024)
+    - [Stephen is Martyred](#stephen-is-martyred)
+    - [Day 328 Do not conform yourselves to this age](#day-328-do-not-conform-yourselves-to-this-age)
+    - [BIAY Day 328 By Cynthia Dsilva](#biay-day-328-by-cynthia-dsilva)
+  - [November 24,2024](#november-242024)
+    - [The Ethiopian Eunuch](#the-ethiopian-eunuch)
+    - [Day 329 Gifts of the Spirit are not on sale](#day-329-gifts-of-the-spirit-are-not-on-sale)
+    - [BIAY Day 329 By Cynthia Dsilva](#biay-day-329-by-cynthia-dsilva)
+  - [November 25,2024](#november-252024)
+    - [Saul's Conversion](#sauls-conversion)
+    - [Day 330 The worst sinners make the best saints.](#day-330-the-worst-sinners-make-the-best-saints)
+  - [November 26,2024](#november-262024)
+    - [Peter Preaches to the Gentiles](#peter-preaches-to-the-gentiles)
+    - [Day 331 Proclaiming God’s Word is accompanied by signs and wonders.](#day-331-proclaiming-gods-word-is-accompanied-by-signs-and-wonders)
+    - [BIAY Day 331 By Cynthia Dsilva](#biay-day-331-by-cynthia-dsilva)
+  - [November 27,2024](#november-272024)
+    - [Barnabas and Paul's Mission](#barnabas-and-pauls-mission)
+    - [Day 332 Do you not know – you are the temple of God.](#day-332-do-you-not-know-%E2%80%93-you-are-the-temple-of-god)
+    - [BIAY Day 332 By Cynthia Dsilva](#biay-day-332-by-cynthia-dsilva)
+  - [November 28,2024](#november-282024)
+    - [Peter Is Rescued from Prison](#peter-is-rescued-from-prison)
+    - [Day 333 The resurrection of the body](#day-333-the-resurrection-of-the-body)
+    - [BIAY Day 333 By Cynthia Dsilva](#biay-day-333-by-cynthia-dsilva)
+  - [November 29,2024](#november-292024)
+    - [The Meaning of Fasting](#the-meaning-of-fasting)
+    - [BIAY Day 334 By Cynthia Dsilva](#biay-day-334-by-cynthia-dsilva)
+    - [Day 334 Celibacy makes for dedicated service to the Lord.](#day-334-celibacy-makes-for-dedicated-service-to-the-lord)
+  - [November 30,2024](#november-302024)
+    - [Run the Race](#run-the-race)
+    - [Day 335 Strive for salvation.](#day-335-strive-for-salvation)
 
 <!-- tocstop -->
 
@@ -374,7 +374,7 @@ May the Holy Spirit lead us. 🙏
 
 [![God Fights for You](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day311.jpg)](https://youtu.be/PzsctVQ5s4I "God Fights for You")
 
-### Day 311 Helping a troubled heart.
+### Day 311 Helping a troubled heart
 
 When we see troubled people, we usually either avoid them or try to cheer them on. Some people even go to the extent of betraying or abandoning someone when they are in trouble. This could be really hard on someone who desperately needs support.
 
@@ -612,7 +612,7 @@ Like Mary, let us say: Let it be done to me as You have said.
 
 [![My Beloved Son](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day314.jpg)](https://youtu.be/R2fNUca2HAw "My Beloved Son")
 
-### Day 314 Overcome temptations with prayer and fasting.
+### Day 314 Overcome temptations with prayer and fasting
 
 At the Baptism of Jesus, the Holy Spirit descended on Him in bodily form and the voice of the Father was heard. “You are my Son, the Beloved; with you, I am well pleased.” As soon as that happened, Jesus was led by the Spirit into the wilderness where He fasted and was tempted by the devil in every way.
 The new Adam is able to withstand the temptations of the devil, as compared to the Adam. It seems like the three temptations were similar to the ones that Adam faced.
@@ -821,7 +821,7 @@ May the Holy Spirit lead us. 🙏
 
 [![Absolute Surrender](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day316.jpg)](https://youtu.be/fJ4gt4sW5Y4 "Absolute Surrender")
 
-### Day 316 Deny yourself and come follow me.
+### Day 316 Deny yourself and come follow me
 
 Many people come to Jesus for a reason, they either want to be healed or receive a favor. Jesus wants to heal and provide for us but He wants something more, a loving and living relationship. Jesus invites us to this beautiful relationship, like one of a shepherd and the sheep. Jesus calls the 12 and gives them authority to drive out demons and to heal the sick. When they return Jesus does more Miracles like the feeding of the 5000. He later sends out the 72 who are able to heal and deliver people from demon possession. What is more important than doing works for the Lord is knowing the Lord.
 
@@ -848,7 +848,7 @@ May the Holy Spirit lead us. 🙏
 
 [![Persistence in Prayer](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day317.jpg)](https://youtu.be/1Cq89cCv0SA "Persistence in Prayer")
 
-### Day 317 Do not be anxious about tomorrow.
+### Day 317 Do not be anxious about tomorrow
 
 Most of us are such control freaks when it comes to our lives. We have our schedules booked out months in advance and holidays a year in advance. We know when we would upgrade our next iphone and when we should retire. Although it’s good to plan it’s not good to worry about things of the future. We are called to have dependence on God, rather than depending on our abilities and securities.
 Dependence on God.
@@ -2112,7 +2112,7 @@ Our union with Christ and with the other members of the Body of Christ, does not
 
 [![Origin of the Diaconate](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day327.jpg)](https://youtu.be/sf0Mmd5lXCc "Origin of the Diaconate")
 
-### Day 327 The role of a Deacon in the Catholic Church.
+### Day 327 The role of a Deacon in the Catholic Church
 
 There are two types of deacons in the Catholic church, transitional deacons and permanent deacons. During the formation of priests, one of the important parts is being a transitional deacon where they spend time at a parish to have first-hand experience of ministry.
 The second time type of deacons are permanent deacons, they can be either single or married men who feel the call to serve the church.
@@ -2414,7 +2414,7 @@ We can put on the armour of Light every morning after we wake up by starting the
 
 [![Saul's Conversion](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day330.jpg)](https://youtu.be/HOhsUfunEuM "Saul's Conversion")
 
-### Day 330 The worst sinners make the best saints.
+### Day 330 The worst sinners make the best saints
 
 Saul was a young devout Jew, who witnessed the start of the persecution when Deacon Stephen was Martyred by stoning. Paul consented to the execution of Stephen.
 The witnesses laid down their cloaks at the feet of a young man named Saul. Acts 7:58
@@ -2449,7 +2449,7 @@ May the Holy Spirit lead us. 🙏
 
 [![Peter Preaches to the Gentiles](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day331.jpg)](https://youtu.be/xUHaQlJOiLY "Peter Preaches to the Gentiles")
 
-### Day 331 Proclaiming God’s Word is accompanied by signs and wonders.
+### Day 331 Proclaiming God’s Word is accompanied by signs and wonders
 
 While St Peter was praying he was instructed in a vision that all meats are clean to eat, as he was trying to interpret the vision, the messengers of the Roman centurion Cornelius invited him to go to visit them. Usually, the Jews did not associate with pagans, but led by the Spirit Peter went up to Caesarea(a place of a lot of pagan worship) and visited Cornelius. Cornelius was earlier visited by an angel who instructed him to invite Peter, Cornelius and the other Jews that were gathered there fell down and wanted to worship Peter.
 
@@ -2553,7 +2553,7 @@ Our faith must be built on the power of Jesus, not on the priests or any spiritu
 
 [![Barnabas and Paul's Mission](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day332.jpg)](https://youtu.be/VdicF4xF3pQ "Barnabas and Paul's Mission")
 
-### Day 332 Do you not know – you are the temple of God.
+### Day 332 Do you not know – you are the temple of God
 
 Many people search for God in many places and through many experiences. We can sometimes fail to overlook the dwelling of God in our hearts.
 Do you not know that you are the temple of God, and that the Spirit of God dwells in you?
@@ -2794,7 +2794,7 @@ Meanwhile, married people can focus on serving God by serving their domestic Chu
 
 🔥🔥🔥🔥🔥🔥🔥
 
-### Day 334 Celibacy makes for dedicated service to the Lord.
+### Day 334 Celibacy makes for dedicated service to the Lord
 
 A very practical reason for priests and religious taking the vow of celibacy is the freedom to serve the Lord. This is a small ‘t’ tradition of the Catholic Church.
 If we think of it in a very practical sense, a married man/woman is focused on the family, and how to make the spouse, children, parents, and in-laws happy. Preparing meals, dropping of the kids to school and sports, caring for elderly parents, saving money for college tuition, praying as a family, and raising good kids. I don’t think any parent reading this will say they have enough of time or resources to be a married person, it seems never enough. If we add the service of the Lord to the equation, either one would be neglected, although this is not the case always – there are many people in lay ministry that are able to balance both family and the Lord’s service. For example a permanent deacon has threefold responsibilities, family, work and deaconate. However for a parish priest, bishop, cardinal, pope, nun, mother superior, religions priest being single would be most practical as they are able to dedicate 100% of their time and energy for the service of the Lord.
@@ -2821,7 +2821,7 @@ May the Holy Spirit lead us. 🙏
 
 [![Run the Race](https://raw.githubusercontent.com/linusjf/BIAY/main/November/jpgs/Day335.jpg)](https://youtu.be/51YSft7AXMk "Run the Race")
 
-### Day 335 Strive for salvation.
+### Day 335 Strive for salvation
 
 I feel that zeal for salvation is lacking in our generation, we see people taking great care to secure a job, educate their kids, save for retirement, get promotions, build their bodies, diet etc. We do so much for the earthly life and do very little for the eternal life. Look at any athlete or sports person, they dedicate their whole lives to sport and aim to win a medal. However, everyone will forget about the game or the medal in a few hours. How much more should we prepare for our eternal goal?
 Do you not know that the runners in the stadium all run in the race, but only one wins the prize? Run so as to win.

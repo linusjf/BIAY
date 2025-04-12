@@ -1,117 +1,117 @@
 <!-- toc -->
 
 - [December 2024](#december-2024)
-  * [December 01,2024](#december-012024)
-    + [The Council at Jerusalem](#the-council-at-jerusalem)
-    + [BIAY Day 336 By Cynthia Dsilva](#biay-day-336-by-cynthia-dsilva)
-    + [Day 336 The gifts of the Holy Spirit.](#day-336-the-gifts-of-the-holy-spirit)
-  * [December 02,2024](#december-022024)
-    + [The Importance of Love](#the-importance-of-love)
-    + [BIAY Day 337 By Cynthia Dsilva](#biay-day-337-by-cynthia-dsilva)
-    + [Day 337 Love never fails](#day-337-love-never-fails)
-  * [December 03,2024](#december-032024)
-    + [Death Defeated](#death-defeated)
-    + [Day 338 O death where your is your sting](#day-338-o-death-where-your-is-your-sting)
-  * [December 04,2024](#december-042024)
-    + [Priscilla and Aquila](#priscilla-and-aquila)
-    + [Day 339 Living as a loving community](#day-339-living-as-a-loving-community)
-  * [December 05,2024](#december-052024)
-    + [The Power of the Holy Spirit](#the-power-of-the-holy-spirit)
-    + [Day 340 A true Christian life should have a personal relationship with Jesus and be led by the Holy Spirit.](#day-340-a-true-christian-life-should-have-a-personal-relationship-with-jesus-and-be-led-by-the-holy-spirit)
-    + [BIAY Day 340 By Cynthia Dsilva](#biay-day-340-by-cynthia-dsilva)
-  * [December 06,2024](#december-062024)
-    + [Eternal Weight of Glory](#eternal-weight-of-glory)
-    + [Day 341 We walk by faith, not by sight.](#day-341-we-walk-by-faith-not-by-sight)
-  * [December 07,2024](#december-072024)
-    + [Generous Hearts](#generous-hearts)
-    + [Day 342 The real struggles of being a disciple of Christ.](#day-342-the-real-struggles-of-being-a-disciple-of-christ)
-    + [BIAY Day 342 By Cynthia Dsilva](#biay-day-342-by-cynthia-dsilva)
-  * [December 08,2024](#december-082024)
-    + [God Uses Paul's Past](#god-uses-pauls-past)
-    + [Day 343 Boast in our weakness](#day-343-boast-in-our-weakness)
-    + [BIAY Day 343 By Cynthia Dsilva](#biay-day-343-by-cynthia-dsilva)
-  * [December 09,2024](#december-092024)
-    + [The Thorn in Paul's Side](#the-thorn-in-pauls-side)
-    + [Day 344 My grace is sufficient for you, for power is made perfect in weakness.](#day-344-my-grace-is-sufficient-for-you-for-power-is-made-perfect-in-weakness)
-    + [BIAY Day 344 By Cynthia Dsilva](#biay-day-344-by-cynthia-dsilva)
-  * [December 10,2024](#december-102024)
-    + [One in Christ](#one-in-christ)
-    + [Day 345 Just being a good person is not our Christian calling.](#day-345-just-being-a-good-person-is-not-our-christian-calling)
-    + [BIAY Day 345 By Cynthia Dsilva](#biay-day-345-by-cynthia-dsilva)
-  * [December 11,2024](#december-112024)
-    + [Fruits of the Spirit](#fruits-of-the-spirit)
-    + [Day 346 The Fruit of the Spirit](#day-346-the-fruit-of-the-spirit)
-  * [December 12,2024](#december-122024)
-    + [Witness to Unbelievers](#witness-to-unbelievers)
-    + [Day 347 Promises & Blessings from Ephesians 1](#day-347-promises--blessings-from-ephesians-1)
-    + [BIAY Day 347 By Cynthia Dsilva](#biay-day-347-by-cynthia-dsilva)
-  * [December 13,2024](#december-132024)
-    + [Rules for the New Life](#rules-for-the-new-life)
-    + [Day 348 Put on the armor of God](#day-348-put-on-the-armor-of-god)
-    + [BIAY Day 348 By Cynthia Dsilva](#biay-day-348-by-cynthia-dsilva)
-  * [December 14,2024](#december-142024)
-    + [Holy Indifference](#holy-indifference)
-    + [Day 349 Work out your salvation](#day-349-work-out-your-salvation)
-    + [BIAY Day 349 By Cynthia Dsilva](#biay-day-349-by-cynthia-dsilva)
-  * [December 15,2024](#december-152024)
-    + [Faith and Works](#faith-and-works)
-    + [Day 350 Doers of the Word, not hearer only.](#day-350-doers-of-the-word-not-hearer-only)
-    + [BIAY Day 350 By Cynthia Dsilva](#biay-day-350-by-cynthia-dsilva)
-  * [December 16,2024](#december-162024)
-    + [Draw Near to God](#draw-near-to-god)
-    + [Day 351 Words have power](#day-351-words-have-power)
-    + [BIAY Day 351 By Cynthia Dsilva](#biay-day-351-by-cynthia-dsilva)
-  * [December 17,2024](#december-172024)
-    + [Purified by Fire](#purified-by-fire)
-    + [Day 352 Suffering unjustly](#day-352-suffering-unjustly)
-    + [BIAY Day 352 By Cynthia Dsilva](#biay-day-352-by-cynthia-dsilva)
-  * [December 18,2024](#december-182024)
-    + [Sharing the Gospel](#sharing-the-gospel)
-    + [Day 353 A gentle and calm disposition](#day-353-a-gentle-and-calm-disposition)
-    + [BIAY Day 353 By Cynthia Dsilva](#biay-day-353-by-cynthia-dsilva)
-  * [December 19,2024](#december-192024)
-    + [Partakers of the Divine Nature](#partakers-of-the-divine-nature)
-    + [Day 354 Always Rejoice, Pray and Give Thanks](#day-354-always-rejoice-pray-and-give-thanks)
-    + [BIAY Day 354 By Cynthia Dsilva](#biay-day-354-by-cynthia-dsilva)
-  * [December 20,2024](#december-202024)
-    + [The Things of This World](#the-things-of-this-world)
-    + [Day 355 If we acknowledge our sins, he is faithful and just and will forgive](#day-355-if-we-acknowledge-our-sins-he-is-faithful-and-just-and-will-forgive)
-    + [BIAY Day 355 By Cynthia Dsilva](#biay-day-355-by-cynthia-dsilva)
-  * [December 21,2024](#december-212024)
-    + [God Is Love](#god-is-love)
-    + [BIAY Day 356 By Cynthia Dsilva](#biay-day-356-by-cynthia-dsilva)
-    + [Day 356 One Mediator and Traditions](#day-356-one-mediator-and-traditions)
-  * [December 22,2024](#december-222024)
-    + [Truth and Love](#truth-and-love)
-    + [Day 357 The love of money is the root of all evils](#day-357-the-love-of-money-is-the-root-of-all-evils)
-    + [BIAY Day 357 By Cynthia Dsilva](#biay-day-357-by-cynthia-dsilva)
-  * [December 23,2024](#december-232024)
-    + [From Rebellion to Faithfulness](#from-rebellion-to-faithfulness)
-    + [Day 358 St Michael the ArchAngel protect us](#day-358--st-michael-the-archangel-protect-us)
-    + [BIAY Day 358 By Cynthia Dsilva](#biay-day-358-by-cynthia-dsilva)
-  * [December 24,2024](#december-242024)
-    + [John's Apocalypse](#johns-apocalypse)
-    + [Day 359 Behold I stand at the door and knock.](#day-359-behold-i-stand-at-the-door-and-knock)
-    + [BIAY Day 359 By Cynthia Dsilva](#biay-day-359-by-cynthia-dsilva)
-  * [December 25,2024](#december-252024)
-    + [Heavenly Worship](#heavenly-worship)
-    + [Day 360 Mass - heaven on earth as understood in the book of Revelations.](#day-360-mass---heaven-on-earth-as-understood-in-the-book-of-revelations)
-    + [BIAY Day 360 By Cynthia Dsilva](#biay-day-360-by-cynthia-dsilva)
-  * [December 26,2024](#december-262024)
-    + [Judgment and Repentance](#judgment-and-repentance)
-    + [Day 361: A second chance](#day-361-a-second-chance)
-  * [December 27,2024](#december-272024)
-    + [The Woman Clothed with the Sun](#the-woman-clothed-with-the-sun)
-    + [BIAY Day 362 By Cynthia Dsilva](#biay-day-362-by-cynthia-dsilva)
-  * [December 28,2024](#december-282024)
-    + [The New Covenant Priesthood](#the-new-covenant-priesthood)
-    + [BIAY Day 363 By Cynthia Dsilva](#biay-day-363-by-cynthia-dsilva)
-  * [December 29,2024](#december-292024)
-    + [Christ's Sacrifice Once for All](#christs-sacrifice-once-for-all)
-    + [BIAY Day 364 By Cynthia Dsilva](#biay-day-364-by-cynthia-dsilva)
-  * [December 30,2024](#december-302024)
-    + [The Beginning and the End](#the-beginning-and-the-end)
-    + [BIAY Day 365 By Cynthia Dsilva](#biay-day-365-by-cynthia-dsilva)
+  - [December 01,2024](#december-012024)
+    - [The Council at Jerusalem](#the-council-at-jerusalem)
+    - [BIAY Day 336 By Cynthia Dsilva](#biay-day-336-by-cynthia-dsilva)
+    - [Day 336 The gifts of the Holy Spirit.](#day-336-the-gifts-of-the-holy-spirit)
+  - [December 02,2024](#december-022024)
+    - [The Importance of Love](#the-importance-of-love)
+    - [BIAY Day 337 By Cynthia Dsilva](#biay-day-337-by-cynthia-dsilva)
+    - [Day 337 Love never fails](#day-337-love-never-fails)
+  - [December 03,2024](#december-032024)
+    - [Death Defeated](#death-defeated)
+    - [Day 338 O death where your is your sting](#day-338-o-death-where-your-is-your-sting)
+  - [December 04,2024](#december-042024)
+    - [Priscilla and Aquila](#priscilla-and-aquila)
+    - [Day 339 Living as a loving community](#day-339-living-as-a-loving-community)
+  - [December 05,2024](#december-052024)
+    - [The Power of the Holy Spirit](#the-power-of-the-holy-spirit)
+    - [Day 340 A true Christian life should have a personal relationship with Jesus and be led by the Holy Spirit.](#day-340-a-true-christian-life-should-have-a-personal-relationship-with-jesus-and-be-led-by-the-holy-spirit)
+    - [BIAY Day 340 By Cynthia Dsilva](#biay-day-340-by-cynthia-dsilva)
+  - [December 06,2024](#december-062024)
+    - [Eternal Weight of Glory](#eternal-weight-of-glory)
+    - [Day 341 We walk by faith, not by sight.](#day-341-we-walk-by-faith-not-by-sight)
+  - [December 07,2024](#december-072024)
+    - [Generous Hearts](#generous-hearts)
+    - [Day 342 The real struggles of being a disciple of Christ.](#day-342-the-real-struggles-of-being-a-disciple-of-christ)
+    - [BIAY Day 342 By Cynthia Dsilva](#biay-day-342-by-cynthia-dsilva)
+  - [December 08,2024](#december-082024)
+    - [God Uses Paul's Past](#god-uses-pauls-past)
+    - [Day 343 Boast in our weakness](#day-343-boast-in-our-weakness)
+    - [BIAY Day 343 By Cynthia Dsilva](#biay-day-343-by-cynthia-dsilva)
+  - [December 09,2024](#december-092024)
+    - [The Thorn in Paul's Side](#the-thorn-in-pauls-side)
+    - [Day 344 My grace is sufficient for you, for power is made perfect in weakness.](#day-344-my-grace-is-sufficient-for-you-for-power-is-made-perfect-in-weakness)
+    - [BIAY Day 344 By Cynthia Dsilva](#biay-day-344-by-cynthia-dsilva)
+  - [December 10,2024](#december-102024)
+    - [One in Christ](#one-in-christ)
+    - [Day 345 Just being a good person is not our Christian calling.](#day-345-just-being-a-good-person-is-not-our-christian-calling)
+    - [BIAY Day 345 By Cynthia Dsilva](#biay-day-345-by-cynthia-dsilva)
+  - [December 11,2024](#december-112024)
+    - [Fruits of the Spirit](#fruits-of-the-spirit)
+    - [Day 346 The Fruit of the Spirit](#day-346-the-fruit-of-the-spirit)
+  - [December 12,2024](#december-122024)
+    - [Witness to Unbelievers](#witness-to-unbelievers)
+    - [Day 347 Promises & Blessings from Ephesians 1](#day-347-promises--blessings-from-ephesians-1)
+    - [BIAY Day 347 By Cynthia Dsilva](#biay-day-347-by-cynthia-dsilva)
+  - [December 13,2024](#december-132024)
+    - [Rules for the New Life](#rules-for-the-new-life)
+    - [Day 348 Put on the armor of God](#day-348-put-on-the-armor-of-god)
+    - [BIAY Day 348 By Cynthia Dsilva](#biay-day-348-by-cynthia-dsilva)
+  - [December 14,2024](#december-142024)
+    - [Holy Indifference](#holy-indifference)
+    - [Day 349 Work out your salvation](#day-349-work-out-your-salvation)
+    - [BIAY Day 349 By Cynthia Dsilva](#biay-day-349-by-cynthia-dsilva)
+  - [December 15,2024](#december-152024)
+    - [Faith and Works](#faith-and-works)
+    - [Day 350 Doers of the Word, not hearer only.](#day-350-doers-of-the-word-not-hearer-only)
+    - [BIAY Day 350 By Cynthia Dsilva](#biay-day-350-by-cynthia-dsilva)
+  - [December 16,2024](#december-162024)
+    - [Draw Near to God](#draw-near-to-god)
+    - [Day 351 Words have power](#day-351-words-have-power)
+    - [BIAY Day 351 By Cynthia Dsilva](#biay-day-351-by-cynthia-dsilva)
+  - [December 17,2024](#december-172024)
+    - [Purified by Fire](#purified-by-fire)
+    - [Day 352 Suffering unjustly](#day-352-suffering-unjustly)
+    - [BIAY Day 352 By Cynthia Dsilva](#biay-day-352-by-cynthia-dsilva)
+  - [December 18,2024](#december-182024)
+    - [Sharing the Gospel](#sharing-the-gospel)
+    - [Day 353 A gentle and calm disposition](#day-353-a-gentle-and-calm-disposition)
+    - [BIAY Day 353 By Cynthia Dsilva](#biay-day-353-by-cynthia-dsilva)
+  - [December 19,2024](#december-192024)
+    - [Partakers of the Divine Nature](#partakers-of-the-divine-nature)
+    - [Day 354 Always Rejoice, Pray and Give Thanks](#day-354-always-rejoice-pray-and-give-thanks)
+    - [BIAY Day 354 By Cynthia Dsilva](#biay-day-354-by-cynthia-dsilva)
+  - [December 20,2024](#december-202024)
+    - [The Things of This World](#the-things-of-this-world)
+    - [Day 355 If we acknowledge our sins, he is faithful and just and will forgive](#day-355-if-we-acknowledge-our-sins-he-is-faithful-and-just-and-will-forgive)
+    - [BIAY Day 355 By Cynthia Dsilva](#biay-day-355-by-cynthia-dsilva)
+  - [December 21,2024](#december-212024)
+    - [God Is Love](#god-is-love)
+    - [BIAY Day 356 By Cynthia Dsilva](#biay-day-356-by-cynthia-dsilva)
+    - [Day 356 One Mediator and Traditions](#day-356-one-mediator-and-traditions)
+  - [December 22,2024](#december-222024)
+    - [Truth and Love](#truth-and-love)
+    - [Day 357 The love of money is the root of all evils](#day-357-the-love-of-money-is-the-root-of-all-evils)
+    - [BIAY Day 357 By Cynthia Dsilva](#biay-day-357-by-cynthia-dsilva)
+  - [December 23,2024](#december-232024)
+    - [From Rebellion to Faithfulness](#from-rebellion-to-faithfulness)
+    - [Day 358 St Michael the ArchAngel protect us](#day-358--st-michael-the-archangel-protect-us)
+    - [BIAY Day 358 By Cynthia Dsilva](#biay-day-358-by-cynthia-dsilva)
+  - [December 24,2024](#december-242024)
+    - [John's Apocalypse](#johns-apocalypse)
+    - [Day 359 Behold I stand at the door and knock.](#day-359-behold-i-stand-at-the-door-and-knock)
+    - [BIAY Day 359 By Cynthia Dsilva](#biay-day-359-by-cynthia-dsilva)
+  - [December 25,2024](#december-252024)
+    - [Heavenly Worship](#heavenly-worship)
+    - [Day 360 Mass - heaven on earth as understood in the book of Revelations.](#day-360-mass---heaven-on-earth-as-understood-in-the-book-of-revelations)
+    - [BIAY Day 360 By Cynthia Dsilva](#biay-day-360-by-cynthia-dsilva)
+  - [December 26,2024](#december-262024)
+    - [Judgment and Repentance](#judgment-and-repentance)
+    - [Day 361: A second chance](#day-361-a-second-chance)
+  - [December 27,2024](#december-272024)
+    - [The Woman Clothed with the Sun](#the-woman-clothed-with-the-sun)
+    - [BIAY Day 362 By Cynthia Dsilva](#biay-day-362-by-cynthia-dsilva)
+  - [December 28,2024](#december-282024)
+    - [The New Covenant Priesthood](#the-new-covenant-priesthood)
+    - [BIAY Day 363 By Cynthia Dsilva](#biay-day-363-by-cynthia-dsilva)
+  - [December 29,2024](#december-292024)
+    - [Christ's Sacrifice Once for All](#christs-sacrifice-once-for-all)
+    - [BIAY Day 364 By Cynthia Dsilva](#biay-day-364-by-cynthia-dsilva)
+  - [December 30,2024](#december-302024)
+    - [The Beginning and the End](#the-beginning-and-the-end)
+    - [BIAY Day 365 By Cynthia Dsilva](#biay-day-365-by-cynthia-dsilva)
 
 <!-- tocstop -->
 
@@ -219,7 +219,7 @@ Therefore, if we don't live our Christian lives in union with Christ (the Head),
 
 🔥🔥🔥🔥🔥🔥🔥
 
-### Day 336 The gifts of the Holy Spirit.
+### Day 336 The gifts of the Holy Spirit
 
 In our modern day and age, we seem to have either suppressed or forgotten the gifts of the Holy Spirit. St Paul urges us not to be unaware of the gifts of the Holy Spirit.
 Now in regard to spiritual gifts, brothers, I do not want you to be unaware.
@@ -436,7 +436,7 @@ May the Holy Spirit lead us 🙏
 
 [![The Power of the Holy Spirit](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day340.jpg)](https://youtu.be/S66B7h4dObE "The Power of the Holy Spirit")
 
-### Day 340 A true Christian life should have a personal relationship with Jesus and be led by the Holy Spirit.
+### Day 340 A true Christian life should have a personal relationship with Jesus and be led by the Holy Spirit
 
 Many people complain that faith and religion are boring and that they get nothing out of church. Sunday Mass becomes another weekend chore like grocery shopping. We may be missing one of these two important parts of our faith.
 We see how the evil spirit tossed up the sons of Sceva, because they did not have a personal relationship with Jesus.
@@ -498,7 +498,7 @@ Exorcising demons is not something that anyone can do. To be a successful exorci
 
 [![Eternal Weight of Glory](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day341.jpg)](https://youtu.be/_JwmReST630 "Eternal Weight of Glory")
 
-### Day 341 We walk by faith, not by sight.
+### Day 341 We walk by faith, not by sight
 
 The Christian life is a life of dependence on God, we may not know God’s plan for us but we trust Him fully. We do not go by what we see but walk by faith, knowing that the God who created us will take care of us. We may feel abandoned or alone on this journey especially when we are going through the trials of life. Let us rest assured that Jesus is walking with us and is carrying us.
 
@@ -526,7 +526,7 @@ May the Holy Spirit lead us. 🙏
 
 [![Generous Hearts](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day342.jpg)](https://youtu.be/pM7Yv6QskfI "Generous Hearts")
 
-### Day 342 The real struggles of being a disciple of Christ.
+### Day 342 The real struggles of being a disciple of Christ
 
 When we read about the great miracles performed by the early disciples we can assume that they were able to do anything. But the disciples had real problems and suffering. They needed to be strong and endure the hardships that came their way.
 
@@ -658,7 +658,7 @@ The false prophets may have been teaching one or more of the below heresies whic
 
 [![The Thorn in Paul's Side](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day344.jpg)](https://youtu.be/GZadAsEqM8o "The Thorn in Paul's Side")
 
-### Day 344 My grace is sufficient for you, for power is made perfect in weakness.
+### Day 344 My grace is sufficient for you, for power is made perfect in weakness
 
 St Paul received great revelation from God, he did not meet the other disciples or learn much from them, we all remember Jesus appeared to him during his conversion when he was struck down from the horse. It seems he was receiving all this doctrine supernaturally.
 
@@ -708,7 +708,7 @@ The proof of a prophet or apostle chosen by God is seen in the miracles which th
 
 [![One in Christ](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day345.jpg)](https://youtu.be/iTLJ-8gh3Zk "One in Christ")
 
-### Day 345 Just being a good person is not our Christian calling.
+### Day 345 Just being a good person is not our Christian calling
 
 "I have been crucified with Christ; yet I live, no longer I, but Christ lives in me"
 
@@ -1113,7 +1113,7 @@ We must, therefore, be alert to sin at all times and keep ourselves purified as 
 
 [![Faith and Works](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day350.jpg)](https://youtu.be/2lCax3ZsJXk "Faith and Works")
 
-### Day 350 Doers of the Word, not hearer only.
+### Day 350 Doers of the Word, not hearer only
 
 We are called to be not just hearers of the Word but doers as well.
 Be doers of the word and not hearers only, deluding yourselves.
@@ -1954,7 +1954,7 @@ In baptism, Christians die spiritually with Christ and hope to live with him and
 
 [![John's Apocalypse](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day359.jpg)](https://youtu.be/cLKNkdyrb94 "John's Apocalypse")
 
-### Day 359 Behold I stand at the door and knock.
+### Day 359 Behold I stand at the door and knock
 
 In the book of the revelations John finds himself in what seems like heaven, he finds himself face to face with Jesus. Of Course it’s hard to describe in human language what he actually saw and heard. He tries to compare it to things that we can relate to, the phrases “like a fiery flame”, “voice was like the sound of rushing water “, “his face shone like the sun at its brightest.” It is impossible to describe God, especially when we encounter Him in all his glory. Our reaction would be no less than John’s reaction, in fact we may be even more fearful as none of use are as worthy as John who stood by Jesus at the cross, accepted Jesus’ mother Mary as his own and even was willing to die for Christ, he was boiled but did not die - thrown on the island of Patmos to die.\
 When I caught sight of him, I fell down at his feet as though dead. He touched me with his right hand and said, “Do not be afraid. I am the first and the last, the one who lives. Once I was dead, but now I am alive forever and ever. I hold the keys to death and the netherworld. Rev 1:17,18
@@ -2050,7 +2050,7 @@ After the death of Peter, Linus was chosen to be the successor of Peter as the s
 
 [![Heavenly Worship](https://raw.githubusercontent.com/linusjf/BIAY/main/December/jpgs/Day360.jpg)](https://youtu.be/rnn_VeSKdTQ "Heavenly Worship")
 
-### Day 360 Mass - heaven on earth as understood in the book of Revelations.
+### Day 360 Mass - heaven on earth as understood in the book of Revelations
 
 As we read through the book of revelations we can feel lost and the book can seem very Sci Fi or apocalyptic. The verse that can put it into perspective is
 

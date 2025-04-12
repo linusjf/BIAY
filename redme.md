@@ -5,13 +5,13 @@
 <!-- vim-markdown-toc GFM -->
 
 * [Bible In A Year](#bible-in-a-year)
-  - [Intro](#intro)
-  - [Helpful tips](#helpful-tips)
-  - [Get started](#get-started)
-  - [Reading Plan](#reading-plan)
-  - [A New Beginning](#a-new-beginning)
-  - [Facebook](#facebook)
-  - [Step By Step Walkthrough the Mass](#step-by-step-walkthrough-the-mass)
+  * [Intro](#intro)
+  * [Helpful tips](#helpful-tips)
+  * [Get started](#get-started)
+  * [Reading Plan](#reading-plan)
+  * [A New Beginning](#a-new-beginning)
+  * [Facebook](#facebook)
+  * [Step By Step Walkthrough the Mass](#step-by-step-walkthrough-the-mass)
 
 <!-- vim-markdown-toc -->
 

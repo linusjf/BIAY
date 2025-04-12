@@ -75,7 +75,7 @@
     + [Day 112 A Faithful Friend is a treasure](#day-112-a-faithful-friend-is-a-treasure)
   * [April 22,2024](#april-222024)
     + [Broken Trust](#broken-trust)
-    + [Day 113 “Crossing the limit” to succeed.](#day-113-crossing-the-limit-to-succeed)
+    + [Day 113 “Crossing the limit” to succeed](#day-113-crossing-the-limit-to-succeed)
   * [April 23,2024](#april-232024)
     + [David Saves Keilah](#david-saves-keilah)
     + [Day 114 Consult the Lord before you act – discernment](#day-114-consult-the-lord-before-you-act-%E2%80%93-discernment)
@@ -88,17 +88,17 @@
     + [Day 116 Be a peacemaker like Abigail](#day-116-be-a-peacemaker-like-abigail)
   * [April 26,2024](#april-262024)
     + [Reverence and Faithfulness](#reverence-and-faithfulness)
-- [Day 117 God holds our tears in a bottle](#day-117-god-holds-our-tears-in-a-bottle)
+    + [Day 117 God holds our tears in a bottle](#day-117-god-holds-our-tears-in-a-bottle)
   * [April 27,2024](#april-272024)
     + [King Saul Despairs](#king-saul-despairs)
-    + [Day 118 The Lord is close to the brokenhearted.](#day-118-the-lord-is-close-to-the-brokenhearted)
+    + [Day 118 The Lord is close to the brokenhearted](#day-118-the-lord-is-close-to-the-brokenhearted)
   * [April 28,2024](#april-282024)
     + [David's Wisdom](#davids-wisdom)
     + [Day 119 Always turn to the Lord for guidance](#day-119-always-turn-to-the-lord-for-guidance)
   * [April 29,2024](#april-292024)
     + [David Mourns Saul](#david-mourns-saul)
     + [Day 120 By Cynthia Dsilva\_](#day-120-by-cynthia-dsilva_)
-    + [Day 120 Lies bring death, truth sets us free.](#day-120-lies-bring-death-truth-sets-us-free)
+    + [Day 120 Lies bring death, truth sets us free](#day-120-lies-bring-death-truth-sets-us-free)
   * [April 30,2024](#april-302024)
     + [Cycle of Violence](#cycle-of-violence)
     + [Day 121 Be a pioneer in doing the right thing](#day-121-be-a-pioneer-in-doing-the-right-thing)
@@ -780,7 +780,7 @@ May the Holy Spirit lead us. 🙏
 
 [![Broken Trust](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day113.jpg)](https://youtu.be/YFVnETlkils "Broken Trust")
 
-### Day 113 “Crossing the limit” to succeed.
+### Day 113 “Crossing the limit” to succeed
 
 We read about David and his men, eating the bread of the presence as they had nothing else to eat as they were fleeing Saul. We also need the bread of the presence – Eucharist to strengthen us on our journey.
 Saul finds out about it and is perusing David, he is furious and wants to find out who helped David. When no one answered – “Doeg” ceased the opportunity to please the King. Doeg tells Saul that Ahimelech was the one who helped David. Saul wanted his servants to kill Ahimelech, but no one wanted to touch God’s anointed priest. Doeg stoops to a even lower place, He kills Ahimelech and 85 others who wore priestly garments. What a shame, such betrayal by Doeg. Doeg was ready to do anything to please the King and possibly enhance his own position and win the Kings favor.
@@ -878,7 +878,7 @@ May the Holy Spirit lead us. 🙏
 
 [![Reverence and Faithfulness](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day117.jpg)](https://youtu.be/HNEXWB0x-L0 "Reverence and Faithfulness")
 
-# Day 117 God holds our tears in a bottle
+### Day 117 God holds our tears in a bottle
 
 We read Psalm 56 today and read David’s plea to the Lord.
 “You have kept count of my tossings; put my tears in your bottle! Are they not in your book?” Ps 56: 8
@@ -900,7 +900,7 @@ We can learn two things from this. 1. Reverence 2. Not seeking revenge
 
 [![King Saul Despairs](https://raw.githubusercontent.com/linusjf/BIAY/main/April/jpgs/Day118.jpg)](https://youtu.be/0_6WSzY1VAE "King Saul Despairs")
 
-### Day 118 The Lord is close to the brokenhearted.
+### Day 118 The Lord is close to the brokenhearted
 
 Psalm 34 is one of those Psalms that we need to read daily and remember. It reminds us to praise God every day and for everything, in fact, it prescribes us to praise God “always”. We are invited not to boast of our own victories, but rather humble ourselves and boast in the Lord alone. We can invite others to praise God with us and invite them to magnify the Lord and exalt the Lord in unity and with joy.
 I will bless the Lord at all times; his praise shall continually be in my mouth. My soul makes its boast in the Lord; let the humble hear and be glad. O magnify the Lord with me, and let us exalt his name together. Ps 34:1-3
@@ -958,7 +958,7 @@ Although David sensed that the man was lying, he ordered the man to be killed be
 
 🔥🔥🔥🔥🔥🔥🔥
 
-### Day 120 Lies bring death, truth sets us free.
+### Day 120 Lies bring death, truth sets us free
 
 We read that account of the man who tried to find favor in David’s eyes, he claims to have killed King Saul himself. We all know from a few chapters ago, that King Saul fell on his own sword and died. This man lost his life, because of his lie.
 My mom had this saying
