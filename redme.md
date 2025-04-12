@@ -69,7 +69,7 @@ Let us begin our journey through the Bible as one big family, praying for each o
 
 Like this session.
 
-[The Bible In a Year (with Fr. Mike Schmitz and Jeff Cavins \[Official\]](https://www.facebook.com/groups/ascensioncatholic/permalink/1354591171863758/?mibextid=W9rl1R)
+[The Bible In a Year (with Fr. Mike Schmitz and Jeff Cavins \[Official\]](https://www.facebook.com/groups/ascensioncatholic/permalink/1354591171863758/)
 
 ### Step By Step Walkthrough the Mass
 

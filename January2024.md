@@ -474,7 +474,7 @@ May the Holy Spirit lead us. 🙏
 
 ### Matt Redman - Music Video
 
-[![Matt Redman - Blessed Be Your Name (Lyrics and Chords)](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/mrblessedbeyourname.jpg)](https://www.youtu.be/tTpTQ4kBLxA "Matt Redman - Blessed Be Your Name (Lyrics and Chords)")
+[![Matt Redman - Blessed Be Your Name (Lyrics and Chords)](https://raw.githubusercontent.com/linusjf/BIAY/main/January/jpgs/mrblessedbeyourname.jpg)](https://youtu.be/tTpTQ4kBLxA "Matt Redman - Blessed Be Your Name (Lyrics and Chords)")
 
 ### Day 6 - Joice Pereira
 
