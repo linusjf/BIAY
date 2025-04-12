@@ -4,7 +4,7 @@
    contain the root `toctree` directive.
 
 BIAY (Bible in a Year 2024)
-=======
+===========================
 
 .. toctree::
    :maxdepth: 2
