@@ -32,6 +32,7 @@ linkcheck_timeout = 5  # seconds
 linkcheck_ignore = [
     r'http://localhost:\d+/',  # Ignore local dev servers
     r'https://example\.com/redirect',  # Ignore known redirect
+  r'https://www.facebook.com/groups/ascensioncatholic/posts/1354591171863758/',
 ]
 linkcheck_ignore_redirects = True
 
