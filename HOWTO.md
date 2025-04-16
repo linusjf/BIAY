@@ -2,21 +2,21 @@
 
 <!-- vim-markdown-toc GFM -->
 
-* [Prerequisites](#prerequisites)
-* [Add the daily Youtube video](#add-the-daily-youtube-video)
-* [Add today's sharing](#add-todays-sharing)
-* [Generate markdown for Youtube video](#generate-markdown-for-youtube-video)
-* [Merge monthly markdown files into one large README](#merge-monthly-markdown-files-into-one-large-readme)
+- [Prerequisites](#prerequisites)
+- [Add the daily Youtube video](#add-the-daily-youtube-video)
+- [Add today's sharing](#add-todays-sharing)
+- [Generate markdown for Youtube video](#generate-markdown-for-youtube-video)
+- [Merge monthly markdown files into one large README](#merge-monthly-markdown-files-into-one-large-readme)
 
 <!-- vim-markdown-toc -->
 
 ## Prerequisites
 
-* [curl](https://curl.se/)
-* [gm](http://www.graphicsmagick.org/)
-* [m4](https://www.gnu.org/software/m4/)
-* [markdown-toc](https://github.com/jonschlinkert/markdown-toc)
-* [stitchmd](https://github.com/abhinav/stitchmd)
+- [curl](https://curl.se/)
+- [gm](http://www.graphicsmagick.org/)
+- [m4](https://www.gnu.org/software/m4/)
+- [markdown-toc](https://github.com/jonschlinkert/markdown-toc)
+- [stitchmd](https://github.com/abhinav/stitchmd)
 
 Create a directory for each month of the year under the root directory.
 Add a `header.md` file under each monthly directory with the following content.
@@ -50,8 +50,8 @@ This ensures that the header is present for each month's markdown.
 
 Execute the script `addvideo` with the following parameters:
 
-* video id - the id of the youtube video
-* caption or title (in double quotes)
+- video id - the id of the youtube video
+- caption or title (in double quotes)
 
 Example:
 
@@ -77,9 +77,9 @@ Results:
 4. Save the file.
 5. Execute script `genmonth` with the following parameters:
 
-* month index - 1 - 12
+- month index - 1 - 12
 
-* four digit year - 20XX
+- four digit year - 20XX
 
   Example:
 
@@ -107,9 +107,9 @@ The above gives the month index for day 31.
 
 Execute the `genvidmd` script with the following parameters:
 
-* vid - video id
-* caption - video title
-* pathtoimg - relative path to jpeg image file to be generated
+- vid - video id
+- caption - video title
+- pathtoimg - relative path to jpeg image file to be generated
 
 Example:
 

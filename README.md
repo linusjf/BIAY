@@ -1,18 +1,18 @@
 # README
 
 - [BIAY](#biay)
-- [January 2024](#january-2024)
-- [February 2024](#february-2024)
-- [March 2024](#march-2024)
-- [April 2024](#april-2024)
-- [May 2024](#may-2024)
-- [June 2024](#june-2024)
-- [July 2024](#july-2024)
-- [August 2024](#august-2024)
-- [September 2024](#september-2024)
-- [October 2024](#october-2024)
-- [November 2024](#november-2024)
-- [December 2024](#december-2024)
+- [January](#january)
+- [February](#february)
+- [March](#march)
+- [April](#april)
+- [May](#may)
+- [June](#june)
+- [July](#july)
+- [August](#august)
+- [September](#september)
+- [October](#october)
+- [November](#november)
+- [December](#december)
 
 ## BIAY
 
@@ -97,7 +97,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 [Step By Step Walkthrough the mass](https://www.eucharisticrevival.org/step-by-step-walk-through-the-mass)
 
-## January 2024
+## January
 
 <!-- toc -->
 
@@ -105,7 +105,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 <!-- tocstop -->
 
-## February 2024
+## February
 
 <!-- toc -->
 
@@ -113,7 +113,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 <!-- tocstop -->
 
-## March 2024
+## March
 
 <!-- toc -->
 
@@ -121,7 +121,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 <!-- tocstop -->
 
-## April 2024
+## April
 
 <!-- toc -->
 
@@ -129,7 +129,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 <!-- tocstop -->
 
-## May 2024
+## May
 
 <!-- toc -->
 
@@ -137,7 +137,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 <!-- tocstop -->
 
-## June 2024
+## June
 
 <!-- toc -->
 
@@ -145,7 +145,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 <!-- tocstop -->
 
-## July 2024
+## July
 
 <!-- toc -->
 
@@ -153,7 +153,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 <!-- tocstop -->
 
-## August 2024
+## August
 
 <!-- toc -->
 
@@ -161,7 +161,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 <!-- tocstop -->
 
-## September 2024
+## September
 
 <!-- toc -->
 
@@ -169,7 +169,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 <!-- tocstop -->
 
-## October 2024
+## October
 
 <!-- toc -->
 
@@ -177,7 +177,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 <!-- tocstop -->
 
-## November 2024
+## November
 
 <!-- toc -->
 
@@ -185,7 +185,7 @@ If you have questions about the Mass, you may find some answers here. 🙏
 
 <!-- tocstop -->
 
-## December 2024
+## December
 
 <!-- toc -->
 
